@@ -1,0 +1,8 @@
+LEY QUE CREA EL ORGANISMO PUBLICO DESCENTRALIZADO DE CARACTER ESTATAL DENOMINADO: UNIVERSIDAD TECNOLOGICA DE NEZAHUALCOYOTL
+Ley publicada en la Gaceta del Gobierno del Estado de México, el sábado 7 de septiembre de 1991.
+El Ciudadano LICENCIADO IGNACIO PICHARDO PAGAZA, Gobernador del Estado Libre y Soberano de México, a sus habitantes sabed:
+Que la Legislatura del Estado, ha tenido a bien aprobar lo siguiente:
+DECRETO NUMERO 24
+La H. "LI" Legislatura del Estado De México
+D E C R E T A :
+LEY QUE CREA EL ORGANISMO PUBLICO DESCENTRALIZADO DE CARACTER ESTATAL DENOMINADO: UNIVERSIDAD TECNOLOGICA DE NEZAHUALCOYOTL.
