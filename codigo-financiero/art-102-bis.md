@@ -2,4 +2,5 @@
 Artículo 102 Bis.- Por la renovación anual de acreditación en el Programa Integral de Reducción de Emisiones de Contaminantes, se cobrarán derechos de acuerdo a la siguiente:
 TARIFA
 CONCEPTO
-Taller autorizado en el Programa Integral de Reducción de Emisiones de Contaminantes (PIREC)$3,161.
+(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
+Taller autorizado en el Programa Integral de Reducción de Emisiones de Contaminantes (PIREC)$3,234.
