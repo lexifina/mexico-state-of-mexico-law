@@ -1,0 +1,1 @@
+ARTICULO QUINTO.- Los bienes que constituyan el patrimonio de los Organismos Públicos Descentralizados de carácter Municipal, sólo podrán gravarse con la anuencia expresa del Ayuntamiento respectivo, cuando a Juicio de éste así convenga al financiamiento de obras y servicios a su cargo, y previa autorización en su caso de la H. Legislatura Local.

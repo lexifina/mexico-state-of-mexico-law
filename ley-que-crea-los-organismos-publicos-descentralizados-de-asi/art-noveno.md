@@ -1,0 +1,1 @@
+ARTICULO NOVENO.- Los Organismos a que se refiere la presente Ley, también anualmente deberán elaborar su programa de trabajo a realizar en su ejercicio inmediato para someterlo a la consideración del H. Ayuntamiento.

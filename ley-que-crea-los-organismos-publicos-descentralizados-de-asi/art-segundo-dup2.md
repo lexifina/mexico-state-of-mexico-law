@@ -1,0 +1,1 @@
+ARTICULO SEGUNDO.- Los H.H. Ayuntamientos proveerán en la esfera de su competencia a la instalación e integración de los Sistemas Municipales, proporcionándoles las facilidades administrativas necesarias.

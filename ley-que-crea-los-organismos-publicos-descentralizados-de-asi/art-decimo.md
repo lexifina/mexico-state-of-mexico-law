@@ -1,0 +1,1 @@
+ARTICULO DECIMO.- El Inventario patrimonial, los presupuestos financieros y el programa de trabajo de los Organismos, a los que se refieren los Artículos precedentes, deberán ser presentados para su aprobación correspondiente, en un plazo de 60 días anteriores a su ejercicio inmediato.

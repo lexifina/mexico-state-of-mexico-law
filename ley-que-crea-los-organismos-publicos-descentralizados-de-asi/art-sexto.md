@@ -1,0 +1,1 @@
+ARTICULO SEXTO.- Para la enajenación de bienes inmuebles considerados como propios de los Organismos, así como la desincorporación de los bienes inmuebles afectos al servicio de asistencia social, sólo podrán enajenarse en subasta pública al mejor postor, debiendo entregar el producto de la venta a los Organismos. Y previa la autorización de la Legislatura Local.

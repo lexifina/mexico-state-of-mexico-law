@@ -1,0 +1,1 @@
+ARTICULO DECIMO SEXTO.- El Sistema Municipal se normará por las disposiciones generales técnicas, operativas y administrativas que de los convenios se desprendan a que dicte para el efecto el Sistema Estatal.

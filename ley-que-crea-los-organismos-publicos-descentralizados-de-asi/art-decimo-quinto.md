@@ -1,0 +1,1 @@
+ARTICULO DECIMO QUINTO.- El Tesorero será responsable del manejo del presupuesto del Sistema Municipal, lo cual hará en coordinación con el Director, debiendo informar los estados financieros mensualmente a la Junta de Gobierno o cuando ésta y la Presidencia lo soliciten.
