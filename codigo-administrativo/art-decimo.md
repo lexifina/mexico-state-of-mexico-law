@@ -1,4 +1,0 @@
-ARTICULO DECIMO.- En cuanto a las disposiciones del Libro Quinto "Del ordenamiento territorial de los asentamientos humanos y del desarrollo urbano de los centros de población" se observará lo siguiente:
-Los planes de centros de población estratégicos seguirán conservando su vigencia hasta que sean sustituidos por los planes municipales de desarrollo urbano o los de centros de población.
-Los titulares de los fraccionamientos que a la entrada en vigor del presente Código, no hayan realizado las obras de urbanización y equipamiento, para el inicio y ejecución de las mismas deberán acompañar a la solicitud de autorización dictámenes actualizados de factibilidad de servicios públicos.
-Los fraccionamientos autorizados que se encuentren en proceso a la entrada en vigor del presente Código, se regularán por las disposiciones de éste aplicables a los conjuntos urbanos.

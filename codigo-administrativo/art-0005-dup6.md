@@ -1,1 +1,0 @@
-Artículo 5.6.- Las acciones de planeación, programación, ejecución, supervisión, administración, control, seguimiento y evaluación relativas al ordenamiento territorial de los asentamientos humanos y al desarrollo urbano de los centros de población en el Estado, deberán realizarse por las autoridades de los distintos órdenes de gobierno de manera coordinada y concurrente.

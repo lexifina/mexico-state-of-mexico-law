@@ -1,1 +1,0 @@
-Artículo 11.5.- Corresponde al Sistema para el Desarrollo Integral de la Familia del Estado de México normar y coordinar las actividades relativas a la prevención de la discapacidad y la rehabilitación e integración social de las personas con capacidades diferentes.

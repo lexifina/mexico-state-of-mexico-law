@@ -1,1 +1,0 @@
-Artículo 4.9.- La Secretaría de Ecología organizará el Sistema Estatal de Información Ambiental y coordinará el Centro Geomático Ambiental, con el objeto de obtener, generar y procesar la información relativa al agua, aire, suelo, flora, fauna y recursos naturales en general.

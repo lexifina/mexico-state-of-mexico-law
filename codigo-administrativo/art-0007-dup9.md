@@ -1,3 +1,0 @@
-Artículo 7.9.- Las concesiones se otorgarán hasta por un plazo de treinta años y podrán ser prorrogadas hasta por un plazo equivalente al establecido originalmente, atendiendo al cumplimiento de las obligaciones inherentes a la concesión respectiva.
-(REFORMADO, P.O. 11 DE DICIEMBRE DE 2002)
-La Secretaría de Comunicaciones contestará en definitiva la solicitud de prórroga, dentro de un plazo de sesenta días hábiles contados a partir de la fecha de presentación de la misma debidamente requisitada y establecerá las nuevas condiciones de la concesión, para lo cual deberá tomar en cuenta la inversión, los costos futuros de ampliación y mejoramiento, y las demás proyecciones financieras y operativas que considere la rentabilidad de la concesión.

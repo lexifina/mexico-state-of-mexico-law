@@ -1,2 +1,0 @@
-Artículo 11.9.- El Consejo Estatal para la Protección de las Personas con Capacidades Diferentes y su Integración al Desarrollo Social tendrá a su cargo las funciones de gestión, coordinación y promoción de programas que faciliten la incorporación a la sociedad de las personas con capacidades diferentes en condiciones de igualdad.
-El Gobernador del Estado presidirá el Consejo, su integración se hará a propuesta del Ejecutivo, y su funcionamiento se regirá por su reglamento interno.

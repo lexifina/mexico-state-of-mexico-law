@@ -1,1 +1,0 @@
-Artículo 8.9.- Los lugares para el estacionamiento de vehículos en las vías locales serán fijados por las autoridades de tránsito municipal, cuidando en todo momento que no se interrumpa el flujo vehicular.

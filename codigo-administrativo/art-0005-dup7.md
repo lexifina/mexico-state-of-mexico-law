@@ -1,1 +1,0 @@
-Artículo 5.7.- Corresponde a la Legislatura del Estado decretar la fundación de los nuevos centros de población que el desarrollo urbano requiera, así como celebrar foros de consulta popular en materia de asentamientos humanos.

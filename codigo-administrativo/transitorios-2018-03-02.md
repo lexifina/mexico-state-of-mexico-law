@@ -1,0 +1,4 @@
+P.O. 2 DE MARZO DE 2018.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 192 MEDIANTE EL CUAL SE APRUEBA LA REFORMA AL ARTÍCULO 31 FRACCIÓN IV Y V, LA DENOMINACIÓN DEL CAPÍTULO QUINTO, ASÍ COMO LOS ARTÍCULOS 35, 36, 37, 38, 39, 40, 41 Y 42, Y SE ADICIONA UN CAPÍTULO SEXTO DENOMINADO "SANCIONES" Y LOS ARTÍCULOS 43, 44, 45, 46, 47, 48, 49, 50 Y 51 A LA LEY DE PREVENCIÓN, TRATAMIENTO Y CONTROL DE LAS ADICCIONES PARA EL ESTADO DE BAJA CALIFORNIA".]
+PRIMERO.- Las presentes reformas entrarán en vigor dentro de los noventas (sic) días siguientes al de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Los Establecimientos que reciban subsidios o recursos públicos, en un plazo no mayor al de noventa días contados a partir de la publicación de las presentes reformas, deberán adecuar sus programas conforme a lo establecido en el presente Decreto.

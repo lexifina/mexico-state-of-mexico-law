@@ -1,1 +1,0 @@
-ARTICULO SEXTO.- El Ejecutivo del Estado expedirá los reglamentos necesarios para la aplicación del presente Código. Asimismo, el Ejecutivo procurará que los reglamentos contengan un glosario de los términos técnicos empleados por este Código.
