@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 4 DE JUNIO DE 2004)
+Artículo 289 Bis.- La Legislatura al aprobar el Presupuesto de Egresos no podrá dejar de señalar las asignaciones presupuestales necesarias para cubrir los financiamientos a cargo del Estado y/o sus organismos descentralizados de acuerdo a los contratos y documentos que instrumenten los financiamientos correspondientes. En caso de que por cualquier circunstancia se omita prever las asignaciones presupuestales se entenderán señalados los montos establecidos para el ejercicio inmediato anterior.
