@@ -1,0 +1,2 @@
+Artículo 4.5.- En los casos de concurso, con la solicitud se acompañarán las pruebas que justifiquen que el deudor ha cesado en sus pagos, las que se desahogarán en una audiencia de pruebas y alegatos dentro de los quince días siguientes, previo el traslado a los acreedores, si el concurso es voluntario; y al deudor, si es necesario, quienes podrán ofrecer pruebas y formular alegatos.
+Prevención al deudor

@@ -1,0 +1,2 @@
+Artículo 2.53.- Si el tenedor del documento o bien mueble fuere el mismo a quien se va a demandar, y sin causa se niegue a exhibirlos, se le apremiará legalmente, y si aún así se opone a la exhibición o los destruye, deteriora u oculta, o con dolo o malicia, dejare de poseerlos, pagará todos los daños y perjuicios, quedando, además, sujeto a la responsabilidad penal.
+Agregado de las diligencias al principal

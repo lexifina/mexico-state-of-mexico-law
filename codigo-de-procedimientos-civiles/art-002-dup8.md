@@ -1,0 +1,5 @@
+Artículo 2.8.- Procede la acción negatoria para obtener la declaración de libertad o la reducción de gravámenes de bienes inmuebles, la demolición de obras o señales que importen gravámenes, la cancelación o anotación en el Registro Público de la Propiedad, y conjuntamente, en su caso, la indemnización de daños y perjuicios.
+Sólo se dará esta acción al poseedor a título de dueño, o que tenga derecho real sobre el bien.
+(F. DE E., P.O. 1 DE JULIO DEL 2002)
+La acción confesoria compete al titular del derecho real inmueble y al poseedor del predio dominante que esté interesado en la existencia de la servidumbre. Se da esta acción contra el tenedor o poseedor jurídico que contraría el gravamen para que se obtenga el reconocimiento, la declaración de los derechos y obligaciones del gravamen y el pago de frutos, daños y perjuicios, en su caso, y se haga cesar la violación. Si fuere la sentencia condenatoria, el actor puede exigir del reo que afiance el respeto del derecho.
+Legitimación activa en petición de herencia

@@ -1,0 +1,2 @@
+Artículo 2.19.- Al poseedor de inmueble o derecho real sobre él, compete la acción para suspender la conclusión de una obra perjudicial a sus posesiones, su demolición o modificación, en su caso, y la restitución de las cosas al estado anterior a la obra nueva. Compete también al vecino del lugar, cuando la obra nueva se construye en bienes de uso común.
+Legitimación pasiva en la acción de obra nueva

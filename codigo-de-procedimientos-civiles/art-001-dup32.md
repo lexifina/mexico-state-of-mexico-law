@@ -1,0 +1,2 @@
+Artículo 1.32.- Ningún Tribunal puede negarse a conocer de un asunto sino por considerarse incompetente. En este caso debe expresar en su resolución los fundamentos legales en que se apoye.
+Competencia prorrogable

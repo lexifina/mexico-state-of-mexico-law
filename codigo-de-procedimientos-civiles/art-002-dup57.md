@@ -1,0 +1,2 @@
+Artículo 2.57.- Presentada la solicitud, el Juez, sin más trámite resolverá sobre su procedencia y, si la concede, dictará las disposiciones pertinentes para que se efectúe materialmente la separación, atendiendo las circunstancias del caso, determinando los bienes que ha de llevar consigo el solicitante, y ordenará la notificación al otro cónyuge, previniéndole que se abstenga de impedir la separación, o causarle molestias, bajo apercibimiento de procederse en su contra.
+Modificación de las medidas de separación

@@ -1,0 +1,7 @@
+Artículo 1.5.- Los Magistrados y Jueces en el ejercicio de sus funciones tendrán una fe pública limitada consistente, en que las resoluciones que pronuncien gozarán de certidumbre jurídica y de verdad en cuanto a la interpretación y aplicación de la ley al caso concreto y una vez que causen ejecutoria podrán ser oponibles también a aquellos que no litigaron.
+Los Secretarios de Acuerdos, así como los Secretarios Notificadores o Ejecutores adscritos, tendrán una fe pública amplia, en la que podrán certificar la existencia de eventos y circunstancias que dan lugar a hechos jurídicos o no jurídicos, dentro de un procedimiento que sucedan en el ejercicio de sus funciones, ya sea durante el desarrollo de una diligencia judicial, o que así lo ordene a discreción el titular del órgano jurisdiccional al que pertenecen.
+TITULO SEGUNDO
+Organización y Competencia
+CAPITULO I
+Del Pleno del Tribunal Superior de Justicia
+Atribuciones del Pleno

@@ -1,0 +1,2 @@
+Artículo 4.43.- Cualquiera que tenga interés en que se nombre albacea o interventor, podrá hacer la denuncia del sucesorio. Mencionará nombre y domicilio de los presuntos herederos legítimos para que se les notifique y realicen el trámite para nombrar albacea. De no nombrarlo o no comparecer herederos, en el plazo de quince días, el Juez nombrará interventor, quien ejercitará acciones o contestará demandas a nombre de la sucesión hasta en tanto se designa albacea.
+Citación a los presuntos herederos

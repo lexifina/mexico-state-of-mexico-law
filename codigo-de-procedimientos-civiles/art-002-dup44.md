@@ -1,0 +1,2 @@
+Artículo 2.44.- Promovido el reconocimiento, se citará a la persona a reconocer o no, como expedido por ella, o por su representado, el documento, y como suya, o de su representado, la firma que lo suscribe, apercibido de que si no comparece se tendrá por reconocido. El mismo apercibimiento procederá cuando el documento esté firmado a ruego de la persona que debe reconocerlo.
+Contestación categórica al reconocimiento
