@@ -1,0 +1,2 @@
+Artículo 24 Bis.- Por un Contralor interno que será nombrado por la Junta a propuesta del Presidente, quien preferentemente deberá contar con el perfil profesional en Ciencias; Jurídicas, Contabilidad y/o Administración Pública para el adecuado desempeño de sus funciones.
+Además deberá ser de reconocida honorabilidad. Cuyas obligaciones y atribuciones estarán ajustadas a lo establecido en la presente Ley, a las determinaciones tomadas por la junta, así como por las demás que señalen las normas relativas.
