@@ -5,7 +5,7 @@ III.La certificación de origen de los productos agropecuarios, acuícolas y for
 IV.El establecimiento de servicios de consultoría, asesoría e información para la ubicación de mercados y oportunidades específicas de exportación, así como en materia de comercio exterior y tratados comerciales, sin perjuicio de que la Secretaría de Desarrollo Agropecuario pueda prestar directamente estos servicios;
 V.La adopción de esquemas modernos de acopio, distribución y comercialización;
 VI.La formación y capacitación de árbitros, así como la constitución de unidades de arbitraje para dar certidumbre respecto de las transacciones en materia agropecuaria, acuícola y forestal;
-VII. La integración de cadenas productivas, y mecanismos que permitan la obtención de financiamientos con tasas preferenciales, en materia de comercialización.
+VII.La integración de cadenas productivas, y mecanismos que permitan la obtención de financiamientos con tasas preferenciales, en materia de comercialización.
 CAPITULO TERCERO
 De la investigación, transferencia de tecnología y capacitación
 SECCION PRIMERA

@@ -21,4 +21,4 @@ XIX.Regularizar la tenencia de la tierra privada para su incorporación al desar
 XX.Operar el Registro Estatal de Desarrollo Urbano;
 XXI.Expedir los nombramientos de peritos;
 XXII.Emitir normas técnicas en materia de desarrollo urbano, vivienda y construcciones;
-XXIII. Las demás que le confieran las disposiciones legales.
+XXIII.Las demás que le confieran las disposiciones legales.

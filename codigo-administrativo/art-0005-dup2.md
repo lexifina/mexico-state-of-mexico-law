@@ -9,4 +9,4 @@ VII.La prevención de los asentamientos humanos irregulares;
 VIII.El fortalecimiento de los municipios, mediante una mayor participación en la planeación, administración y operación del desarrollo urbano;
 IX.El fomento a la participación de los sectores público, social y privado, para atender las necesidades urbanas en la entidad;
 X.La participación ciudadana en la planeación urbana y en la vigilancia de su cumplimiento;
-XI. La promoción y ejecución de programas de vivienda para los sectores sociales de escasos recursos, para garantizar el derecho constitucional de toda persona de disfrutar de una vivienda digna y decorosa.
+XI.La promoción y ejecución de programas de vivienda para los sectores sociales de escasos recursos, para garantizar el derecho constitucional de toda persona de disfrutar de una vivienda digna y decorosa.

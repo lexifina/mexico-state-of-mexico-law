@@ -8,4 +8,4 @@ VI.Coordinar campañas permanentes en materia de protección civil;
 VII.Promover ante las autoridades educativas la adopción de programas en materia de protección civil en las instituciones de educación en todos sus niveles y grados;
 VIII.Constituirse en sesión permanente en los casos de riesgo o desastre para formular opiniones y recomendaciones sobre las acciones que deban tomarse;
 IX.Coadyuvar en la vigilancia de la aplicación de los recursos que se destinen a los programas y acciones de protección civil;
-X. Las demás que se prevean en la reglamentación de este Libro.
+X.Las demás que se prevean en la reglamentación de este Libro.
