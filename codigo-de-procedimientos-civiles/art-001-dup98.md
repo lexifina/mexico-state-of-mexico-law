@@ -1,2 +1,2 @@
-Artículo 1.98.- No se dará curso a las promociones que carezcan de firma o huella del interesado.
-Excepción a la nulidad de actuaciones
+Artículo 1.97.- Las promociones y actuaciones judiciales deberán firmarse por quienes las realizan. Las partes si no saben escribir o no pueden firmar, imprimirán su huella.
+Inatendibles promociones sin firma o huella

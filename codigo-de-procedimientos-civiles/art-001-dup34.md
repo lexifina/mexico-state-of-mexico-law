@@ -1,2 +1,2 @@
-Artículo 1.34.- Es Juez competente, aquél al que los interesados se hubieren sometido expresa o tácitamente, si se trata de competencia prorrogable.
-Sometimiento expreso
+Artículo 1.33.- La competencia por razón del territorio es la única que se puede prorrogar.
+Competencia por sometimiento

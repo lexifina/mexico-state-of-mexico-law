@@ -1,7 +1,2 @@
-Artículo 1.76.- En la resolución que declare improcedente la recusación, se ordenará hacer efectiva la multa, y se remitirá copia de la misma al recusado quien seguirá conociendo del asunto.
-TITULO SEXTO
-Partes
-CAPITULO I
-De las Personas que pueden Intervenir
-en el Procedimiento Judicial
-Definición de parte
+Artículo 1.75.- Si se declara procedente la recusación de Magistrado, la Sala se integrará legalmente. Si se trata de un Juez se remitirán los autos al Juzgado que corresponda, remitiéndose copia de la resolución al recusado.
+Efectos de la recusación improcedente

@@ -1,2 +1,3 @@
-Artículo 1.3.- Las reglas generales sobre substanciación del proceso, regirán en toda actividad judicial, con excepción de los casos señalados en las leyes. Sólo son renunciables las formalidades que la ley permita.
-Organos jurisdiccionales
+(REFORMADO, G.G. 8 DE MAYO DE 2003)
+Artículo 1.4.- La jurisdicción en el Estado la ejerce el Tribunal Superior de Justicia funcionando en Pleno o Salas Colegiadas y Unitarias Regionales, los Jueces de Primera Instancia y de Cuantía Menor.
+De la fe pública de los Magistrados y Jueces

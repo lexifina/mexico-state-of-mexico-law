@@ -1,4 +1,2 @@
-Artículo 1.27.- El Notificador tendrá fe pública en el ejercicio de sus funciones, así como aquellos que expresamente lo determine la ley.
-TITULO CUARTO
-Competencia
-Ejercicio de la función jurisdiccional
+Artículo 1.26.- Los demás servidores judiciales, desempeñarán las funciones que les encomienda la Ley Orgánica del Poder Judicial.
+Fe pública de otros servidores judiciales

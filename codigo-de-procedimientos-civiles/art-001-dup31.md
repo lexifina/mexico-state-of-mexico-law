@@ -1,9 +1,4 @@
-Artículo 1.31.- Los Tribunales competentes para conocer de un asunto, lo son también, para conocer de:
-I. Los medios preparatorios a juicio;
-II. Las providencias precautorias;
-III. Las excepciones;
-IV. La reconvención;
-V. Los incidentes;
-VI. La ejecución de la sentencia;
-VII. Las tercerías.
-Disponibilidad de los Tribunales
+Artículo 1.30.- Para que los Jueces y Tribunales tengan competencia, se requiere:
+I. Que el conocimiento del negocio en que intervengan, esté atribuido por la ley a la autoridad que ejerzan;
+II. Que les corresponda el conocimiento del negocio con preferencia a los demás Jueces o Tribunales de su mismo grado.
+Competencia por razón de conexión

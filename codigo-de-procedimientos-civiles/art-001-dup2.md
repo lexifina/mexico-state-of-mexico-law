@@ -1,2 +1,2 @@
 Artículo 1.2.- La jurisdicción civil sólo se ejercerá mediante instancia de parte, pero mientras se mantenga en ejercicio, corresponde al Juez desarrollar el proceso de oficio, salvo los casos en que la ley exija la petición de parte.
-Otras funciones judiciales
+Normas genéricas de la jurisdicción

@@ -1,6 +1,2 @@
-Artículo 1.69.- Será desechada, de plano, toda recusación:
-I. Por extemporánea;
-II. Si no se funda en causa de impedimento señalada en este Código;
-III. Si no se exhibe el máximo de multa para el caso de improcedencia de la recusación;
-IV. Si la causa debe constar plenamente, y no se exhibe documento que la acredite fehacientemente.
-Funcionario ante quien se interpone la recusación
+Artículo 1.68.- Si se declara improcedente la recusación, no se volverá a admitir otra, aunque el recusante proteste que la causa es superveniente o que no había tenido conocimiento de ella, salvo cuando haya cambio de personal contra quien sí procede.
+Casos de inadmisión de recusación

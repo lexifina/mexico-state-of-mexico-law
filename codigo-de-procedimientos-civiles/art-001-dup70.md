@@ -1,2 +1,6 @@
-Artículo 1.70.- La recusación se interpondrá ante el funcionario que conozca del negocio, quien dentro de cuarenta y ocho horas, enviará las constancias necesarias con un informe justificado a quien deba conocer de ella. El trámite se hará incidentalmente
-Pruebas admisibles para la recusación
+Artículo 1.69.- Será desechada, de plano, toda recusación:
+I. Por extemporánea;
+II. Si no se funda en causa de impedimento señalada en este Código;
+III. Si no se exhibe el máximo de multa para el caso de improcedencia de la recusación;
+IV. Si la causa debe constar plenamente, y no se exhibe documento que la acredite fehacientemente.
+Funcionario ante quien se interpone la recusación

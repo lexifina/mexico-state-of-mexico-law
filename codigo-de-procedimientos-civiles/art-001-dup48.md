@@ -1,2 +1,2 @@
-Artículo 1.48.- Cuando lo reclamado no tenga un valor determinado en la demanda, es competente el Juzgado de Primera Instancia.
-Competencia en rectificación de actas de estado civil
+Artículo 1.47.- Cuando se trate de arrendamiento o se demande el cumplimiento de una obligación consistente en prestaciones periódicas, se computará el importe de las pensiones de un año, a no ser que se tratare de prestaciones vencidas, en cuyo caso se estará a lo dispuesto por el artículo anterior.
+Competencia en asuntos de cuantía indeterminada

@@ -1,7 +1,2 @@
-Artículo 1.51.- El Juez que se considere incompetente por razón de materia, grado o cuantía puede inhibirse del conocimiento del negocio.
-Esta resolución es apelable sin efecto suspensivo.
-TITULO QUINTO
-Competencia Subjetiva, Excusas y Recusaciones
-CAPITULO I
-Garantía de Imparcialidad
-Impedimentos
+Artículo 1.50.- Cuando en el lugar hubiere varios Juzgados competentes del mismo ramo, cualquiera de ellos conocerá de los asuntos que les turne la Oficialía de Partes Común.
+Incompetencia de oficio sólo por materia, grado o cuantía

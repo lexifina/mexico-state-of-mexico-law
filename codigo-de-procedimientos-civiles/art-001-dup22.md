@@ -1,2 +1,2 @@
-Artículo 1.22.- La ejecución sólo se suspenderá, si se probare que un tercero no oído en juicio tiene la posesión en nombre propio del bien en que la sentencia o auto se fuere a ejecutar. Tal prueba debe consistir en copia fehaciente de resolución judicial ejecutoriada, que declare que tal posesión fue dada judicialmente o inscrita en el Registro Público de la Propiedad, o en resolución ejecutoriada que conceda el amparo o la suspensión al interesado en relación con la posesión a nombre propio del bien. En esos casos, el Ejecutor recogerá las pruebas que se le presenten y dará cuenta al Juez.
-Funciones del Notificador
+Artículo 1.21.- El Ejecutor no conocerá de acciones, excepciones, o promociones de los interesados o de terceros; se limitará a hacer constar las que fueren presentadas en el momento de la diligencia, para dar cuenta al Juez.
+Suspensión de la ejecución

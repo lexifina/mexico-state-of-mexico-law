@@ -1,2 +1,2 @@
-Artículo 1.44.- De las tercerías conocerá el Juez del principal; si el valor de la tercería excede de la competencia, se estará a lo dispuesto en el artículo anterior.
-Competencia para providencias precautorias urgentes
+Artículo 1.43.- Para conocer de la reconvención es Juez competente el que conozca de la demanda principal. Sólo cuando lo reclamado en la reconvención rebase el monto de la competencia del de Cuantía Menor, el asunto pasará al de Primera Instancia, siendo válido todo lo actuado hasta ese momento, asimismo será el órgano judicial competente para conocer de todas las prestaciones demandadas por las partes, no obstante que por razón de cuantía corresponda a otro.
+Competencia en las tercerías

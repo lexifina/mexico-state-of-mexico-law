@@ -1,2 +1,2 @@
-Artículo 1.17.- El cumplimiento de las resoluciones judiciales que tengan lugar fuera del Juzgado, cuando no estén encomendadas a otro servidor, estarán a cargo del Ejecutor. A falta de éste, desempeñará ese cargo el Secretario o el funcionario judicial que el Juez autorice en autos.
-Fe pública del Ejecutor
+Artículo 1.16.- Los Secretarios no deberán entregar a las partes, los expedientes para llevarlos fuera del Tribunal. Las locuciones dar vista o correr traslado sólo significan que los autos quedan en la Secretaría para que se impongan de ellos los interesados o se entreguen, en su caso, las copias.
+Diligencias fuera del Juzgado
