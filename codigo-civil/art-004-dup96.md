@@ -1,0 +1,2 @@
+Artículo 4.96.- En la sentencia que decrete el divorcio, se determinarán los derechos y obligaciones derivados de la patria potestad, respecto a la persona y bienes de sus hijos, teniendo en cuenta el interés particular de los menores, su salud, costumbres, educación y conservación de su patrimonio. El Juez acordará de oficio cualquier providencia que considere benéfica para los hijos o los sujetos a tutela.
+Revocación de las donaciones por divorcio

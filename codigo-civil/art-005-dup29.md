@@ -1,0 +1,2 @@
+Artículo 5.29.- Cuando en virtud de un acto jurídico el propietario entrega a otro un bien, concediéndole el derecho de retenerlo temporalmente en su poder en calidad de usufructuario, arrendatario, acreedor pignoraticio, depositario, comodatario u otro título análogo, los dos son poseedores. El que lo posee a título de propietario tiene una posesión originaria; el otro, una posesión derivada.
+Restitución de la posesión

@@ -1,0 +1,4 @@
+Artículo 3.13.- Toda persona que encontrare un expósito, deberá presentarlo ante el Agente del Ministerio Público, con los vestidos, valores o cualesquiera otros objetos encontrados con él, para iniciar la averiguación previa respectiva.
+El Ministerio Público una vez iniciada ésta, enviará de manera inmediata al expósito al Sistema para el Desarrollo Integral de la Familia del Estado, municipal, o en su caso, a una institución o asociación de asistencia social constituida legalmente para estos fines.
+El Ministerio Público ordenará a la persona o institución a cuyo cuidado quede el expósito, para que dentro de las setenta y dos horas siguientes, solicite el registro de nacimiento del menor ante el oficial del Registro Civil, remitiéndole a este último copia certificada de la averiguación.
+Otros obligados a solicitar levantamiento de acta de nacimiento

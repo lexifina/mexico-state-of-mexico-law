@@ -1,0 +1,2 @@
+Artículo 6.54.- La condición que se ha cumplido existiendo la persona a quien se impuso, se retrotrae al tiempo de la muerte del testador, y desde entonces deben abonarse los frutos de la herencia o legado, a menos que el testador haya dispuesto expresamente otra cosa.
+Condición considerada resolutoria

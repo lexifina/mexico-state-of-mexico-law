@@ -1,0 +1,6 @@
+Artículo 3.39.- Pueden pedir la rectificación o modificación de un acta del estado civil:
+I. Las personas de cuyo estado se trata;
+II. Las personas que se mencionan en el acta como relacionadas con el estado civil de alguno;
+III. Los herederos de las personas comprendidas en las dos fracciones anteriores;
+IV. Las demás personas a las que la ley concede expresamente esta facultad.
+Forma del juicio sobre rectificación o modificación

@@ -1,0 +1,2 @@
+Artículo 7.76.- El contrato es unilateral cuando una sola de las partes se obliga hacia la otra sin que ésta le quede obligada.
+Contrato bilateral
