@@ -1,0 +1,1 @@
+Artículo 8.8.- Los usuarios de la infraestructura vial deberán abstenerse de realizar acto alguno que pueda constituir un obstáculo para el tránsito de peatones y vehículos, poner en peligro a las personas o causar daño a la propiedad pública o privada.

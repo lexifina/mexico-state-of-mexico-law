@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 2 DE SEPTIEMBRE DE 2003)
+Artículo 12.2.- Las disposiciones de este Libro tienen como finalidad asegurar al Gobierno del Estado y a los municipios, las mejores condiciones disponibles en cuanto a precio, calidad, financiamiento, oportunidad y demás circunstancias pertinentes, en la contratación de la obra pública y servicios relacionados con la misma, en un marco de legalidad y transparencia.

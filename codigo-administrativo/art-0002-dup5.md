@@ -1,0 +1,1 @@
+Artículo 2.5.- El Instituto de Salud del Estado de México es un organismo público descentralizado, con personalidad jurídica y patrimonio propios, y funciones de autoridad, que tiene por objeto la prestación de los servicios de salud y el ejercicio del control sanitario en materia de salubridad local.

@@ -1,0 +1,1 @@
+ARTICULO SEPTIMO.- En tanto se expiden los reglamentos a que se refiere el artículo anterior, se aplicarán las disposiciones reglamentarias en vigor, que no sean contrarias a las previsiones de este Código.

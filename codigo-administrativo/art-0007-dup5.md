@@ -1,0 +1,5 @@
+Artículo 7.5.- Para efectos de este Libro se entiende por infraestructura vial al conjunto de vías jerarquizadas que facilitan la comunicación entre las diferentes áreas de la actividad económica y se clasifica en:
+I.Infraestructura vial primaria, aquella que está integrada por carreteras, pasos vehiculares, avenidas, calzadas y calles que comunican a dos o más municipios de la entidad, permitiendo los viajes de largo recorrido y aquellas que por sus características de ubicación, operación y vocación de servicio permitan la integración de la red vial primaria, así como las que comuniquen a instalaciones estratégicas estatales;
+II.Infraestructura vial local, aquella que está integrada por pasos vehiculares, avenidas, calzadas, calles y cerradas que permiten la comunicación al interior del municipio y la integración con la red vial primaria.
+La infraestructura vial primaria estará a cargo del Estado y la infraestructura vial local, de los municipios.
+La infraestructura vial podrá ser libre de peaje, y de cuota.
