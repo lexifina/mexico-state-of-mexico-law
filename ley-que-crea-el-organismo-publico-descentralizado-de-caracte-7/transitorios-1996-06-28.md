@@ -1,0 +1,4 @@
+G.G. 28 DE JUNIO DE 1996.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 148.- CON EL QUE SE REFORMAN Y ADICIONAN DIVERSOS ARTÍCULOS DE LA LEY QUE CREA AL ORGANISMO PÚBLICO DESCENTRALIZADO DE CARÁCTER ESTATAL DENOMINADO UNIVERSIDAD TECNOLÓGICA DE NEZAHUALCÓYOTL".]
+PRIMERO.- Publíquese el presente decreto en la Gaceta del Gobierno.
+SEGUNDO.- El presente decreto entrará en vigor al día siguiente de su publicación en la Gaceta del Gobierno.
