@@ -1,0 +1,4 @@
+(ADICIONADO, G.G. 29 DE DICIEMBRE DE 2000)
+Artículo 291 Bis.- La Secretaría es la encargada de la planeación, programación, presupuestación y evaluación de las actividades del Poder Ejecutivo y de la administración financiera y tributaria de la hacienda pública del Estado; en el caso de los municipios, estas tareas corresponden a la tesorería y a los órganos de planeación que en este ámbito operan.
+La Secretaría será la responsable de integrar y someter a consideración del Gobernador el proyecto del Presupuesto de Egresos del Estado, en el caso de los municipios lo integrará la tesorería y lo someterá a consideración del ayuntamiento.
+La evaluación del presupuesto de egresos, basará sus resultados en la relación que exista entre su ejercicio y el cumplimiento de las metas y objetivos de los programas.
