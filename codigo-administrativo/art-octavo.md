@@ -1,0 +1,1 @@
+ARTICULO OCTAVO.- Los procedimientos y recursos administrativos iniciados al amparo de las leyes que se derogan, que se encuentren en trámite al entrar en vigor el presente ordenamiento, se sustanciarán y resolverán conforme las disposiciones legales anteriores.

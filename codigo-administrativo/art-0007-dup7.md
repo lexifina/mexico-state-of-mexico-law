@@ -1,0 +1,1 @@
+Artículo 7.7.- El Estado podrá operar, construir, explotar, conservar, rehabilitar y dar mantenimiento a la infraestructura vial de su competencia directamente o a través de particulares mediante el otorgamiento de concesiones y contratos.

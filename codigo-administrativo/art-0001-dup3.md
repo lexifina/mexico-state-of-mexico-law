@@ -1,0 +1,4 @@
+Artículo 1.3.- La ignorancia de las disposiciones de este Código no excusa de su cumplimiento, pero la autoridad administrativa, teniendo en cuenta la falta de instrucción educativa de algunos individuos, su pobreza extrema, su apartamiento de las vías de comunicación o su condición indígena, podrá eximirlos de las sanciones en que hubieren incurrido por la falta de cumplimiento de las disposiciones que ignoraban o, de ser posible, concederles un plazo para que las cumplan, siempre que no se trate de disposiciones que afecten directamente al interés público.
+Si el infractor fuese jornalero, obrero o trabajador, no podrá ser sancionado con multa mayor del importe de su jornal o salario de un día. Tratándose de trabajadores no asalariados, la multa no excederá del equivalente a un día de su ingreso.
+TITULO SEGUNDO
+De las autoridades estatales y municipales

@@ -1,0 +1,2 @@
+Artículo 8.7.- En las vías públicas tienen preferencia de paso las ambulancias, las patrullas de policía, los vehículos del cuerpo de bomberos cuando circulen con la sirena y con la torreta encendida, así como los convoyes militares, el ferrocarril y cualquier tipo de transporte de alta capacidad o masivo. Los peatones y conductores tienen la obligación de cederles el paso.
+Los conductores no deberán seguir a los vehículos de emergencia, ni detenerse o estacionarse a una distancia que pueda significar riesgo o entorpecimiento de la actividad del personal de dichos vehículos.

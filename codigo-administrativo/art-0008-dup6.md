@@ -1,0 +1,1 @@
+Artículo 8.6.- La Secretaría General de Gobierno expedirá las normas técnicas relativas a las características de los equipos, sistemas, dispositivos y accesorios de seguridad con que deberán contar los vehículos que transiten por la infraestructura vial.
