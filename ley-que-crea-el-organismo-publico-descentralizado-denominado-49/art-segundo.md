@@ -1,0 +1,1 @@
+ARTICULO SEGUNDO.- El Consejo Directivo expedirá el Reglamento Interior del organismo denominado Servicios Educativos Integrados al Estado de México, dentro de los tres meses siguientes a la publicación de esta Ley, mientras tanto proveerá lo necesario para el despacho de los asuntos de su competencia.
