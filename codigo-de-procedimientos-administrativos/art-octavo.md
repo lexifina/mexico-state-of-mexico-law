@@ -1,0 +1,1 @@
+Artículo Octavo.- Los actuales magistrados del Tribunal de lo Contencioso Administrativo podrán ser jubilados de acuerdo a la ley de la materia, dentro de los 120 días naturales siguientes a la entrada en vigor de este ordenamiento. Recibirán las prestaciones que establezca la legislación, excepto que regresen a ejercer sus funciones.

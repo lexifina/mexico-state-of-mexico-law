@@ -1,0 +1,1 @@
+Artículo Séptimo.- Los procedimientos y recursos administrativos, así como los juicios contencioso administrativos que se encuentren en trámite al entrar en vigor este ordenamiento, se decidirán conforme a las disposiciones legales anteriores al mismo.
