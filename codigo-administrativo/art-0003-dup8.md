@@ -19,4 +19,4 @@ XVII.Promover la utilización de los medios de comunicación para acrecentar la 
 XVIII.Establecer políticas para el magisterio orientadas a la obtención de mejores condiciones académicas, profesionales, sociales, incluida la vivienda digna, culturales y económicas, de conformidad con lo dispuesto por la Ley General de Educación;
 XIX.Operar los sistemas de créditos y equivalencias que faciliten el tránsito de educandos entre las diferentes instituciones y planteles del sistema educativo estatal, de acuerdo a las disposiciones legales aplicables;
 XX.Imponer sanciones;
-XXI.Publicar en el periódico oficial Gaceta del Gobierno, los planes y programas de estudios que la autoridad educativa federal determine conforme a lo establecido por la Ley General.
+XXI. Publicar en el periódico oficial Gaceta del Gobierno, los planes y programas de estudios que la autoridad educativa federal determine conforme a lo establecido por la Ley General.
