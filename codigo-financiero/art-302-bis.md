@@ -1,3 +1,1 @@
-(ADICIONADO, G.G. 29 DE DICIEMBRE DE 2000)
-Artículo 302 Bis.- El Comité de Planeación para el Desarrollo Municipal deberá reflejar la complejidad del tejido social y la pluralidad de la sociedad del municipio. De manera indicativa podrá incluir miembros que representen las fuerzas económicas principales; a los grupos profesionales, educativos, académicos y culturales; a funcionarios de otros niveles de gobierno con asiento en el municipio; y personalidades sociales, políticas y culturales y a todos individuos (sic) que puedan aportar al desarrollo local.
-El Ejecutivo Estatal y los municipales en sus respectivos ámbitos de competencia, promoverán y convendrán en su caso, diversos mecanismos de inversión pública conjunta, asegurando de manera permanente la participación social en la planeación del desarrollo.
+Artículo 302 Bis.- (DEROGADO POR ARTICULO TERCERO TRANSITORIO DE LA LEY DE PLANEACION DEL ESTADO DE MEXICO Y MUNICIPIOS, G.G. 21 DE DICIEMBRE DE 2001)
