@@ -1,0 +1,1 @@
+Artículo Séptimo.- El Programa Estatal y los Programas Municipales deberán aprobarse dentro de los ciento ochenta días naturales siguientes a la instalación del Sistema Estatal de Protección y los Sistemas Municipales, respectivamente.

@@ -1,0 +1,1 @@
+Artículo Tercero.- El Sistema Estatal de Protección y los Sistemas Municipales de Protección deberán integrarse a más tardar dentro de los ciento ochenta días siguientes a la entrada en vigor de la presente Ley.
