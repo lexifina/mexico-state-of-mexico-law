@@ -1,0 +1,1 @@
+ARTICULO QUINTO.- El Secretario Técnico del Consejo deberá presentar el Programa de Desarrollo Integral de los Pueblos Indígenas del Estado de México al Consejo, dentro de los 45 días siguientes a la primera sesión ordinaria.

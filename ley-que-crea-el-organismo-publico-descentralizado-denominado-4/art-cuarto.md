@@ -1,0 +1,1 @@
+ARTICULO CUARTO.- El Consejo Estatal para el Desarrollo Integral de los Pueblos Indígenas del Estado de México expedirá su reglamento interno en un plazo no mayor de 90 días a partir de la fecha en que tenga lugar su primera sesión.
