@@ -1,0 +1,1 @@
+ARTICULO CUARTO.- En tanto el Consejo Universitario expida el Estatuto Universitario y la reglamentación a que alude la presente Ley, serán aplicables en todo lo que no se oponga a ésta, los reglamentos y disposiciones normativos emitidos por la Universidad.

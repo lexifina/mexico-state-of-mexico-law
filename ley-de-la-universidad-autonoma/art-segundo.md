@@ -1,0 +1,1 @@
+ARTICULO SEGUNDO.- Se abroga la Ley de la Universidad Autónoma del Estado de México, aprobada por Decreto número 70 de la XXXIX Legislatura del Estado, publicada en la "Gaceta del Gobierno" el 17 marzo de 1956.
