@@ -8,4 +8,8 @@ VI. Otorgar a personas o Instituciones Poder General Especial para representar a
 VII. Proponer convenios de coordinación con Dependencias o Instituciones que consideren necesarios para el cumplimiento de los objetivos del Sistema Municipal.
 VIII. Extender los nombramientos del personal del Sistema Municipal de acuerdo con las disposiciones jurídicas aplicables.
 IX. Proponer los planes y programas de trabajo del Sistema Municipal; y
-X. Todas las demás que sean necesarias para el cumplimiento de los objetivos del Sistema Municipal.
+(ADICIONADA, G.G. 27 DE JULIO DE 1994)
+X. Fomentar y apoyar a las organizaciones o asociaciones privadas cuyo objeto sea la prestación de servicios de asistencia social;
+(ADICIONADA, G.G. 27 DE JULIO DE 1994)
+XI. Autorizar la contratación de créditos, así como la aceptación de herencias, legados o donaciones, cuando éstas sean condicionadas o se refieran a bienes en litigio;
+XII. Todas las demás que sean necesarias para el cumplimiento de los objetivos del Sistema Municipal.
