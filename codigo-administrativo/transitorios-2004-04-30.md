@@ -1,0 +1,11 @@
+P.O. 30 DE ABRIL DE 2004.
+PRIMERO.- Publíquese el presente Decreto en el periódico oficial "Gaceta del Gobierno".
+SEGUNDO.- La Ley de Transparencia y Acceso a la Información Pública del Estado de México y las reformas al Código Administrativo del Estado de México y a la Ley de Documentos Administrativos e Históricos del Estado de México tendrán vigencia, hasta en tanto entren en vigor los párrafos segundo y tercero, adicionados al artículo 5 de la Constitución Política del Estado Libre y Soberano de México, aprobados por esta Legislatura.
+TERCERO.- Los Consejeros del Instituto deberán ser designados dentro de los tres meses siguientes al inicio de la vigencia de la presente Ley e iniciarán sus funciones un mes después de su designación.
+CUARTO.- El Poder Legislativo, el Poder Ejecutivo, el Poder Judicial, los Municipios, los órganos autónomos y los Tribunales Administrativos, emitirán las disposiciones reglamentarias correspondientes a la presente Ley, dentro de los seis meses siguientes al inicio de su vigencia.
+QUINTO.- Los Sujetos Obligados deberán nombrar a los responsables de las Unidades de Información, o su equivalente y, a los integrantes de los comités de información, así como designar a los servidores públicos habilitados a más tardar tres meses después de la designación de los Consejeros y del Consejero Presidente.
+La conformación de las estructuras a que se refiere esta disposición, deberá hacerse con los recursos humanos, materiales y financieros asignados, por lo que no deberá implicar erogaciones adicionales.
+SEXTO.- La información pública de oficio a que se refiere la presente Ley deberá estar disponible a más tardar un año después de la designación de los Consejeros y del Consejero Presidente.
+SEPTIMO.- Los Sujetos Obligados deberán elaborar el catálogo de información a que se refiere la presente Ley, a más tardar un año después de la designación de los Consejeros y del Consejero Presidente.
+OCTAVO.- Los particulares podrán presentar solicitudes de acceso a la información pública y corrección de datos personales en términos de la presente Ley, después de un año de la designación de los Consejeros y del Consejero Presidente.
+NOVENO.- El Instituto expedirá su reglamento interior dentro de los tres meses siguientes a su integración.
