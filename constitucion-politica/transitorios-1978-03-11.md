@@ -1,2 +1,2 @@
-G.G. 11 DE MARZO DE 1978.
+P.O. 11 DE MARZO DE 1978
 ARTICULO UNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en la "Gaceta del Gobierno del Estado".

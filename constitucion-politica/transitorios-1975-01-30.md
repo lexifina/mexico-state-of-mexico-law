@@ -1,6 +1,6 @@
-G.G. 30 DE ENERO DE 1975.
-ARTICULO 1o.- El presente Decreto entrará en vigor al día siguiente de su publicación en la "Gaceta del Gobierno" del Estado.
-ARTICULO 2o.- Los Magistrados del Tribunal Superior de Justicia actualmente en funciones quedarán sujetos a la inamovilidad a que se contraen las presentes reformas; para el efecto, el C. Gobernador del Estado hará las modificaciones conducentes en los nombramientos hechos a favor de aquéllos y aprobados por esta Legislatura.
-ARTICULO 3o.- Los Jueces de Primera Instancia quedarán sujetos a inamovilidad a partir de los nombramientos que se hagan con posterioridad al término del actual período constitucional, que concluye el 31 de diciembre de 1975.
-ARTICULO 4o.- En lo relativo a las faltas absolutas, temporales o accidentales, nombramientos y renuncias de Jueces, en el período comprendido de la fecha en que entren en vigor estas reformas hasta el 31 de diciembre de 1975 se sujetará a lo establecido por las disposiciones derogadas, en lo conducente.
-ARTICULO 5o.- Las Salas de nueva creación del Tribunal Superior de Justicia del Estado de México, empezarán a funcionar el día 15 de febrero del presente año, y para el efecto el Ciudadano Gobernador del Estado proveerá lo conducente.
+P.O. 30 DE ENERO DE 1975
+ARTÍCULO 1º. El presente Decreto entrará en vigor al día siguiente de su publicación en la "Gaceta del Gobierno" del Estado.
+ARTICULO 2º. Los Magistrados del Tribunal Superior de Justicia actualmente en funciones quedarán sujetos a la inamovilidad a que se contraen las presentes reformas; para el efecto, el C. Gobernador del Estado hará las modificaciones conducentes en los nombramientos hechos a favor de aquéllos y aprobados por esta Legislatura.
+ARTICULO 3º. Los Jueces de Primera Instancia quedarán sujetos a inamovilidad a partir de los nombramientos que se hagan con posterioridad al término del actual período constitucional, que concluye el 31 de diciembre de 1975.
+ARTICULO 4º. En lo relativo a las faltas absolutas, temporales o accidentales, nombramientos y renuncias de Jueces, en el período comprendido de la fecha en que entren en vigor estas reformas hasta el 31 de diciembre de 1975 se sujetará a lo establecido por las disposiciones derogadas, en lo conducente.
+ARTICULO 5º. Las Salas de nueva creación del Tribunal Superior de Justicia del Estado de México, empezarán a funcionar el día 15 de febrero del presente año, y para el efecto el Ciudadano Gobernador del Estado proveerá lo conducente.
