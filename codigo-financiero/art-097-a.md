@@ -15,7 +15,7 @@ V. Por el estudio técnico para validación y restitución del derecho de vía d
 (ACTUALIZADA EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
 VI. Por el estudio técnico de planos, proyectos y memorias de cálculo para la construcción de obras por cruzamientos superficiales, subterráneos o aéreos que atraviesen las autopistas de cuota estatales y zonas aledañas$3,140.
 (ACTUALIZADA EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
-VII. Por el estudio técnico de planos, proyectos y memorias de cálculo para la construcción de obras e instalaciones marginales subterráneas, que se realicen dentro de los derechos de vía de las autopistas de cuota estatales y zonas aledañas, por kilómetro lineal o fracción$808
+VII. Por el estudio técnico de planos, proyectos y memorias de cálculo para la construcción de obras e instalaciones marginales subterráneas, que se realicen dentro de los derechos de vía de las autopistas de cuota estatales y zonas aledañas, por kilómetro lineal o fracción$808.
 (REFORMADO PRIMER PARRAFO, G.G. 30 DE DICIEMBRE DE 2003)
 VIII. Por el estudio técnico del proyecto y aprobación de obras para paradores integrales de servicio en las autopistas de cuota estatales y zonas aledañas:
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
@@ -52,7 +52,7 @@ A). Por obras desarrolladas en un tramo de 1 kilómetro de longitud$13,862.
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
 B). Por obras desarrolladas en un tramo mayor de 1 kilómetro y hasta 5 kilómetros de longitud$15,253.
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
-C). Por obras desarrolladas en un tramo mayor de 5 kilómetros y hasta 20 kilómetros de longitud$17,990.
+C). Por obras desarrolladas en un tramo mayor de 5 kilómetros y hasta 20 kilómetros de longitud $17,990.
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
 D). Por obras desarrolladas en un tramo mayor de 20 kilómetros, por cada kilómetro adicional$180.
 (ACTUALIZADA EN SU TARIFA, G.G. 1 DE JULIO DE 2004)

@@ -19,7 +19,7 @@ d). Vagonetas$13,651.
 2. (DEROGADO, G.G. 30 DE DICIEMBRE DE 2003)
 3. Mixto:
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
-a). Camioneta de carga y de pasaje$11,100
+a). Camioneta de carga y de pasaje$11,100.
 B). Servicio discrecional de pasaje:
 1. Individual en automóvil de alquiler de sitio, de alquiler de radio servicio y de alquiler sin base, tipo intraurbano o suburbano:
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
@@ -59,14 +59,14 @@ c). Minibuses$6,937.
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
 d). Vagonetas$6,937.
 (ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-2. Alta capacidad o masivo$0.
+2. Alta capacidad o masivo0.
 3. Mixto:
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
 a). Camioneta mixta de carga y pasaje$5,550.
 B). Servicio discrecional de pasaje:
 1. Individual en automóvil de alquiler de sitio, de alquiler de radio servicio y de alquiler sin base, tipo intraurbano o suburbano:
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2004)
-a). Vehículo de cuatro puertas sin incluir la del portaequipaje, con un máximo de cinco asientos y un mínimo de cuatro, incluido la del operador. $6,937.
+a). Vehículo de cuatro puertas sin incluir la del portaequipaje, con un máximo de cinco asientos y un mínimo de cuatro, incluido la del operador.$6,937.
 Las tarifas establecidas en esta fracción, amparan la prórroga o cambio de la temporalidad de vigencia de las concesiones por un período hasta de diez años, pudiendo los contribuyentes solicitar la prestación de estos servicios por anualidad, para lo cual se pagarán los derechos correspondientes en forma proporcional al período solicitado, cuando así lo acuerde la autoridad administrativa.
 IV. Por el otorgamiento de permisos de:
 A). Servicio discrecional de pasaje en la modalidad especializado:
@@ -246,12 +246,13 @@ B). Modificación de rutas o área geográfica de operación del servicio públi
 6. Por el cambio de base en los lugares de origen o destino$1,372.
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
 C). Autorización de las tarifas a que se sujetará la operación del servicio público de transporte en las modalidades referidas en los incisos A) y B) anteriores, por cada vehículo$157.
-(ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
-D). Autorización de la cromática de los vehículos y equipos afectos a los servicios de transporte en las modalidades referidas en los incisos A) y B) anteriores, por cada vehículo$978.
+(REFORMADO, G.G. 22 DE DICIEMBRE DE 2004)
+D). Autorización de la cromática de los vehículos y equipos afectos a los servicios de transporte en las modalidades referidas en los incisos A) y B) anteriores, por cada vehículo$505
 E). (DEROGADO, G.G. 30 DE DICIEMBRE DE 2003)
-(REFORMADA, G.G. 30 DE DICIEMBRE DE 2003)
-VIII. Por la expedición inicial de licencias para conducir vehículos automotores:
-A). Conductor de ómnibus
+(REFORMADO PRIMER PARRAFO, G.G. 22 DE DICIEMBRE DE 2004)
+VIII. Por la expedición inicial de licencias o de permisos para conducir vehículos automotores:
+(REFORMADO PRIMER PARRAFO, G.G. 22 DE DICIEMBRE DE 2004)
+A). Chofer para servicio público:
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
 1. Por cuatro años de vigencia$1,047.
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
@@ -260,7 +261,8 @@ A). Conductor de ómnibus
 3. Por dos años de vigencia$589.
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
 4. Por un año de vigencia$441.
-B). Chofer:
+(REFORMADO PRIMER PARRAFO, G.G. 22 DE DICIEMBRE DE 2004)
+B). Chofer para servicio particular:
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
 1. Por cuatro años de vigencia$777.
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
@@ -269,6 +271,7 @@ B). Chofer:
 3. Por dos años de vigencia$437.
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
 4. Por un año de vigencia$327.
+(REFORMADO, G.G. 30 DE DICIEMBRE DE 2003)
 C). Automovilista:
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
 1. Por cuatro años de vigencia$596.
@@ -278,6 +281,7 @@ C). Automovilista:
 3. Por dos años de vigencia$335.
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
 4. Por un año de vigencia$251.
+(REFORMADO, G.G. 30 DE DICIEMBRE DE 2003)
 D). Motociclista:
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
 1. Por cuatro años de vigencia$596.
@@ -287,25 +291,21 @@ D). Motociclista:
 3. Por dos años de vigencia$335.
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
 4. Por un año de vigencia$251.
-E). Por la expedición de permiso temporal para manejar:
-1. Por dos años
-(ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
-a). Alta$ 335.
-2. Por un año
-(ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
-a). Alta$ 251.
-(ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
-b). Resello$ 251.
-(ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
-F). Por la expedición de permiso temporal para aprendizaje de manejo de automóvil particular$1,191.
-El pago de los anteriores conceptos incluye exámenes médico, psicométrico y vial.
-(ACTUALIZADA, G.G. 1 DE JULIO DE 2004)
-IX. Duplicado de licencias, con la vigencia del documento expedido originalmente y con la leyenda de "Duplicado"$169.
-X. Por la expedición de medios de identificación para manejar vehículos y equipos afectos al servicio público de transporte:
-(ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
-A). Por la expedición de la tarjeta de identificación personal para conductores de vehículos de servicio público de pasajeros$90.
-(ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
-B). Por la reposición de la tarjeta de identificación personal para conductores de vehículos de servicio público de pasajeros$66.
+(REFORMADO, G.G. 22 DE DICIEMBRE DE 2004)
+E). Por la expedición de permiso provisional de practica "B".
+1. Por dos años de vigencia$342.
+2. Por un año de vigencia$256.
+(REFORMADO, G.G. 22 DE DICIEMBRE DE 2004)
+F). Por la expedición de permiso provisional de practica "A".$1,215.
+(REFORMADO, G.G. 22 DE DICIEMBRE DE 2004)
+El pago de los anteriores conceptos incluye en su caso, examen de conocimientos al Reglamento de Tránsito del Estado de México.
+(REFORMADA, G.G. 22 DE DICIEMBRE DE 2004)
+IX. Duplicado de licencias y permisos, con la vigencia del documento expedido originalmente y con la leyenda de "Duplicado"$172.
+(REFORMADA, G.G. 22 DE DICIEMBRE DE 2004)
+X. Por la expedición de medios de identificación para manejar vehículos automotores y equipos afectos al servicio público de transporte:
+A). Por la expedición de la tarjeta de identificación personal para operadores de transporte público, por año$ 698.
+B). Por el duplicado de la tarjeta de identificación personal para operadores de transporte público con la vigencia del documento expedido originalmente y con la leyenda "Duplicado"$ 510.
+La expedición de la tarjeta de identificación personal incluye exámenes medico, psicométrico y toxicológico.
 (REFORMADA, G.G. 30 DE DICIEMBRE DE 2003)
 XI. Por los servicios de control vehicular se pagarán los siguientes derechos:
 A). Servicio público de transporte:
@@ -335,10 +335,10 @@ Con capacidad de carga de 5001 a 10,000 Kg.$874.
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
 Con capacidad de carga de 10,001 Kg., en adelante$1,190.
 d). Para motocicleta:
-(ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
-Cilindrada 350 c.c.$253.
-(ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
-Cilindrada 351 c.c., en adelante$304.
+(REFORMADA, G.G. 22 DE DICIEMBRE DE 2004)
+Cilindrada 350 c.c.$332
+(REFORMADA, G.G. 22 DE DICIEMBRE DE 2004)
+Cilindrada 351 c.c. en adelante$400
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
 e). Para auto antiguo$845.
 2. Por refrendo anual:
@@ -362,11 +362,12 @@ Cilindrada 350 c.c.$253.
 Cilindrada 351 c.c., en adelante$304.
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
 e). Para auto antiguo$845.
-(ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
-3. Por el duplicado o reposición de la tarjeta de circulación$105.
-(ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
-4. Por cambio de propietario o reposición de calcomanía$108.
-5. Por la expedición de permiso para circular sin placas, sin tarjeta de circulación y sin calcomanía hasta por treinta días:
+(REFORMADO, G.G. 22 DE DICIEMBRE DE 2004)
+3. Por el duplicado o reposición de la tarjeta de circulación$189
+(REFORMADO, G.G. 22 DE DICIEMBRE DE 2004)
+4. Por cambio de propietario o reposición de calcomanía$189
+(REFORMADO PRIMER PARRAFO, G.G. 22 DE DICIEMBRE DE 2004)
+5. Por la expedición de permiso para circular sin placas y tarjeta de circulación hasta por treinta días:
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
 a). Para vehículos de uso particular$105.
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
@@ -378,8 +379,8 @@ d). Para motocicleta$102.
 6. Por la expedición del permiso para transportar carga en vehículo particular:
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
 a). Por ciento ochenta días$519.
-(ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
-b). Para motocicletas y motonetas, por cada 30 días$44.
+(REFORMADO, G.G. 22 DE DICIEMBRE DE 2004)
+b). Para motocicletas y motonetas, por cada 30 días$78
 7. Por el trámite de baja de vehículos:
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
 a). Particular$212.
@@ -392,6 +393,10 @@ e). Remolque emplacado en otra entidad federativa$0.
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
 f). Motocicleta y motoneta$317.
 g). Motocicleta y motoneta emplacada en otra entidad federativa$0.
+(ADICIONADO, G.G. 22 DE DICIEMBRE DE 2004)
+8. Por la expedición del permiso para agencia autorizada:$107.
+(ADICIONADO, G.G. 22 DE DICIEMBRE DE 2004)
+9. Por la expedición del permiso en demostración y traslado:$107.
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
 XII. Expedición de permiso de transporte público en otras modalidades$555.
 (REFORMADA, G.G. 30 DE DICIEMBRE DE 2003)
@@ -402,7 +407,8 @@ A). Por la práctica anual de revista a vehículos particulares de carga$268.
 B). Por la reposición del tarjetón de revista anual$115.
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
 C). Por los servicios de certificación de extravío, mutilación o deterioro de documentos que amparen la circulación del vehículo$38.
-XIV. Expedición de autorización o su refrendo anual para prestar el servicio público de autotransporte colectivo de pasajeros en rutas fijas dentro del territorio del Estado, a concesionarios del Gobierno del Distrito Federal; personas físicas o personas morales, unidades o empresas económicas:
+(REFORMADO PRIMER PARRAFO, G.G. 22 DE DICIEMBRE DE 2004)
+XIV. Expedición de autorización o su refrendo anual para prestar el servicio público de autotransporte colectivo de pasajeros en rutas fijas dentro del territorio del Estado, a concesionarios del Gobierno del Distrito Federal; personas físicas o personas jurídicas colectivas, unidades o empresas económicas.
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)
 A). Autorización$7,243.
 (ACTUALIZADO EN SU TARIFA, G.G. 1 DE JULIO DE 2004)

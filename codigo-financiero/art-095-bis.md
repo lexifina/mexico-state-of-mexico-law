@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 22 DE DICIEMBRE DE 2004)
+Artículo 95 Bis.- Por los servicios prestados por la Secretaría de Agua, Obra Pública e Infraestructura para el Desarrollo, relativos a la supervisión y control necesarios para la ejecución de obra pública, se cobrará un 2% por concepto de derechos a las compañías contratistas con quien se celebren contratos de obra pública o de servicios relacionados con la misma, sobre el importe de cada una de las estimaciones de trabajo generadas.
