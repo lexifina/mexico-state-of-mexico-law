@@ -20,6 +20,6 @@ XVIII.Desarrollar, actualizar y difundir el Atlas de Riesgos del Estado de Méxi
 XIX.Expedir y vigilar la aplicación de las normas técnicas estatales y demás disposiciones en materia de protección civil;
 XX.Recibir, evaluar y aprobar los programas de las unidades internas de protección civil;
 XXI.Impulsar y difundir la cultura de protección civil en el Estado. Para tal efecto, la Secretaría General de Gobierno difundirá entre las autoridades estatales y municipales, y la población en general los resultados de los trabajos que se realicen, así como la información que tienda a la generación, desarrollo y consolidación de una cultura en la materia;
-XXII.Las demás que le confieren este Libro y las demás disposiciones legales aplicables.
+XXII. Las demás que le confieren este Libro y las demás disposiciones legales aplicables.
 CAPITULO TERCERO
 Del Consejo Estatal de Protección Civil
