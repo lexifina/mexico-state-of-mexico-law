@@ -16,8 +16,7 @@ b). Autobuses de 2ª . clase$13,121.
 c). Minibuses$13,121.
 (ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
 d). Vagonetas$13,121.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-2. Alta capacidad o masivo0.
+2. (DEROGADO, G.G. 30 DE DICIEMBRE DE 2003)
 3. Mixto:
 (ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
 a). Camioneta de carga y de pasaje$10,669.
@@ -28,8 +27,7 @@ a). Vehículo de cuatro puertas sin incluir la del portaequipaje, con un máximo
 C). Por estudios técnicos y económicos, a solicitud de los particulares, para el otorgamiento de concesiones, ampliación de ruta y territorio de operación, referidos a:
 (ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
 1. Concesiones para servicio de transporte de pasajeros.$1,066.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-2. Alta capacidad o masivo0.
+2. (DEROGADO, G.G. 30 DE DICIEMBRE DE 2003)
 II. Por la cesión de derechos o cambio de titular de la concesión, que se refieran a las modalidades:
 A). Servicio regular de pasaje:
 1. Colectivo:
@@ -41,8 +39,7 @@ b). Autobuses de 2ª. Clase $10,669.
 c). Minibuses$10,669.
 (ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
 d). Vagonetas$10,496.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-2. Alta capacidad o masiva0.
+2. (DEROGADO, G.G. 30 DE DICIEMBRE DE 2003)
 3. Mixto:
 (ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
 a). Camioneta mixta de carga y pasaje$8,535.
@@ -118,24 +115,21 @@ F). Los servicios conexos al servicio público de transporte:
 2. Por el otorgamiento de permiso para el establecimiento de bahías de ascenso y descenso$1,294.
 (ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
 3. Por el otorgamiento de permiso para el establecimiento de cobertizos$2,156.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-4. Por el otorgamiento de permiso para el establecimiento de estaciones de transferencia modal $4,312.
+4. (DEROGADO, G.G. 30 DE DICIEMBRE DE 2003)
 (ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
 5. Por la realización de estudios técnicos para el establecimiento de terminales de pasaje$4,312.
 (ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
 6. Por la realización de estudios técnicos para el establecimiento de bahías de ascenso y descenso$1,294.
 (ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
 7. Por la realización de estudios técnicos para el establecimiento de cobertizos$2,156.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-8. Por la realización de estudios técnicos para el establecimiento de estaciones de transferencia modal$4,312.
+8. (DEROGADO, G.G. 30 DE DICIEMBRE DE 2003)
 (ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
 9. Por la realización de estudios técnicos y económicos a solicitud de los particulares, para el otorgamiento de concesiones y permisos en todas sus modalidades, por unidad vehicular$1,066.
 (ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
 10. Por la realización de estudios técnicos y económicos a solicitud de los particulares, para la autorización de ruta o derrotero, enlace, enrolamiento, sitios, bases o lanzaderas$2,667.
 (ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
 11. Para la realización de estudios técnicos y económicos a solicitud de los particulares, para la modificación de ruta o derrotero, enlace, enrolamiento, sitios, bases o lanzaderas$2,667.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-12. Por la realización de estudios técnicos y económicos a solicitud de los particulares para el otorgamiento o renovación de permisos de guarda y custodia de vehículos$2,667.
+12. (DEROGADO, G.G. 30 DE DICIEMBRE DE 2003)
 G). La instalación y explotación de anuncios publicitarios en el transporte:
 (ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
 1. Por la obtención del permiso para la instalación de anuncios publicitarios$2,155.
@@ -160,15 +154,17 @@ a). Autobús$1,280.
 b). Minibús$1,280.
 (ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
 c). Vagoneta$1,024.
-2. El servicio de transporte de pasaje especializado de turismo e individual en vehículo de propulsión no mecánica:
+(REFORMADO PRIMER PARRAFO, G.G. 30 DE DICIEMBRE DE 2003)
+2. El servicio de transporte de pasaje especializado o individual.
 (ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
 a). Autobús$2,561.
 (ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
 b). Minibús$2,561.
 (ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
 c). Vagonetas$1,706.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-d). Bicitaxis$216.
+(REFORMADO, G.G. 30 DE DICIEMBRE DE 2003)
+d). Vehículos de propulsión no mecánica,
+bicitaxis$216.
 B). El servicio de carga en general y especializado de carga:
 (ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
 1. Capacidad hasta de 3000 kgs.$800.
@@ -188,8 +184,7 @@ D). Los servicios conexos:
 2. Bahías de ascenso y descenso$1,510.
 (ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
 3. Cobertizos$1,294.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-4. Estaciones de transferencia modal$4,312.
+4. (DEROGADO, G.G. 30 DE DICIEMBRE DE 2003)
 E). La instalación de anuncios publicitarios en el transporte:
 (ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
 1. Por la cesión de derechos o cambio de titular del permiso para la instalación de anuncios publicitarios$1,078.
@@ -230,8 +225,7 @@ D). Los servicios conexos, por el establecimiento de:
 2. Bahías de ascenso y descenso$776.
 (ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
 3. Cobertizos$648.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-4. Estaciones de transferencia modal$2,156.
+4. (DEROGADO, G.G. 30 DE DICIEMBRE DE 2003)
 (ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
 E). El permiso para la instalación de anuncios publicitarios: $2,156.
 En la prorroga o cambio de la temporalidad de vigencia de permisos para servicios de arrastre y de salvamento, depósito de vehículos y servicio de transporte especializado, que en términos del Reglamento de Transporte Público y Servicios Conexos del Estado de México, opten por la certificación de calidad respecto de dichos servicios y los bienes afectos a los mismos, acreditándolo debidamente ante la autoridad de transporte, se encontrarán exentos del pago que se contempla en esta fracción.
@@ -256,75 +250,36 @@ B). Modificación de rutas o área geográfica de operación del servicio públi
 C). Autorización de las tarifas a que se sujetará la operación del servicio público de transporte en las modalidades referidas en los incisos A) y B) anteriores, por cada vehículo$151.
 (ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
 D). Autorización de la cromática de los vehículos y equipos afectos a los servicios de transporte en las modalidades referidas en los incisos A) y B) anteriores, por cada vehículo$940.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-E). Autorización para la construcción, conservación y explotación de servicios complementarios que coadyuven al funcionamiento de transporte de alta capacidad o masivo, así como la ocupación de espacios para servicios comerciales que se instalen al interior y exterior de las estaciones$0.
-VIII. Por la expedición inicial de licencias para conducir vehículos o equipo de transporte:
-A). Licencia para ejercer la profesión de operador de equipo de transporte de alta capacidad o masivo:
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-1. Por cinco años de vigencia$1,294.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-2. Por cuatro años de vigencia$1,006.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-3. Por tres años de vigencia$753.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-4. Por dos años de vigencia$566.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-5. Por un año de vigencia$424.
-B). Licencia para ejercer la profesión de conductor de autobús:
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-1. Por cinco años de vigencia$1,294.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-2. Por cuatro años de vigencia$1,006.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-3. Por tres años de vigencia$753.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-4. Por dos años de vigencia$566.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-5. Por un año de vigencia$424.
-C). Licencia para ejercer la profesión de conductor de vehículos para transporte colectivo con capacidad intermedia mínima de 11 pasajeros:
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-1. Por cinco años de vigencia$862.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-2. Por cuatro años de vigencia$747.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-3. Por tres años de vigencia$561.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-4. Por dos años de vigencia$420.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-5. Por un año de vigencia$315.
-D). Licencia para ejercer la profesión de conductor de automóvil de alquiler:
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-1. Por cinco años de vigencia$862.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-2. Por cuatro años de vigencia$747.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-3. Por tres años de vigencia$561.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-4. Por dos años de vigencia$420.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-5. Por un año de vigencia$315.
-E). Licencia para ejercer la profesión de conductor-operador de vehículos-grúa:
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-1. Por cinco años de vigencia$862.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-2. Por cuatro años de vigencia$747.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-3. Por tres años de vigencia$561.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-4. Por dos años de vigencia$420.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-5. Por un año de vigencia$315.
-F). Licencia para ejercer la profesión de conductor de vehículos de carga:
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-1. Por cinco años de vigencia$862.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-2. Por cuatro años de vigencia$747.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-3. Por tres años de vigencia$561.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-4. Por dos años de vigencia$420.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-5. Por un año de vigencia$315.
+E). (DEROGADO, G.G. 30 DE DICIEMBRE DE 2003)
+(REFORMADA, G.G. 30 DE DICIEMBRE DE 2003)
+VIII. Por la expedición inicial de licencias para conducir vehículos automotores:
+A). Conductor de ómnibus
+1. Por cuatro años de vigencia$1,026.
+2. Por tres años de vigencia$768.
+3. Por dos años de vigencia$577.
+4. Por un año de vigencia$432.
+B). Chofer:
+1. Por cuatro años de vigencia$762.
+2. Por tres años de vigencia$572.
+3. Por dos años de vigencia$428.
+4. Por un año de vigencia$321.
+C). Automovilista:
+1. Por cuatro años de vigencia$584.
+2. Por tres años de vigencia$439.
+3. Por dos años de vigencia$328.
+4. Por un año de vigencia$246.
+D). Motociclista:
+1. Por cuatro años de vigencia$584.
+2. Por tres años de vigencia$439.
+3. Por dos años de vigencia$328.
+4. Por un año de vigencia$246.
+E). Por la expedición de permiso temporal para manejar:
+1. Por dos años
+a). Alta$ 328.
+2. Por un año
+a). Alta$ 246.
+b). Resello$ 246.
+F). Por la expedición de permiso temporal para aprendizaje de manejo de automóvil particular$1,168.
 El pago de los anteriores conceptos incluye exámenes médico, psicométrico y vial.
 (ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
 IX. Duplicado de licencias y permisos, con la vigencia del documento expedido originalmente y con la leyenda de "Duplicado"$163.
@@ -333,21 +288,64 @@ X. Por la expedición de medios de identificación para manejar vehículos y equ
 A). Por la expedición de la tarjeta de identificación personal para conductores de vehículos de servicio público de pasajeros$86.
 (ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
 B). Por la reposición de la tarjeta de identificación personal para conductores de vehículos de servicio público de pasajeros$64.
+(REFORMADA, G.G. 30 DE DICIEMBRE DE 2003)
 XI. Por los servicios de control vehicular se pagarán los siguientes derechos:
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-A). Por la expedición o reposición, en su caso, de placas, tarjeta de circulación y calcomanía para vehículos de servicio público en todas sus clases, modalidades y tipos$691.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-B). Por refrendo anual para vehículos afectos a la prestación del servicio público del transporte en todas sus clases, modalidades y tipos, a excepción del servicio de carga en general y especializado de carga$499.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-C). Por cambio de propietario o reposición de calcomanía de vehículo afectos a la prestación del servicio público de transporte en todas sus modalidades y tipos$101.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-D). Cambio de vehículo afecto a la prestación del servicio público de transporte, en todas sus modalidades$266.
-(ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
-E). Por el trámite de baja de placas para vehículos afectos a la prestación del servicio público de transporte en todas sus clases, modalidades y tipos$204.
+A). Servicio público de transporte:
+1. Por la expedición o reposición, en su caso, de placas, tarjeta de circulación y calcomanía para vehículos de servicio público en todas sus clases, modalidades y tipos$705.
+2. Por refrendo anual para vehículos afectos a la prestación del servicio público del transporte en todas sus clases, modalidades y tipos, a excepción del servicio de carga en general y especializado de carga$509.
+3. Por cambio de propietario o reposición de calcomanía de vehículo afectos a la prestación del servicio público de transporte en todas sus modalidades y tipos$103.
+4. Cambio de vehículo afecto a la prestación del servicio público de transporte, en todas sus modalidades$271.
+5. Por el trámite de baja de placas para vehículos afectos a la prestación del servicio público de transporte en todas sus clases, modalidades y tipos$208.
+B). Transporte particular y comercial:
+1. Por la expedición inicial o reposición de placas, tarjeta de circulación y calcomanía:
+a). Para vehículos de servicio particular y capacidades diferentes $332.
+b). Para vehículos destinados a carga mercantil$574.
+c). Para remolques:
+Con capacidad de carga de hasta 1,000 Kg.$600.
+Con capacidad de carga de 1,001 a 5,000 Kg.$717.
+Con capacidad de carga de 5001 a 10,000 Kg.$857.
+Con capacidad de carga de 10,001 Kg., en adelante$1,167.
+d). Para motocicleta:
+Cilindrada 350 c.c.$248.
+Cilindrada 351 c.c., en adelante$298.
+e). Para auto antiguo$828.
+2. Por refrendo anual:
+a). Para vehículos de uso particular y capacidades diferentes$152.
+b). Para vehículos destinados a carga mercantil$430.
+c). Para remolques:
+Con capacidad de carga de hasta 1,000 Kg.$600.
+Con capacidad de carga de 1,001 a 5,000 Kg.$717.
+Con capacidad de carga de 5001 a 10,000 Kg.$857.
+Con capacidad de carga de 10,001 Kg., en adelante$1,167.
+d). Para motocicleta:
+Cilindrada 350 c.c.$248.
+Cilindrada 351 c.c., en adelante$298.
+e). Para auto antiguo$828.
+3. Por el duplicado o reposición de la tarjeta de circulación$103.
+4. Por cambio de propietario o reposición de calcomanía$106.
+5. Por la expedición de permiso para circular sin placas, sin tarjeta de circulación y sin calcomanía hasta por treinta días:
+a). Para vehículos de uso particular $103.
+b). Para vehículos destinados a carga mercantil$208.
+c). Para remolques$208.
+d). Para motocicleta$100.
+6. Por la expedición del permiso para transportar carga en vehículo particular:
+a). Por ciento ochenta días$509.
+b). Para motocicletas y motonetas, por cada 30 días$43.
+7. Por el trámite de baja de vehículos:
+a). Particular$208.
+b). Vehículos de carga mercantil$311.
+c). Particular emplacado en otra entidad federativa$0.
+d). Remolque$297.
+e). Remolque emplacado en otra entidad federativa$0.
+f). Motocicleta y motoneta$311.
+g). Motocicleta y motoneta emplacada en otra entidad federativa$0.
 (ACTUALIZADA, G.G. 30 DE JUNIO DE 2003)
 XII. Expedición de permiso de transporte público en otras modalidades$533.
-(ACTUALIZADA, G.G. 30 DE JUNIO DE 2003)
-XIII. Por la expedición de copias certificadas de documentos que obran en los archivos de la dependencia, por foja$106.
+(REFORMADA, G.G. 30 DE DICIEMBRE DE 2003)
+XIII. Por otros servicios relativos al transporte particular y comercial, se pagarán los siguientes derechos:
+A). Por la práctica anual de revista a vehículos particulares de carga$263.
+B). Por la reposición del tarjetón de revista anual$113.
+C). Por los servicios de certificación de extravío, mutilación o deterioro de documentos que amparen la circulación del vehículo$37.
 XIV. Expedición de autorización o su refrendo anual para prestar el servicio público de autotransporte colectivo de pasajeros en rutas fijas dentro del territorio del Estado, a concesionarios del Gobierno del Distrito Federal; personas físicas o personas morales, unidades o empresas económicas:
 (ACTUALIZADO, G.G. 30 DE JUNIO DE 2003)
 A). Autorización$6,962.

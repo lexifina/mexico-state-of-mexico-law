@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 30 DE DICIEMBRE DE 2003)
+Artículo 327-E.- El titular del Ejecutivo por conducto de la Secretaría, enviará a la Legislatura informes mensuales preliminares del comportamiento de los ingresos y egresos y, trimestralmente en abril, julio, octubre y enero del año siguiente, del avance programático presupuestal de las dependencias y entidades públicas y los correspondientes al cierre del ejercicio, se harán con la cuenta pública, dichos informes reflejarán las incidencias presupuestales y programáticas sucedidas en el periodo que se reporta.
