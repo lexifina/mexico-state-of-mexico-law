@@ -9,4 +9,7 @@ V.- Impulsar, promover o gestionar la creación de instituciones o establecimien
 (REFORMADA, G.G. 27 DE JULIO DE 1994)
 VI.- Prestar servicios jurídicos y de orientación social a menores, senectos y discapacitados carentes de recursos económicos, así como a la familia para su integración y bienestar.
 VII. Procurar permanentemente la adecuación de los objetivos y programas del Sistema Municipal y los que lleve a cabo el D.I.F. Estatal, a través de Acuerdos, Convenios o cualquier figura jurídica, encaminados a la obtención del bienestar social;
-VIII. Los demás que le encomienden las Leyes.
+(REFORMADA, G.G. 11 DE DICIEMBRE DE 2002)
+VIII. Impulsar acciones para promover el desarrollo humano integral de los adultos mayores, coadyuvando para que sus distintas capacidades sean valoradas y aprovechadas en el desarrollo comunitario, económico y social;
+(ADICIONADA, G.G. 11 DE DICIEMBRE DE 2002)
+IX.- Los demás que le encomienden las Leyes.
