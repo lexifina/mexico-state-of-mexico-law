@@ -1,0 +1,3 @@
+G.G. 8 DE MARZO DE 1984.
+DECRETO NUMERO 233, POR EL QUE SE REFORMAN LOS ARTICULOS 38 EN SU PRIMER PARRAFO Y SU FRACCION I; Y EL 45 EN SU PRIMER PARRAFO DE LA CONSTITUCION POLITICA LOCAL.
+ARTICULO UNICO.- Este Decreto entrará en vigor el día de su publicación en el Periódico Oficial "Gaceta del Gobierno" del Estado.
