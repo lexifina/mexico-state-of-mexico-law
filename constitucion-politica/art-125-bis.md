@@ -1,3 +1,0 @@
-(ADICIONADO, P.O. 21 DE ABRIL DE 1992)
-Art. 125 Bis.- En el Estado de México la protección de los derechos humanos que otorga el orden jurídico, será competencia del Organismo que la Legislatura establezca para tal efecto, el cual conocerá de quejas por violación a estos derechos por actos u omisiones de naturaleza administrativa de cualquier autoridad o servidor público estatal o municipal, con excepción de los del Poder Judicial. Este Organismo formulará recomendaciones públicas no vinculatorias así como denuncias y quejas ante las autoridades respectivas.
-El Organismo no será competente tratándose de asuntos electorales, laborales o jurisdiccionales.
