@@ -1,1 +1,0 @@
-Artículo Quinto.- Los Municipios deben expedir las disposiciones reglamentarias aplicables en un plazo no mayor a los ciento ochenta días naturales, contados a partir de la entrada en vigor de la presente Ley.

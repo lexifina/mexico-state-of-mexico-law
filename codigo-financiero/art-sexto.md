@@ -1,1 +1,0 @@
-Artículo Sexto.- En su primera sesión, el Presidente del Sistema Estatal de Protección someterá a consideración y aprobación de dicho sistema los lineamientos para su integración, organización y funcionamiento, así como la designación del Titular de la Secretaría Ejecutiva.

@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 16 DE ABRIL DE 2021)
-Artículo 48 BIS. Las autoridades del Estado y sus Municipios, en el ámbito de sus respectivas competencias, promoverán particularmente en madres, padres y sociedad en general, los principios nutricionales básicos para el sano desarrollo de las niñas y niños menores de 12 años, procurando alejarlos del consumo de alimentos y bebidas con alto contenido en sodio, azúcar, grasas saturadas y grasas trans.

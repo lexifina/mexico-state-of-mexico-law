@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 31 DE JULIO DE 2002)
+Artículo 265-A.- El Estado por conducto del Gobernador a través de la Secretaría, podrá afectar como fuente o garantía de pago, o ambas, de las obligaciones que contraiga, incluyendo la emisión de valores representativos de un pasivo a su cargo para su colocación en el mercado de valores, sus ingresos derivados de contribuciones, productos, aprovechamientos y accesorios, así como las participaciones derivadas del Sistema Nacional de Coordinación Fiscal.

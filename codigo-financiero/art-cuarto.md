@@ -1,1 +1,0 @@
-Artículo Cuarto.- En la esfera de su competencia, las disposiciones derivadas de la presente Ley deberán ser expedidas por el Ejecutivo en un plazo no mayor a los ciento ochenta días naturales, contados a partir de la entrada en vigor de la presente Ley.

@@ -1,1 +1,0 @@
-Artículo Décimo.- El Congreso del Estado, a propuesta del Ejecutivo Estatal, establecerá una partida presupuestal para coadyuvar en la implementación de las adecuaciones referidas en el transitorio anterior y la operación de los Centros de Asistencia Social dependientes del Sistema.

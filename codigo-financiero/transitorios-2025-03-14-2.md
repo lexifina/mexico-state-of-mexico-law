@@ -1,3 +1,0 @@
-P.O. 14 DE MARZO DE 2025.
-[N. DE E. TRANSITORIO DEL "DECRETO NO. 52 MEDIANTE EL CUAL SE APRUEBA LA REFORMA A LOS ARTÍCULOS 4, 6, 20, 24, 41, 42, 92, 97 Y 105 DE LA LEY PARA LA PROTECCIÓN Y DEFENSA DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE BAJA CALIFORNIA".]
-ÚNICO.- Las presentes reformas entrarán en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Baja California.

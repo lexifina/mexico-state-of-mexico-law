@@ -1,1 +1,0 @@
-Artículo Noveno.- Los Centros de Asistencia Social que se encuentren operando con antelación a la entrada en vigor de la Ley General de los Derechos de las Niñas, Niños y Adolescentes, deben realizar las adecuaciones conducentes dentro del plazo contemplado en el transitorio décimo primero del decreto que expide ese ordenamiento.
