@@ -1,0 +1,3 @@
+G.G. 8 DE ENERO DE 1944.
+DECRETO NUMERO 30, POR EL QUE SE REFORMA LA FRACCION XXII DEL ARTICULO 89 DE LA CONSTITUCION POLITICA LOCAL.
+ARTICULO SEGUNDO.- Este Decreto entrará en vigor el día de su publicación en la "Gaceta del Gobierno".
