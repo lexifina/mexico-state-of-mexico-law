@@ -1,0 +1,10 @@
+LEY QUE CREA EL ORGANISMO PÚBLICO DESCENTRALIZADO DE CARÁCTER ESTATAL DENOMINADO COLEGIO DE ESTUDIOS CIENTÍFICOS Y TECNOLÓGICOS DEL ESTADO DE MÉXICO
+Ley publicada en la Sección Cuarta del Número 78 de la Gaceta del Gobierno del Estado de México, el miércoles 19 de octubre de 1994.
+EMILIO CHUAYFFET CHEMOR, Gobernador Constitucional del Estado Libre y Soberano de México, a sus habitantes sabed:
+Que la Legislatura del Estado, ha tenido a bien aprobar lo siguiente:
+DECRETO NUMERO 48
+LA H. "LII" LEGISLATURA DEL ESTADO DE MEXICO
+DECRETA:
+LEY QUE CREA EL ORGANISMO PUBLICO DESCENTRALIZADO DE CARACTER ESTATAL DENOMINADO COLEGIO DE ESTUDIOS CIENTIFICOS Y TECNOLOGICOS DEL ESTADO DE MEXICO.
+CAPITULO PRIMERO
+Naturaleza, Objeto y Atribuciones
