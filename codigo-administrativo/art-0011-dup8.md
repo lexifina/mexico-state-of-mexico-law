@@ -11,6 +11,6 @@ IX.Promover, entre las instituciones de educación superior y de investigación 
 X.Informar, a través de los medios de comunicación masiva, sobre las características de la discapacidad, la identificación temprana y la atención oportuna de los factores que la causan;
 XI.Proporcionar apoyo y orientación a los familiares de las personas con capacidades diferentes para que les ofrezcan mayor cuidado y atención, así como organizar a terceras personas que apoyen su incorporación a la sociedad;
 XII.Promover los derechos de las personas con capacidades diferentes, así como las disposiciones legales que les protegen;
-XIII. Proporcionar orientación y asistencia jurídica en juicios de interdicción y en acciones legales, con particular atención de las personas con discapacidad mental.
+XIII.Proporcionar orientación y asistencia jurídica en juicios de interdicción y en acciones legales, con particular atención de las personas con discapacidad mental.
 CAPITULO CUARTO
 Del Consejo Estatal para la Protección de las Personas con Capacidades Diferentes y su Integración al Desarrollo Social

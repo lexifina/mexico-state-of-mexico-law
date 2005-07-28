@@ -10,4 +10,4 @@ VIII.Garantizar el derecho a la información;
 IX.Desahogar los procedimientos de acción popular que se inicien ante las mismas;
 X.Vigilar la aplicación de las disposiciones de este Código y de las que se deriven del mismo, realizar visitas de verificación, ordenar y ejecutar medidas de seguridad y aplicar sanciones. En todo caso, se buscará orientar y educar a los infractores;
 XI.Coadyuvar entre sí en la vigilancia del cumplimiento de las disposiciones de este Código y, cuando encontraren irregularidades que a su juicio constituyan violaciones a dichas disposiciones, lo harán del conocimiento de la autoridad competente;
-XII. Las demás que establezcan este Código y otras disposiciones aplicables.
+XII.Las demás que establezcan este Código y otras disposiciones aplicables.

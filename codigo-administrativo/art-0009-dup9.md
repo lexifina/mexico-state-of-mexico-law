@@ -5,6 +5,6 @@ III.La creación, desarrollo y vinculación de agrupaciones, patronatos, fundaci
 IV.Acciones de demostración y capacitación teórico-práctica a productores y técnicos de los resultados de la investigación;
 V.La educación, capacitación, asistencia técnica y difusión de tecnología, en las materias de este Libro, para que tengan un carácter integral e incluyente;
 VI.La actualización y modernización de los programas educativos en la materia;
-VII. La integración de un directorio de profesionistas individuales o asociados para facilitar a los productores la contratación de los servicios técnicos y de asesoría que requieran.
+VII.La integración de un directorio de profesionistas individuales o asociados para facilitar a los productores la contratación de los servicios técnicos y de asesoría que requieran.
 SECCION SEGUNDA
 Del Instituto de Investigación y Capacitación Agropecuaria, Acuícola y Forestal del Estado de México

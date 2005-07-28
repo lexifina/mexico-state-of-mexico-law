@@ -11,4 +11,4 @@ IX.Guardar congruencia en su contenido y, en su caso, con lo solicitado;
 X.Señalar el lugar y la fecha de su emisión, así como los datos relativos a la identificación precisa del expediente, documentos, nombre y domicilio de las personas de que se trate;
 XI.Tratándose de actos administrativos que deban notificarse, se hará mención expresa de la oficina en que se encuentra y puede ser consultado el expediente respectivo;
 XII.Tratándose de resoluciones desfavorables a los derechos e intereses legítimos de los particulares, deberá hacerse mención del derecho y plazo que tienen para promover el recurso administrativo de inconformidad o el juicio ante el Tribunal de lo Contencioso Administrativo;
-XIII. Resolver expresamente todos los puntos propuestos por los interesados o previstos en las disposiciones aplicables.
+XIII.Resolver expresamente todos los puntos propuestos por los interesados o previstos en las disposiciones aplicables.

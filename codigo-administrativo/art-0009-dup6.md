@@ -7,4 +7,4 @@ V.La compactación de superficies en unidades de producción, cuando ello sea un
 VI.El establecimiento y desarrollo de unidades de transformación;
 VII.La integración de cadenas productivas;
 VIII.Los mecanismos que permitan la obtención de financiamientos con tasas preferenciales;
-IX. La utilización de instrumentos de mercado para la administración de riesgos. Lo anterior, sin perjuicio de gestionar recursos y apoyos ante los gobiernos federal y municipales para atender a los productores afectados por desastres naturales.
+IX.La utilización de instrumentos de mercado para la administración de riesgos. Lo anterior, sin perjuicio de gestionar recursos y apoyos ante los gobiernos federal y municipales para atender a los productores afectados por desastres naturales.
