@@ -1,0 +1,3 @@
+G.G. 21 DE DICIEMBRE DE 2005.
+PRIMERO. Publíquese el presente decreto en el periódico oficial "Gaceta del Gobierno".
+SEGUNDO. La reforma, adición y derogación de las diversas disposiciones contenidas en el Código Penal del Estado de México, en la Ley Orgánica del Poder Judicial del Estado de México y en la Ley Orgánica de la Procuraduría del Estado de México, contenidas en el presente decreto tendrán vigencia, hasta en tanto entre en vigor las reformas a los artículos 82, 89 en su segundo párrafo, 99 en su primer párrafo a la adición del segundo párrafo al artículo 102 y el artículo 104 bis de la Constitución Política del Estado Libre y Soberano de México, aprobado por esta Legislatura.
