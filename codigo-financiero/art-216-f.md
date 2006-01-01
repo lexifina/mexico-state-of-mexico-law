@@ -1,3 +1,7 @@
+(ADICIONADO, G.G. 6 DE DICIEMBRE DE 2002)
+DE INTERÉS SOCIAL$422.
+(ADICIONADO, G.G. 6 DE DICIEMBRE DE 2002)
+POPULAR$632.
 (REFORMADO, G.G. 30 DE DICIEMBRE DE 2003)
 MEDIA$7,359.
 (REFORMADO, G.G. 30 DE DICIEMBRE DE 2003)
@@ -13,7 +17,8 @@ En caso de que los ingresos generados por las aportaciones de mejoras para obras
 A fin de dar seguimiento a la aplicación de estos recursos, se constituirá el Comité de Control y Vigilancia de las Aportaciones para Obras de Impacto Vial, que estará integrado por:
 I. Un representante del Poder Legislativo.
 II. Un representante de la Secretaría de Comunicaciones.
-III. Un representante de la Secretaría de Finanzas, Planeación y Administración.
+(REFORMADA, G.G. 27 DE DICIEMBRE DE 2005)
+III. Un representante de la Secretaría de Finanzas.
 IV. Dos representantes de los municipios de la entidad, que serán designados anualmente en el seno del Instituto Hacendario del Estado de México, debiendo ser municipios en los cuales se genere la aportación.
 Este Comité será presidido por el representante de la Secretaría de Comunicaciones y tendrá, entre otras funciones, las siguientes:
 I. Dar seguimiento al ingreso que se obtenga por estas aportaciones.

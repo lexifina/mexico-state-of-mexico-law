@@ -9,9 +9,9 @@ I. Otorgamiento de concesiones para explotar el servicio público de transporte 
 A). Servicio regular de pasaje.
 1. Colectivo:
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
-a). Autobuses de 1ª . clase$17,322.
+a). Autobuses de 1ª. clase$17,322.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
-b). Autobuses de 2ª . clase$14,202.
+b). Autobuses de 2ª. clase$14,202.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
 c). Minibuses$14,202.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
@@ -99,29 +99,36 @@ C). El servicio especializado de carga:
 2. Capacidad de carga de más de 3,000 kgs.$2,310.
 D). El servicio discrecional de arrastre o de salvamento:
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
-1. Grúas de arrastre u otros vehículos especializados para trasladar vehículos impedidos mecánica o legalmente para su auto-desplazamiento$6,929
+1. Grúas de arrastre u otros vehículos especializados para trasladar vehículos impedidos mecánica o legalmente para su auto-desplazamiento $6,929
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
-2. Grúas de salvamento u otros vehículos especializados para el rescate de personas, objetos o animales que se encuentren en situaciones de peligro o atenten contra la seguridad de terceros en sus personas o bienes$6,929.
+2. Grúas de salvamento u otros vehículos especializados para el rescate de personas, objetos o animales que se encuentren en situaciones de peligro o atenten contra la seguridad de terceros en sus personas o bienes $6,929.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
-3. Servicio de depósito de vehículos para guarda y custodia de vehículos accidentados o a disposición de autoridades diversas por cada corralón$4,927.
+3. Servicio de depósito de vehículos para guarda y custodia de vehículos accidentados o a disposición de autoridades diversas por cada corralón $4,927.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
-4. Realización de estudios técnicos relativos a los numerales anteriores a que se refiere este inciso$1,154.
+4. Realización de estudios técnicos relativos a los numerales anteriores a que se refiere este inciso $1,154.
+(ADICIONADO, G.G. 27 DE DICIEMBRE DE 2005)
+5. Por la realización de estudios técnicos y económicos a solicitud de los particulares, para el otorgamiento de permisos en la modalidad de vehículos de propulsión no mecánica$93.60
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
 E). Por el Otorgamiento de permiso o autorización de bases, sitios o lanzaderas, por cada uno de ellos$1,018.
 F). Los servicios conexos al servicio público de transporte:
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
-1. Por el otorgamiento de permiso para el establecimiento de terminales de pasaje$4,668.
+1. Por el otorgamiento de permiso para el establecimiento
+de terminales de pasaje$4,668.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
 2. Por el otorgamiento de permiso para el establecimiento de bahías de ascenso y descenso$1,400.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
-3. Por el otorgamiento de permiso para el establecimiento de cobertizos$2,334.
+3. Por el otorgamiento de permiso para el establecimiento de cobertizos $2,334.
 4. (DEROGADO, G.G. 30 DE DICIEMBRE DE 2003)
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
-5. Por la realización de estudios técnicos para el establecimiento de terminales de pasaje$4,668.
+5. Por la realización de estudios técnicos para
+el establecimiento de terminales de pasaje$4,668.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
-6. Por la realización de estudios técnicos para el establecimiento de bahías de ascenso y descenso$1,400.
+6. Por la realización de estudios técnicos para
+el establecimiento de bahías de ascenso
+y descenso$1,400.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
-7. Por la realización de estudios técnicos para el establecimiento de cobertizos$2,334.
+7. Por la realización de estudios técnicos para
+el establecimiento de cobertizos$2,334.
 8. (DEROGADO, G.G. 30 DE DICIEMBRE DE 2003)
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
 9. Por la realización de estudios técnicos y económicos a solicitud de los particulares, para el otorgamiento de concesiones y permisos en todas sus modalidades, por unidad vehicular$1,154.
@@ -132,14 +139,15 @@ F). Los servicios conexos al servicio público de transporte:
 12. (DEROGADO, G.G. 30 DE DICIEMBRE DE 2003)
 G). La instalación y explotación de anuncios publicitarios en el transporte:
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
-1. Por la obtención del permiso para la instalación de anuncios publicitarios$2,333.
+1. Por la obtención del permiso para la
+instalación de anuncios publicitarios$2,333.
 2. Por la instalación y explotación de anuncios publicitarios por el período de ciento veinte días por unidad vehicular:
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
 a). Autobús$468.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
 b). Minibús$326.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
-c). Vehículo de cuatro puertas sin incluir la del portaequipaje, con un máximo de cinco asientos y un mínimo de cuatro, incluido el operador$279.
+c). Vehículo de cuatro puertas sin incluir la del portaequipaje, con un máximo de cinco asientos y un mínimo de cuatro, incluido el operador $279.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
 d). Vagonetas$188.
 H). Por estudios técnicos y económicos a solicitud de los particulares por el otorgamiento de permisos referidos a:
@@ -172,11 +180,11 @@ B). El servicio de carga en general y especializado de carga:
 2. Capacidad de más de 3000 kgs.$1,155.
 C). El servicio discrecional de arrastre o de salvamento:
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
-1. Grúas de arrastre u otros vehículos especializados para trasladar vehículos impedidos mecánica o legalmente para su auto-desplazamiento$6,929.
+1. Grúas de arrastre u otros vehículos especializados para trasladar vehículos impedidos mecánica o legalmente para su auto-desplazamiento $6,929.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
-2. Grúas de salvamento u otros vehículos especializados para el rescate de personas, objetos o animales que se encuentren en situaciones de peligro o que atenten contra la seguridad de terceros en sus personas o bienes$6,929.
+2. Grúas de salvamento u otros vehículos especializados para el rescate de personas, objetos o animales que se encuentren en situaciones de peligro o que atenten contra la seguridad de terceros en sus personas o bienes $6,929.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
-3. El servicio de depósito de vehículos por cesión de derechos o cambio de titular de permiso para guarda y custodia de vehículos accidentados o a disposición de autoridades diversas, por cada corralón$4,927.
+3. El servicio de depósito de vehículos por cesión de derechos o cambio de titular de permiso para guarda y custodia de vehículos accidentados o a disposición de autoridades diversas, por cada corralón $4,927.
 D). Los servicios conexos:
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
 1. Terminales de pasaje$4,668.
@@ -213,12 +221,11 @@ B). El servicio de transporte de carga en general y especializado de carga:
 2. Capacidad de más de 3000 Kgs.$1,155.
 C). El servicio discrecional de arrastre o de salvamento:
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
-1. Grúas de arrastre u otros vehículos especializados para trasladar vehículos impedidos mecánica o legalmente para su auto-desplazamiento$3,464.
+1. Grúas de arrastre u otros vehículos especializados para trasladar vehículos impedidos mecánica o legalmente para su auto-desplazamiento $3,464.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
-2. Grúas de salvamento u otros vehículos especializados para el rescate de personas, objetos o animales que se encuentren en situaciones de peligro o que atenten contra
-la seguridad de terceros en sus personas o bienes$3,464.
+2. Grúas de salvamento u otros vehículos especializados para el rescate de personas, objetos o animales que se encuentren en situaciones de peligro o que atenten contra la seguridad de terceros en sus personas o bienes $3,464.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
-3. Servicio de depósito de vehículos para guarda y custodia de vehículos accidentados o a disposición de autoridades diversas por cada corralón$4,927.
+3. Servicio de depósito de vehículos para guarda y custodia de vehículos accidentados o a disposición de autoridades diversas por cada corralón $4,927.
 D). Los servicios conexos, por el establecimiento de:
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
 1. Terminales de pasaje$2,334.
@@ -233,14 +240,14 @@ En la prorroga o cambio de la temporalidad de vigencia de permisos para servicio
 Se exceptúan de lo anterior, los permisos para servicio con vehículos de propulsión no mecánica.
 VII. Por la expedición de autorizaciones o modificaciones complementarias de las concesiones y permisos que correspondan, respecto de:
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
-A). Autorización de ruta o área geográfica de operación del servicio público del transporte en las modalidades de colectivo, mixto, individual de automóvil de alquiler de sitio, de alquiler de radio servicio y de alquiler sin base tipo intraurbano o suburbano, de carga, especializado de carga, de arrastre y de salvamento, por cada vehículo$1,427.
+A). Autorización de ruta o área geográfica de operación del servicio público del transporte en las modalidades de colectivo, mixto, individual de automóvil de alquiler de sitio, de alquiler de radio servicio y de alquiler sin base tipo intraurbano o suburbano, de carga, especializado de carga, de arrastre y de salvamento, por cada vehículo $1,427.
 B). Modificación de rutas o área geográfica de operación del servicio público de transporte en las modalidades referidas en el inciso que antecede, por cada vehículo:
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
 1. De enrolamiento$1,018.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
 2. Por la fusión de dos rutas como resultado de un enlace$1,018.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
-3. De su derrotero por cambios de sentido de la circulación vehicular$114.
+3. De su derrotero por cambios de sentido de la circulación vehicular $114.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
 4. La reducción de su longitud por reubicarse su origen o destino, reduciendo el derrotero$114.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
@@ -301,15 +308,15 @@ E). Por la expedición de permiso provisional de practica "B".
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
 2. Por un año de vigencia$261.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
-F). Por la expedición de permiso provisional de practica "A".$1,239.
+F). Por la expedición de permiso provisional de practica "A". $1,239.
 (REFORMADO, G.G. 22 DE DICIEMBRE DE 2004)
 El pago de los anteriores conceptos incluye en su caso, examen de conocimientos al Reglamento de Tránsito del Estado de México.
 (ACTUALIZADA, G.G. 1 DE JULIO DE 2005)
-IX. Duplicado de licencias y permisos, con la vigencia del documento expedido originalmente y con la leyenda de "Duplicado"$175.
+IX. Duplicado de licencias y permisos, con la vigencia del documento expedido originalmente y con la leyenda de "Duplicado" $175.
 (REFORMADA, G.G. 22 DE DICIEMBRE DE 2004)
 X. Por la expedición de medios de identificación para manejar vehículos automotores y equipos afectos al servicio público de transporte:
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
-A). Por la expedición de la tarjeta de identificación personal para operadores de transporte público, por año$ 712.
+A). Por la expedición de la tarjeta de identificación personal para operadores de transporte público, por año$712.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
 B). Por el duplicado de la tarjeta de identificación personal para operadores de transporte público con la vigencia del documento expedido originalmente y con la leyenda "Duplicado"$ 520.
 La expedición de la tarjeta de identificación personal incluye exámenes medico, psicométrico y toxicológico.
@@ -321,11 +328,15 @@ A). Servicio público de transporte:
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
 2. Por refrendo anual para vehículos afectos a la prestación del servicio público del transporte en todas sus clases, modalidades y tipos, a excepción del servicio de carga en general y especializado de carga$540.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
-3. Por cambio de propietario o reposición de calcomanía de vehículo afectos a la prestación del servicio público de transporte en todas sus modalidades y tipos$109.
+3. Por cambio de propietario o reposición de calcomanía
+de vehículo afectos a la prestación del servicio público de
+transporte en todas sus modalidades y tipos$109.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
 4. Cambio de vehículo afecto a la prestación del servicio público de transporte, en todas sus modalidades$288.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
-5. Por el trámite de baja de placas para vehículos afectos a la prestación del servicio público de transporte en todas sus clases, modalidades y tipos$220.
+5. Por el trámite de baja de placas para vehículos afectos a la prestación del servicio público de transporte en todas sus clases, modalidades y tipos $220.
+(ADICIONADO, G.G. 27 DE DICIEMBRE DE 2005)
+6. Por expedición o reposición de placa y tarjeta de circulación, para vehículos de servicio público en la modalidad de individual en vehículo de propulsión no mecánica $234.
 B). Transporte particular y comercial:
 1. Por la expedición inicial o reposición de placas, tarjeta de circulación y calcomanía:
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
@@ -404,26 +415,27 @@ f). Motocicleta y motoneta$329.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
 g). Motocicleta y motoneta emplacada en otra entidad federativa$0.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
-8. Por la expedición del permiso para agencia autorizada:$109.
+8. Por la expedición del permiso para agencia autorizada: $109.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
 9. Por la expedición del permiso en demostración y traslado:$109.
 (ACTUALIZADA, G.G. 1 DE JULIO DE 2005)
-XII. Expedición de permiso de transporte público en otras modalidades$577.
+XII. Expedición de permiso de transporte público en
+otras modalidades$577.
 (REFORMADA, G.G. 30 DE DICIEMBRE DE 2003)
 XIII. Por otros servicios relativos al transporte particular y comercial, se pagarán los siguientes derechos:
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
-A). Por la práctica anual de revista a vehículos particulares de carga$278.
+A). Por la práctica anual de revista a vehículos particulares de carga $278.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
 B). Por la reposición del tarjetón de revista anual$119.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
 C). Por los servicios de certificación de extravío, mutilación o deterioro de documentos que amparen la circulación del vehículo$40.
 (REFORMADO PRIMER PARRAFO, G.G. 22 DE DICIEMBRE DE 2004)
 XIV. Expedición de autorización o su refrendo anual para prestar el servicio público de autotransporte colectivo de pasajeros en rutas fijas dentro del territorio del Estado, a concesionarios del Gobierno del Distrito Federal; personas físicas o personas jurídicas colectivas, unidades o empresas económicas.
-(ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
+(ACTUALIZADO, G.G. 1 DE JULIO DE 2005)SE
 A). Autorización$7,536.
 (ACTUALIZADO, G.G. 1 DE JULIO DE 2005)
 B). Refrendo$151.
-(ACTUALIZADA, G.G. 1 DE JULIO DE 2005)
-XV. Por la realización de estudios técnicos y económicos para el establecimiento de bases o concesionarios del Gobierno del Distrito Federal; personas físicas o morales, unidades o empresas económicas$2,886.
+(REFORMADA, G.G. 27 DE DICIEMBRE DE 2005)
+XV. Por la realización de estudios técnicos y económicos para el establecimiento de bases o concesionarios del Gobierno del Distrito Federal; personas físicas o jurídicas colectivas, unidades o empresas económicas$2,886.
 (ACTUALIZADA, G.G. 1 DE JULIO DE 2005)
 XVI. Expedición del permiso para el establecimiento de bases a concesionarios del Gobierno del Distrito Federal, que hayan sido autorizados para prestar el servicio público de autotransporte colectivo de pasajeros, en rutas fijas dentro del territorio del Estado$322.

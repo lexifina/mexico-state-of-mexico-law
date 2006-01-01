@@ -8,5 +8,7 @@ II. Alcantarillado:
 (REFORMADA, G.G. 30 DE DICIEMBRE DE 2003)
 TARIFA
 (VEASE ARCHIVO ANEXO)
-En cuanto al tipo de desarrollo, se estará a las definiciones establecidas en las leyes de la materia.
-No pagarán los derechos previstos en este artículo las viviendas de tipo social progresiva, y los desarrollos que no sean sujetos de división del suelo.
+(REFORMADO, G.G. 27 DE DICIEMBRE DE 2005)
+En cuanto al tipo de conjunto, se estará a las definiciones establecidas en las leyes de la materia.
+(REFORMADO, G.G. 27 DE DICIEMBRE DE 2005)
+No se pagarán los derechos previstos en este artículo por las viviendas de tipo social progresiva, y los conjuntos que no sean sujetos de división del suelo.

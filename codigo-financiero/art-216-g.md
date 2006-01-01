@@ -1,6 +1,7 @@
 (ADICIONADO, G.G. 6 DE DICIEMBRE DE 2002)
 Artículo 216-G.- No pagarán estas aportaciones para obras de impacto vial:
-I. Los desarrollos de vivienda de tipo social progresiva.
+(REFORMADA, G.G. 27 DE DICIEMBRE DE 2005)
+I. Los conjuntos urbanos habitacionales de tipo social progresiva.
 II. Construcciones, ampliaciones y naves al interior de conjuntos urbanos y parques industriales debidamente autorizados.
 III. Cuando se trate de subdivisiones y fusiones de predios sin construcción ni aprovechamiento de uso.
 IV. Orfanatorios, asilos de ancianos e indigentes y albergues.
