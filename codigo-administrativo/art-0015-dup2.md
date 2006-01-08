@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 5 DE ENERO DE 2006)
+Artículo 15.2.- El Periódico Oficial "Gaceta del Gobierno", es el órgano informativo del Gobierno del Estado Libre y Soberano de México, de carácter permanente e interés público, que tiene por objeto publicar las Leyes, Decretos, Reglamentos, Acuerdos, Notificaciones, Avisos, Manuales y demás disposiciones de carácter general de los Poderes del Estado, Organismos Autónomos, Organismos Auxiliares, Ayuntamientos y de particulares.
