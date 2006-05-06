@@ -1,1 +1,1 @@
-Artículo 4.5.- El Consejo Consultivo para el Desarrollo Sustentable del Estado de México es un órgano de asesoría, consulta, estudio y opinión del Ejecutivo en materia de conservación ecológica y protección al ambiente en la entidad, así como de promoción de acciones de coordinación y concertación entre los sectores público, social y privado.
+Artículo 4.5.- (DEROGADO, G.G. 3 DE MAYO DE 2006)

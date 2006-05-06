@@ -1,5 +1,7 @@
-Artículo 4.8.- La Secretaría de Ecología promoverá ante los ayuntamientos de la entidad la creación de consejos municipales de protección al ambiente, a fin de que les sirvan como órganos de apoyo para el mejor desempeño de sus funciones. Así mismo se fomentará la constitución de comités comunitarios o vecinales con objeto de alentar la participación social en el cuidado, conservación y restauración del ambiente en sus localidades.
+Artículo 4.8.- (DEROGADO, G.G. 3 DE MAYO DE 2006)
+(DEROGADO CON LAS SECCIONES Y ARTICULOS QUE LO INTEGRAN, G.G. 3 DE MAYO DE 2006)
 CAPITULO CUARTO
 De la información ambiental
+(DEROGADA CON LOS ARTICULOS QUE LA INTEGRAN, G.G. 3 DE MAYO DE 2006)
 SECCION PRIMERA
 Del Sistema Estatal de Información Ambiental, Registro Estatal Ambiental y Centro Geomático

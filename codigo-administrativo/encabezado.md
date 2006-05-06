@@ -1,4 +1,5 @@
 CODIGO ADMINISTRATIVO DEL ESTADO DE MEXICO
+N. DE E. DE CONFORMIDAD CON EL ARTICULO SEGUNDO TRANSITORIO DEL DECRETO NO. 183, PUBLICADO EN LA G.G. DE 3 DE MAYO DE 2006, LAS MODIFICACIONES AL PRESENTE ORDENAMIENTO ENTRARAN EN VIGOR A LOS 180 DIAS HABILES SIGUIENTES AL DE SU PUBLICACION.
 Código publicado en la Gaceta del Gobierno del Estado de México, el jueves 13 de diciembre de 2001.
 ARTURO MONTIEL ROJAS, Gobernador Constitucional del Estado Libre y Soberano de México, a sus habitantes sabed:
 Que la Legislatura del Estado, ha tenido a bien aprobar lo siguiente:
