@@ -1,0 +1,1 @@
+Artículo 5.17. Para la obtención de los objetivos de la política estatal sobre vida silvestre la Secretaría podrá celebrar convenios de concertación con las personas físicas y jurídicas colectivas interesadas en el fomento, la conservación y el aprovechamiento sostenible de la vida silvestre.

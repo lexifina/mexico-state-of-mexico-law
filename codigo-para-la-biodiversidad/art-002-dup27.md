@@ -1,0 +1,1 @@
+Artículo 2.27. Todo interesado tendrá derecho a que la Secretaría y las autoridades municipales pongan a su disposición la información pública ambiental que les soliciten, en los términos previstos por el presente Libro. Los gastos que se generen correrán por cuenta del solicitante.

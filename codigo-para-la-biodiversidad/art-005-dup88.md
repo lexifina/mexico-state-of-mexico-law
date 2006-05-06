@@ -1,0 +1,1 @@
+Artículo 5.88. Los aprovechamientos no extractivos en actividades económicas deberán realizarse de conformidad con la zonificación y la capacidad de uso determinadas por la Federación de acuerdo con las normas oficiales mexicanas o en su defecto de acuerdo con el plan de manejo que apruebe la Federación.

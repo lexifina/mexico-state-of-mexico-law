@@ -1,0 +1,1 @@
+Artículo 2.25. Las dependencias y entidades estatales y los Ayuntamientos proporcionarán a la Secretaría la información pertinente para la integración y funcionamiento del Sistema a que se refiere el artículo 2.16 del presente Libro.

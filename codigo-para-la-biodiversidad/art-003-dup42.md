@@ -1,0 +1,1 @@
+Artículo 3.42. El derecho real de superficie forestal deberá constar en escritura pública teniendo la obligación el notario público ante quien se celebre el acto dar aviso al Registro Nacional Forestal y al Sistema Estatal de Información Forestal además de que para que surta efectos contra terceros tendrá que ser inscrito en el Registro Público de la Propiedad.

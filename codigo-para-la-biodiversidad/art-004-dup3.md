@@ -1,0 +1,1 @@
+Artículo 4.3. En la formulación y conducción de las políticas en las materias a que se refiere el presente Libro, así como para la expedición de las disposiciones jurídicas y la emisión de actos que de éste deriven los Gobiernos Estatal y Municipal observarán los principios que establece la Ley General para la Prevención y Gestión Integral de los Residuos.

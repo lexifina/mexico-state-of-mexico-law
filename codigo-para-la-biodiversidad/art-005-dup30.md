@@ -1,0 +1,1 @@
+Artículo 5.30. Los lugares de resguardo de ejemplares vivos de fauna silvestre deberán tener características lo más próximas posibles a las condiciones de sus hábitats naturales para evitar o disminuir la tensión, el sufrimiento, la ansiedad, la crueldad, el traumatismo o el dolor que pudiera ocasionárseles en sitios como zoológicos o circos.

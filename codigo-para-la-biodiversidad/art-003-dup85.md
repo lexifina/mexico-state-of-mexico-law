@@ -1,0 +1,1 @@
+Artículo 3.85. El Consejo Forestal Estatal emitirá opinión sobre el marco normativo al que se sujetarán los pueblos hospital, así como de diseñar las reglas y ordenanzas de operación para las comunidades que busquen participar y ser consideradas dentro del programa de los pueblos hospital.

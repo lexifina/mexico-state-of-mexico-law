@@ -1,0 +1,1 @@
+Artículo 5.28. El aprovechamiento de la fauna silvestre se llevará a cabo de manera que se eviten o disminuyan los daños a las especies silvestres mencionadas en el artículo anterior. Queda estrictamente prohibido todo acto de crueldad en contra de la fauna silvestre en los términos del presente Libro y la normatividad que de éste derive.

@@ -1,0 +1,1 @@
+Artículo 4.21. Toda persona atendiendo al procedimiento establecido en el Libro Segundo de este Código podrá denunciar ante la autoridad competente todo hecho, acto u omisión contrario a lo dispuesto en el presente Libro y demás ordenamientos jurídicos aplicables.

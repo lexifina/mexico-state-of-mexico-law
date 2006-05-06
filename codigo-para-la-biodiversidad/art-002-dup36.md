@@ -1,0 +1,1 @@
+Artículo 2.36. En la planeación del desarrollo del Estado, serán considerados la política ambiental y los ordenamientos ecológicos, éstos serán establecidos de conformidad con este Libro y las demás disposiciones jurídicas aplicables.

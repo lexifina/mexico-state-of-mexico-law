@@ -1,0 +1,2 @@
+Articulo 3.10. Los recursos humanos, financieros y materiales que se requieran para el cumplimiento del objeto del Servicio Estatal Forestal quedarán bajo la absoluta responsabilidad jurídica y administrativa de las partes que lo integran. En todo caso la aportación voluntaria de dichos recursos no implicará la transferencia de los mismos.
+Los representantes de las dependencias y entidades que integran el Servicio Estatal Forestal desempeñarán su encargo dentro de éste de manera honorífica por lo que no percibirán retribución alguna por su desempeño.

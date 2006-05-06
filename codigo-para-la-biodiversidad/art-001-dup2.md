@@ -1,0 +1,9 @@
+Artículo 1.2. Son objetivos generales del presente Código:
+I. Garantizar el derecho de toda persona a vivir en un ambiente adecuado para su desarrollo, salud y bienestar;
+II. Promover y regular el uso y aprovechamiento sostenible, la conservación, la remediación, la rehabilitación y la restauración de elementos naturales, recursos naturales y de los bienes ambientales, asimismo alentar promoviendo a los componentes de la biodiversidad de forma que sea compatible la obtención de beneficios económicos con la recuperación y la preservación de los ecosistemas y sus hábitats;
+III. Diseño, desarrollo e instrumentación de estímulos fiscales impulsando instrumentos económicos en favor del mejoramiento, conservación, preservación, mejoramiento, recuperación, remediación, restauración, uso, aprovechamiento y desarrollo sostenible de la biodiversidad en su conjunto;
+IV. Fomentar la participación corresponsable de la sociedad en las acciones de preservación, remediación, rehabilitación y restauración del equilibrio ecológico y del medio ambiente y de todas las actividades en favor de la protección a la biodiversidad;
+V. Regular y promover la educación y la cultura ambiental en todos los sectores de la sociedad del uso y aprovechamiento racional de la biodiversidad de sus elementos y recursos naturales y de la tecnología e investigación ambiental;
+VI. Propiciar el desarrollo sostenible mediante el aprovechamiento y uso racional de los elementos naturales, de los recursos naturales y de los bienes ambientales;
+VII. Protección, conservación, preservación, rehabilitación, restauración, recuperación y remediación de la biodiversidad y sus componentes; y
+VIII. Promover la aplicación racional y el manejo de los pagos de servicios ambientales o ecosistémicos derivados de las actividades humanas sostenibles.

@@ -1,0 +1,2 @@
+Artículo 5.50. La Secretaría promoverá el desarrollo de proyectos para la conservación, recuperación de especies y poblaciones prioritarias para la conservación con la participación de las personas que manejen dichas especies o poblaciones y demás involucrados.
+La información relativa a los proyectos de conservación, preservación y recuperación de especies y poblaciones prioritarias para la conservación estará a disposición del público.

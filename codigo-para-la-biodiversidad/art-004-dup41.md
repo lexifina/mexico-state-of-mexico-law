@@ -1,0 +1,1 @@
+Artículo 4.41. La Secretaría establecerá convenios de vinculación y colaboración con los centros de investigación de tecnologías alternativas sanitariamente seguras y ambientalmente adecuadas para que brinden apoyo a los organismos públicos en la formulación de los sistemas de manejo ambiental de acuerdo con sus necesidades y circunstancias.

@@ -1,0 +1,1 @@
+Artículo 5.23. La Secretaría promoverá y participará en el desarrollo de programas de divulgación para que la sociedad valore la importancia ambiental y socioeconómica de la conservación y conozca las técnicas para el aprovechamiento sostenible de la vida silvestre y su hábitat.

@@ -1,0 +1,1 @@
+Artículo 4.51. Los propietarios, administradores, poseedores o encargados de camiones y transporte colectivo en general destinados al servicio de pasajeros y de carga y de automóviles de alquiler deberán mantener en perfecto estado de limpieza los pavimentos de la vía pública de sus terminales o lugares de estacionamiento.

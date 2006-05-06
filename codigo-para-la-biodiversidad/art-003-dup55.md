@@ -1,0 +1,1 @@
+Articulo 3.55. PROBOSQUE elaborará un Plan de Protección de Ecosistemas Forestales contra los incendios donde deberá establecer mecanismos de coordinación entre la Federación, el Estado y los Municipios. Para tal efecto anualmente en la aplicación del Plan se harán públicas las medidas de prevención, detección, combate y extinción para luchar contra los incendios.

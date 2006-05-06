@@ -1,0 +1,6 @@
+Articulo 5.20. La Secretaría diseñará y promoverá en las disposiciones que se deriven del presente Libro el desarrollo de criterios, metodologías y procedimientos que permitan identificar los valores de la biodiversidad y de los servicios ambientales que provee a efecto de armonizar la conservación de la vida silvestre y su hábitat con la utilización sostenible de bienes y servicios, así como de incorporar éstos al análisis y planeación económica de conformidad con el presente Ordenamiento y otras disposiciones aplicables mediante:
+I. Sistemas de certificación para la producción de bienes y servicios ambientales;
+II. Estudios para la ponderación de los diversos valores culturales, sociales, económicos y ecológicos de la biodiversidad;
+III. Estudios para la evaluación e internalización de costos ambientales en actividades de aprovechamiento de bienes y servicios ambientales;
+IV. Mecanismos de compensación e instrumentos económicos que retribuyan a los habitantes locales dichos costos asociados a la conservación de la biodiversidad o al mantenimiento de los flujos de bienes y servicios ambientales derivados de su aprovechamiento y conservación; y
+V. La utilización de mecanismos de compensación y otros instrumentos internacionales por contribuciones de carácter global.

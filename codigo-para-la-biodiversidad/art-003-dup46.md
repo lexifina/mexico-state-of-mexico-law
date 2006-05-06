@@ -1,0 +1,1 @@
+Articulo 3.46. El superficiario gozará del derecho del tanto si el propietario pretende enajenar el terreno, igual derecho tendrá el superficiante si el superficiario pretende enajenar su derecho de superficie.

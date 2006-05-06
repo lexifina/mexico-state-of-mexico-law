@@ -1,0 +1,1 @@
+Artículo 5.31. Cuando de conformidad con las disposiciones en la materia deba someterse a cuarentena a cualquier ejemplar de la fauna silvestre se adoptarán las medidas para mantenerlos en condiciones adecuadas de acuerdo a sus necesidades.

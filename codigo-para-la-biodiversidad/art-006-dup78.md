@@ -1,0 +1,1 @@
+Artículo 6.78. Los propietarios, encargados, administradores o empleados de expendios de animales o rastros y los administradores de circos deberán sacrificar inmediatamente a los animales domésticos que por cualquier causa se hubiesen lesionado o enfermado gravemente y esto les ocasione sufrimiento o agonía o represente un peligro grave para la salud o seguridad de las personas.

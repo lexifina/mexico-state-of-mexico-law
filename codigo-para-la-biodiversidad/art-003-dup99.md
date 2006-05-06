@@ -1,0 +1,1 @@
+Artículo 3.99. Si como resultado de la inspección se detecta una plaga o enfermedad forestal, se notificará de forma inmediata al propietario o poseedor del terreno forestal o preferentemente forestal y se estará a lo dispuesto en el capítulo relativo a la Sanidad Forestal.

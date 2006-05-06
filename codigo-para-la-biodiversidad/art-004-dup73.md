@@ -1,0 +1,1 @@
+Artículo 4.73. Las actividades de separación de residuos sólidos recolectados por el servicio de limpia sólo se realizarán en las plantas de selección. En ningún caso se podrá efectuar la separación de residuos sólidos urbanos en la vía pública o áreas comunes, en las estaciones de transferencia o en cualquier otro sitio no autorizado.

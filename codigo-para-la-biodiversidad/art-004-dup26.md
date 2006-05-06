@@ -1,0 +1,1 @@
+Artículo 4.26. Se consideran como residuos de manejo especial los definidos y subclasificados como tales en la Ley General, así como los residuos generados en los procesos que realizan las diversas industrias manufactureras y empresas de servicios que no reúnen los criterios para ser considerados como residuos sólidos urbanos o peligrosos.

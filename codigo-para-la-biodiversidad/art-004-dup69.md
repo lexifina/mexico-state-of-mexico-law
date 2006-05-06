@@ -1,0 +1,1 @@
+Articulo 4.69. Los residuos sólidos urbanos o de manejo especial no sujetos a planes de manejo generados por micro generadores serán recolectados por los servicios de limpia públicos de los Municipios de conformidad con lo que establezcan las autoridades competentes.

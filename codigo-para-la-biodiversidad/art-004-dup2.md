@@ -1,0 +1,1 @@
+Artículo 4.2. Dadas las características específicas y la diversidad en los ecosistemas del Estado este Libro tiene por objeto, el respeto, la conservación, preservación, rehabilitación, remediación y la restauración del medio ambiente en la Entidad de forma coordinada con lo que se establezca en el Libro Segundo del presente Código y otros ordenamientos aplicables.

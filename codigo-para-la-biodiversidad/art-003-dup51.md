@@ -1,0 +1,1 @@
+Artículo 3.51. Si como resultado de la investigación se detecta una plaga o enfermedad forestal se notificará de forma inmediata a la autoridad competente, así como al propietario o poseedor del terreno forestal o preferentemente forestal y se estará a lo dispuesto en el Capítulo relativo a la Sanidad Forestal.

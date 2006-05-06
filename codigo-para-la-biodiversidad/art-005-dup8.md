@@ -1,0 +1,1 @@
+Artículo 5.8. El Gobierno del Estado y los Municipios ejercerán sus atribuciones en materia de conservación y aprovechamiento sostenible de la vida silvestre de conformidad con lo previsto en los dos siguientes artículos.

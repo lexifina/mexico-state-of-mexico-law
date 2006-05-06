@@ -1,0 +1,1 @@
+Artículo 6.31. Previa venta de cualquier mascota ésta deberá estar desparasitada y vacunada si lo amerita de acuerdo a la especie y se expedirá un certificado de salud por un médico con cédula profesional haciendo constar que se encuentra libre de enfermedad aparente incluyendo calendario de desparasitación y vacunación correspondientes.

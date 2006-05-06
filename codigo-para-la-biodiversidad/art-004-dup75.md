@@ -1,0 +1,2 @@
+Artículo 4.75. Los empleados que presten el servicio de recolección deberán portar visiblemente su adscripción a los servicios públicos de limpia municipales y cuando se trate de concesionarios dicho distintivo deberá estar aprobado por la autoridad correspondiente.
+Los operadores de vehículos de recolección de residuos sólidos deberán cumplir con las disposiciones correspondientes del presente Libro y demás ordenamientos jurídicos aplicables.

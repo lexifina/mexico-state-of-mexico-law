@@ -1,0 +1,1 @@
+Artículo 4.76. Los vehículos utilizados en la recolección de residuos sujetos a esquemas de separación en la fuente deberán contar con contenedores distintos que permitan el acopio por separado de los mismos permaneciendo cerrado su contenedor durante el traslado de dichos residuos hacia las plantas de selección, estaciones de transferencia o los sitios de disposición final.

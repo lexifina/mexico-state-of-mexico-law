@@ -1,0 +1,6 @@
+Artículo 2.57. El Estado y sus Municipios en el ámbito de sus respectivas competencias diseñarán, desarrollarán y aplicarán instrumentos económicos que incentiven el cumplimiento de los objetivos de la política ambiental mediante los que se buscará:
+I. Promover un cambio en la conducta de las personas que realicen actividades agropecuarias, industriales, comerciales y de servicios de tal manera que la satisfacción de los intereses particulares sea congruente con el cuidado de la biodiversidad, con los intereses colectivos de protección ambiental, desarrollo sostenible, sociales, culturales y de mercado;
+II. Fomentar la incorporación a los sistemas económicos de información confiable y suficiente sobre las consecuencias, beneficios y costos ambientales;
+III. Promover incentivos para quien o quienes realicen acciones para la protección a la biodiversidad, de preservación, conservación, remediación o restauración del equilibrio ecológico;
+IV. Generar mayor equidad social en la distribución de costos y beneficios asociados a los objetivos de la política ambiental; y
+V. Procurar la utilización conjunta con otros instrumentos de política ambiental, en especial cuando se trate de observar umbrales o límites en la utilización de los ecosistemas, de tal manera que se garantice su integridad y equilibrio, así como la salud y el bienestar de la población.

@@ -1,0 +1,3 @@
+CAPITULO III
+DE LOS CONOCIMIENTOS, INNOVACIONES Y PRACTICAS DE LAS COMUNIDADES RURALES
+Artículo 5.24. En las actividades de conservación y aprovechamiento sostenible de la vida silvestre se respetarán, conservarán y mantendrán los conocimientos, innovaciones y prácticas de las comunidades rurales que entrañen estilos tradicionales de vida pertinentes para la conservación y aprovechamiento sostenible de la vida silvestre y su hábitat y se promoverá su aplicación más amplia con la aprobación y la participación de quienes posean esos conocimientos, innovaciones y prácticas. Se fomentará que los beneficios derivados de la utilización de esos conocimientos, innovaciones y prácticas se compartan equitativamente.

@@ -1,0 +1,1 @@
+Artículo 6.68. Queda prohibida la venta de animales en la vía pública. Las autoridades administrativas procederán a requisar los animales que se pretendan vender en la vía pública y aplicarán las sanciones correspondientes a quienes infrinjan esta disposición. Los animales requisados se destinarán a los albergues de asistencia social.

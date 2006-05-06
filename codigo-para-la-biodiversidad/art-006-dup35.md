@@ -1,0 +1,1 @@
+Artículo 6.35. Los animales que asistan a personas con alguna discapacidad o que por prescripción médica deban acompañarse de algún animal tienen libre acceso a todos los lugares y servicios públicos salvo los que pudieran poner en peligro al animal o las personas.

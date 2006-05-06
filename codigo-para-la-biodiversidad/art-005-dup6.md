@@ -1,0 +1,1 @@
+Artículo 5.6. El diseño y la aplicación de la política estatal en materia de vida silvestre y su hábitat corresponderá en sus respectivos ámbitos de competencia al Gobierno del Estado y a los Municipios.

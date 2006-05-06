@@ -1,0 +1,1 @@
+Artículo 3.26. El Gobernador del Estado y los Presidentes Municipales incorporarán en sus informes anuales el estado que guardan las administraciones públicas estatal y municipal un apartado específico del sector forestal.

@@ -1,0 +1,1 @@
+Artículo 6.65. El traslado de animales vivos de las especies de caprinos, conejos, aves y otros similares no se deberá hacer en costales o suspendidos de los miembros inferiores o superiores y en el caso de que se lleven andando queda prohibido golpearlos y arrastrarlos, así como hacerlos correr en forma desconsiderada.

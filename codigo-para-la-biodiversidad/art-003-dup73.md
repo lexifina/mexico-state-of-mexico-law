@@ -1,0 +1,1 @@
+Artículo 3.73. El Estado en su Ley de Ingresos y Presupuesto de Egresos junto con los Municipios promoverán estímulos e incentivos económicos-fiscales para los miembros de los pueblos y comunidades indígenas que realicen actividades de aprovechamiento sostenible, así como de restauración y protección de sus recursos forestales.

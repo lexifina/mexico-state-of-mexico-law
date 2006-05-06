@@ -1,0 +1,3 @@
+Artículo 6.37. La captura de animales en la vía pública sólo puede realizarse cuando los animales deambulen sin dueño aparente ni placa de identidad y deberán ser libres de maltrato.
+La captura no se llevará a cabo si una persona comprueba ser propietaria del animal, excepto cuando visiblemente sea indispensable para mantener el orden o para prevenir zoonosis o epizootias en coordinación con las dependencias encargadas de la sanidad animal previa identificación.
+Se sancionará a aquella persona que agreda al personal encargado de la captura de animales abandonados y que causen algún daño a vehículos o al equipo utilizado para tal fin.

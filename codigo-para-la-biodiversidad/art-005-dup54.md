@@ -1,0 +1,1 @@
+Artículo 5.54. Las áreas de refugio para proteger especies acuáticas podrán ser establecidas en sitios claramente definidos en cuanto a su ubicación y deslinde por el instrumento que las crea.

@@ -1,0 +1,1 @@
+Artículo 4.53. Los contenedores o recipientes de residuos generados en los domicilios deberán mantenerse dentro del predio del ciudadano que lo habita y sólo se sacarán a la vía pública o áreas comunes el tiempo necesario para su recolección el día y hora señalados por los prestadores del servicio de limpia.

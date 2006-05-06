@@ -1,0 +1,4 @@
+Artículo 5.42. La importación de ejemplares, partes y derivados de especies silvestres requerirá de autorización expedida por la Secretaría de Medio Ambiente y Recursos Naturales de conformidad con lo establecido en el Reglamento federal.
+No será necesario contar con la autorización a la que se refiere el párrafo anterior cuando se trate de:
+I. Material biológico de vida silvestre de colecciones científicas o museográficas debidamente registradas con destino a otras colecciones científicas en calidad de préstamo o como donativo acompañado de la constancia correspondiente expedida por la institución a la que pertenece la colección de conformidad con lo establecido en el Reglamento, siempre y cuando no tenga fines comerciales ni de utilización en biotecnología; y
+II. Los artículos de uso personal, siempre y cuando no excedan de dos piezas del mismo producto.

@@ -1,0 +1,1 @@
+Artículo 2.37. El Ejecutivo Estatal instituirá la política ambiental mediante el Programa Estatal de Protección a la Biodiversidad y Desarrollo Sostenible, en éste se establecerán objetivos, metas y lineamientos estratégicos generales y particulares.

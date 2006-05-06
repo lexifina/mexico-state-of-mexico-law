@@ -1,0 +1,4 @@
+SECCION TERCERA
+DEL DERECHO A LA INFORMACION PUBLICA AMBIENTAL
+Artículo 2.23. La Secretaría operará dentro del Sistema de Información Pública Ambiental, la vigilancia de los ecosistemas y su equilibrio en el Estado, con el objeto de salvaguardar el derecho de la ciudadanía a la información pública ambiental para lo cual podrá coordinar sus acciones con las dependencias y organismos federales, estatales y con los Ayuntamientos del Estado y propondrá al titular del Poder Ejecutivo del Estado la celebración de acuerdos de coordinación con los Gobiernos Federal y Municipal para apoyar la vigilancia en materias reservadas a la Federación en zonas de protección federal ubicadas en el territorio del Estado.
+El Sistema mencionado comprenderá la información y vigilancia de las normas biotecnológicas y todos los avances científicos en la forma y términos que señalen las disposiciones reglamentarias.

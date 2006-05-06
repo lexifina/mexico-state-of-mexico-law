@@ -1,0 +1,1 @@
+Artículo 6. 49. Los animales que se empleen para tiro de carretas, arados u otros medios de conducción similares deberán ser uncidos procurando evitarles una molestia mayor a la normal y sobre todo que se lesionen.

@@ -1,0 +1,1 @@
+Artículo 5.2. En todo lo no previsto en el presente Libro se aplicarán las disposiciones de la Ley General de Vida Silvestre, la Ley General del Equilibrio Ecológico y la Protección al Ambiente y de otros ordenamientos relacionados sobre la materia.

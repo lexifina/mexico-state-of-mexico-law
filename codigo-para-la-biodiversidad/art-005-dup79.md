@@ -1,0 +1,2 @@
+Artículo 5.79. Los medios y formas para ejercer el aprovechamiento deberán minimizar los efectos negativos sobre las poblaciones y el hábitat.
+La autorización de aprovechamiento generará para su titular la obligación de presentar informes periódicos de conformidad con lo establecido en el Reglamento que deberán incluir la evaluación de los efectos que ha tenido el respectivo aprovechamiento sobre las poblaciones y sus hábitats.

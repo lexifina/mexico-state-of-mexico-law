@@ -1,0 +1,2 @@
+Artículo 4.72. Las autoridades municipales deberán disponer de los recursos financieros necesarios para garantizar la prestación de este servicio tanto provenientes de las asignaciones presupuestales como derivados del cobro por brindar los servicios de limpia cuando éstos no hayan sido concesionados.
+En cualquiera de los casos se deberá proporcionar a los trabajadores involucrados en los servicios los uniformes, gafetes y equipos de protección para realizar sus labores en condiciones de seguridad y según sea el tipo de actividades en las que estén involucrados.

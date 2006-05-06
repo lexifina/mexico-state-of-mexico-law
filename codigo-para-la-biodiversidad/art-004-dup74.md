@@ -1,0 +1,1 @@
+Artículo 4.74. Todos los vehículos destinados a la recolección de residuos sólidos deberán cumplir con la normatividad ambiental y de tránsito vigente, además de poseer una imagen institucional definida con los colores que las identifiquen como de servicio público y distintiva del Municipio al que pertenece.

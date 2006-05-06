@@ -1,0 +1,1 @@
+Artículo 6.59. Los establecimientos, instalaciones y prestadores de servicios que manejen animales deben estar autorizados para tal fin y cumplirán con este Libro, su Reglamento y las normas técnicas estatales aplicables y deberán contar con un responsable el cual será médico veterinario zootecnista con cédula profesional.

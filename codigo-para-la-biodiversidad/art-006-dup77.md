@@ -1,0 +1,1 @@
+Artículo 6.77. En ningún caso las reses y otros de semejante naturaleza presenciarán el sacrificio de sus congéneres. Queda prohibido estrictamente el sacrificio de hembras en el período de tiempo próximo al parto.

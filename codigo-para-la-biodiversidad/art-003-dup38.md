@@ -1,0 +1,2 @@
+Artículo 3.38. En el Reglamento del presente Libro se determinarán los criterios, metodología y procedimientos para la integración, organización y actualización de la ordenación forestal los cuales deberán considerar los mecanismos necesarios para tomar en consideración la participación, opinión y propuesta comunitaria de los propietarios de los predios forestales y agropecuarios.
+Dicha ordenación deberá publicarse en la Gaceta del Gobierno.

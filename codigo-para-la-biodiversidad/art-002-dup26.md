@@ -1,0 +1,1 @@
+Artículo 2.26. A efecto de remitir la información al Sistema, las dependencias, entidades y Ayuntamientos estarán facultados para requerir de aquellas personas físicas o jurídicas colectivas e instituciones públicas o privadas, involucradas en las actividades que regula el presente Libro los datos y estadísticas necesarios para tal objeto.

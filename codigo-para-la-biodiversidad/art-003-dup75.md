@@ -1,0 +1,1 @@
+Artículo 3.75. No serán objeto de los estímulos económico-fiscales estatales y municipales los propietarios y poseedores de aquellos predios que hubiesen realizado acciones de forestación o reforestación con motivo de una sanción de la autoridad competente.

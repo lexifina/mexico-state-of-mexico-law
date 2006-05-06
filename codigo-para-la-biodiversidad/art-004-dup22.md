@@ -1,0 +1,3 @@
+SECCION SEXTA
+DE LOS RESIDUOS SOLIDOS
+Artículo 4.22. La Secretaría y las autoridades municipales competentes recabarán, registrarán, sistematizarán, analizarán y pondrán a disposición del público la información obtenida en el ejercicio de sus funciones vinculadas a la generación y manejo integral de los residuos sólidos urbanos y de manejo especial, la prestación del servicio de limpia, la identificación de sitios contaminados con residuos y las acciones de remediación de los sitios contaminados a través de los mecanismos establecidos en el Libro Segundo del presente Código sin perjuicio de la debida reserva de aquella información protegida por las leyes.

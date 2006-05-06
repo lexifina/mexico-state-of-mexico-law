@@ -1,0 +1,1 @@
+Artículo 4.37. La Secretaría desarrollará la planeación, instrumentación, evaluación y control de los sistemas de manejo ambiental con el concurso del órgano de control interno correspondiente, para tal efecto la Secretaría coordinará los trabajos necesarios que logren dicho fin.

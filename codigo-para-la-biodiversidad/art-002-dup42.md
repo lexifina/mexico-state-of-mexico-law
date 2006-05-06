@@ -1,0 +1,6 @@
+Artículo 2.42. En el planteamiento y regulación del Programa de Ordenamiento Ecológico del Territorio Estatal se señalarán los mecanismos que proporcionen alternativas de solución a problemas ambientales específicos y a la reducción de conflictos a través del establecimiento de políticas ambientales, lineamientos, criterios ecológicos y construcción de consensos, con la participación de la sociedad en general; y se considerará lo siguiente:
+I. Las características particulares del ecosistema dentro del territorio del Estado de conformidad con el Programa de Ordenamiento Ecológico del Territorio Nacional;
+II. La vocación de la zona o región del Estado en función de sus recursos, la densidad de población y las actividades económicas predominantes en la misma;
+III. Los desequilibrios ecológicos existentes en los ecosistemas por efecto derivado de los asentamientos humanos y las condiciones ambientales existentes;
+IV. El equilibrio que debe existir entre los asentamientos humanos y sus condiciones ambientales; y
+V. El impacto ambiental de nuevos asentamientos humanos, vías de comunicación y la realización de todo tipo de obras públicas o privadas, agropecuarias, industriales, comerciales o de servicios.

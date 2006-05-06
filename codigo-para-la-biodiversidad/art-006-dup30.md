@@ -1,0 +1,1 @@
+Artículo 6.30. Todo propietario, poseedor o encargado de una mascota que voluntariamente lo abandone y cauce por tal motivo un daño a terceros será responsable del animal y de los perjuicios (sic) éste ocasione.

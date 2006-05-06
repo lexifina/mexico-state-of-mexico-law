@@ -1,0 +1,1 @@
+Artículo 6.43. La dirección de los parques de exhibición animal que operen en el Estado estará a cargo de un médico veterinario o especialista equivalente quién otorgará una responsiva sobre la seguridad de los visitantes, de los trabajadores del parque y sobre el cuidado de los animales domésticos.

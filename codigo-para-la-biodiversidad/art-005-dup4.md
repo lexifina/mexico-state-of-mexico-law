@@ -1,0 +1,3 @@
+Artículo 5.4. Es deber de todos los habitantes de la Entidad conservar la vida silvestre, queda prohibido cualquier acto que implique su destrucción, daño o perturbación en perjuicio de los intereses del Estado.
+Los propietarios o legítimos poseedores de los predios en donde se distribuye la vida silvestre tendrán derechos del aprovechamiento sostenible sobre sus ejemplares, partes y derivados en los términos prescritos en el presente Libro y demás disposiciones aplicables.
+Los derechos sobre los recursos genéticos estarán sujetos a los tratados internacionales y a las disposiciones sobre la materia.

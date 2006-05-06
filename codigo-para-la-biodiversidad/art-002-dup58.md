@@ -1,0 +1,1 @@
+Artículo 2.58. Las personas físicas o jurídicas colectivas que se dediquen de manera habitual a las actividades ambientales reconocidas en el presente Libro no podrán obtener el derecho al beneficio de los estímulos fiscales cuando realicen de manera sistemática alguna conducta que incumpla, prohíba o esté en contra de este Código.

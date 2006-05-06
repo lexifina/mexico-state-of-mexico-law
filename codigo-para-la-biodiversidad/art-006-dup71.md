@@ -1,0 +1,2 @@
+Articulo 6.71. Ningún particular podrá vender, alquilar, prestar o donar animales para que se realicen experimentos con ellos salvo a solicitud de instituciones científicas, médicas, culturales, educativas o con fines similares.
+Queda prohibido capturar animales abandonados, entregarlos voluntariamente o establecer programas de entrega voluntaria de animales para experimentar con ellos. Los centros de control animal no podrán destinar animales para que se realicen experimentos con éstos.

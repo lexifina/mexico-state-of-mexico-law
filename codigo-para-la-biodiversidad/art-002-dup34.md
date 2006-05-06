@@ -1,0 +1,1 @@
+Artículo 2.34. Quien reciba información pública ambiental de las autoridades competentes en los términos del presente Capítulo, será responsable de su adecuada utilización y responderá por los daños y perjuicios que se ocasionen por su indebido uso.

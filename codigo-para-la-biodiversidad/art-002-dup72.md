@@ -1,0 +1,2 @@
+Artículo 2.73. En el reglamento, se determinarán aquellas obras o actividades que se sujetarán a autorización de informe previo, así como el procedimiento y los criterios a seguir.
+La Secretaría en todo momento podrá requerir a las autoridades municipales aquellos expedientes que siendo de su competencia, dada la información presentada, la dimensión y tipo de la obra, así como los posibles impactos que pudiere generar, se considere que es la Secretaría la que emitirá la autorización correspondiente.

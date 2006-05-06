@@ -1,0 +1,2 @@
+Artículo 1.3. Los actos y procedimientos que dicten o ejecuten las autoridades en las materias reguladas por este Código, así como los procedimientos administrativos que se susciten por la aplicación del mismo, se regirán conforme a las disposiciones del Código Administrativo del Estado de México y el Código de Procedimientos Administrativos del Estado de México.
+Tratándose de la planeación de las materias que regula el presente Código se estará a lo dispuesto en el mismo.

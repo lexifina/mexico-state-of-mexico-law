@@ -1,0 +1,2 @@
+Artículo 6.73. El sacrificio de los animales destinados al consumo se realizará de acuerdo a las autorizaciones que expidan las autoridades sanitarias por una parte y por otra la oficina de protección a los animales del Estado o Municipio.
+El sacrificio de animales deberá ser humanitario y se hará en los locales adecuados destinados para tal efecto salvo que exista autorización sanitaria que permita el sacrificio en otro sitio mediante procedimientos indoloros.

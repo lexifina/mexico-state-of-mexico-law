@@ -1,0 +1,1 @@
+Artículo 3.43. Este derecho puede ser a título oneroso o gratuito y deberá tomar su origen en un contrato o disposición testamentaria, es enajenable y transmisible por herencia y puede constituirse a plazo fijo o a plazo indeterminado.

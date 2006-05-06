@@ -1,0 +1,1 @@
+Artículo 6. 45. Cualquier clase de vehículos que sean movidos por animales no podrán ser cargados con un peso excesivo o desproporcionado teniendo en cuenta las condiciones de los animales que se empleen para su tracción.

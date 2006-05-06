@@ -1,0 +1,2 @@
+Artículo 2.75. Una vez recibido el informe previo, la autoridad competente, en un plazo no mayor a quince días hábiles, les comunicará a los interesados si procede o no la presentación de una manifestación de impacto o riesgo ambiental.
+En aquellos casos que por negligencia, dolo o mala fe se ingrese el informe previo, pretendiendo se aplique la afirmativa ficta, se entenderá que el ingreso del procedimiento para la autorización del informe previo es inexistente, independientemente de las sanciones previstas en este Libro.

@@ -1,0 +1,1 @@
+Artículo 4.64. Los recipientes y contenedores que las autoridades dispongan en la vía pública deberán ser diferenciados para distinguir los destinados a los residuos sólidos urbanos de tipo orgánico e inorgánico conforme a lo establecido en el artículo anterior cuando los Municipios hayan establecido los programas de aprovechamiento de residuos correspondientes.

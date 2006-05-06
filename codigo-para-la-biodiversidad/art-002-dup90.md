@@ -1,0 +1,1 @@
+Artículo 2.91. La Secretaría llevará el registro de las áreas integrantes del Sistema Estatal de Areas Naturales Protegidas en el que se consignarán los datos de su inscripción en el Registro Público de la Propiedad que corresponda.

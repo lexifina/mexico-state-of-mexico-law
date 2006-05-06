@@ -1,0 +1,1 @@
+Artículo 4.81. Todo el personal que labore en las plantas de selección deberá estar debidamente acreditado por las autoridades municipales competentes, y en ningún caso podrá estar condicionada su labor a inscribirse en contra de su voluntad a sindicato alguno o pertenecer a alguna organización o asociación pública o privada.

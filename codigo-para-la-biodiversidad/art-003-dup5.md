@@ -1,0 +1,1 @@
+Artículo 3.5. En lo no previsto en este Libro se aplicarán en forma supletoria y en lo conducente las disposiciones del Libro Segundo del presente Código, de la Ley General de Desarrollo Forestal Sustentable y demás ordenamientos aplicables en la materia.

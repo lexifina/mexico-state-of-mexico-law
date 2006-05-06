@@ -1,0 +1,1 @@
+Artículo 5.13. Los Municipios además de las atribuciones vinculadas a esta materia que les confiere el artículo 115 constitucional ejercerán las que les sean transferidas por el Estado mediante acuerdos o convenios.

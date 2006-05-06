@@ -1,0 +1,3 @@
+CAPITULO II
+DE LA SEPARACION Y ORGANIZACION DE RESIDUOS
+Artículo 4.61. Los habitantes del Estado, las empresas, establecimientos mercantiles, instituciones públicas y privadas, dependencias gubernamentales y en general todo generador de residuos urbanos y de manejo especial que sean entregados a los servicios de limpia tienen la obligación de separarlos desde la fuente con el fin de facilitar su disposición ambientalmente adecuada y ponerlos a disposición de los prestadores del servicio de recolección o llevarlos a los centros de acopio de residuos susceptibles de reciclado según corresponda, de conformidad con lo que establezcan las autoridades municipales correspondientes.

@@ -1,0 +1,1 @@
+Artículo 4.63. Las autoridades municipales instrumentarán campañas permanentes para fomentar la separación de residuos sólidos urbanos y de manejo especial desde su fuente para facilitar la implantación de sistemas para la gestión integral de dichos residuos conforme a los lineamientos que establezca la Secretaría.

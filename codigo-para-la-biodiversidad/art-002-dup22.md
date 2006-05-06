@@ -1,0 +1,1 @@
+Artículo 2.22. La Secretaría desarrollará políticas de comunicación social a través de los medios de comunicación y organismos del sector social y privado; con el objeto de fortalecer la conciencia, cultura y educación ambiental en todos los sectores de la población.

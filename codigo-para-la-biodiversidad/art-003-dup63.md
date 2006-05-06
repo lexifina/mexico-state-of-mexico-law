@@ -1,0 +1,1 @@
+Artículo 3.63. Los propietarios, poseedores y usufructuarios de los terrenos donde se verifique un incendio forestal deberán colaborar con todos los medios técnicos o humanos adecuados de que dispongan para las tareas de extinción.

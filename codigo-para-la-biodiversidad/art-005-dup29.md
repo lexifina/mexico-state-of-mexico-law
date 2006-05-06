@@ -1,0 +1,1 @@
+Artículo 5.29. Cuando se realice traslado de ejemplares vivos de fauna silvestre éste se deberá efectuar bajo condiciones que eviten o disminuyan la tensión, ansiedad, sufrimiento, traumatismo y dolor teniendo en cuenta las características de cada especie.

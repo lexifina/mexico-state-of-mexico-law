@@ -1,0 +1,1 @@
+Artículo 6.89. Las autoridades competentes podrán ordenar o proceder a la vacunación, atención médica y al sacrificio humanitario de animales que puedan constituirse en transmisores de enfermedades graves que pongan en riesgo la salud del ser humano en coordinación con las dependencias encargadas de la sanidad animal.

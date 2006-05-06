@@ -1,0 +1,1 @@
+Artículo 3.50. PROBOSQUE promoverá el desarrollo de un sistema de mejoramiento genético forestal con la evaluación y registro de progenitores, la creación de áreas y huertos semilleros, viveros forestales maderables y no maderables y bancos de germoplasma.

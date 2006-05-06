@@ -1,0 +1,1 @@
+Artículo 5.34. La tensión, sufrimiento, ansiedad, crueldad, traumatismo y dolor de los ejemplares de fauna silvestre deberá evitarse o disminuirse en los casos de sacrificio de éstos mediante la utilización de los métodos físicos o químicos adecuados.

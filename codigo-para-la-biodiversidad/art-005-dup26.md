@@ -1,0 +1,1 @@
+Artículo 5.26. La Secretaría determinará a través de las normas oficiales mexicanas correspondientes, las medidas que deberán de aplicarse para evitar que los ejemplares de las especies silvestres en confinamiento sean sometidas a condiciones adversas a su salud y a su vida durante la aplicación de medidas sanitarias.

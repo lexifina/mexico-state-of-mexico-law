@@ -1,0 +1,1 @@
+Artículo 6. 51. Los animales a que se refieren los artículos anteriores sólo podrán ser amarrados o estacionados durante la prestación de su trabajo en lugares que se encuentren cubiertos del sol y de la lluvia y deberán descansar un día a la semana no pudiendo ser prestados o alquilados en ese día para ejecutar labores.

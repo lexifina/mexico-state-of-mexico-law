@@ -1,0 +1,1 @@
+Artículo 3.82. Los recursos, producto de los estímulos fiscales y los incentivos gubernamentales obtenidos por los pueblos hospital serán administrados y operados en autogestión y bajo la responsabilidad de los mismos beneficiarios comunitarios.

@@ -1,0 +1,1 @@
+Artículo 4.4. En todo lo no previsto en este Libro se aplicarán las disposiciones contenidas en la Ley General del Equilibrio Ecológico y la Protección al Ambiente, la Ley General para la Prevención y Gestión Integral de los Residuos, el presente Código y en otros ordenamientos jurídicos relacionados.

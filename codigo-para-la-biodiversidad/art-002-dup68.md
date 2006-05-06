@@ -1,0 +1,1 @@
+Artículo 2.69. Al realizar la evaluación del impacto ambiental, la Secretaría se ajustará a los programas de ordenamiento ecológico del territorio y considerará los planes de desarrollo urbano, las declaratorias de áreas naturales protegidas y sus programas de manejo, las normas y demás disposiciones jurídicas que resulten aplicables.

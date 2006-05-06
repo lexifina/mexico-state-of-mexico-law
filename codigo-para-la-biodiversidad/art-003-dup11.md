@@ -1,0 +1,1 @@
+Artículo 3.11. Los acuerdos serán tomados en la instancia de coordinación pero la ejecución de los proyectos estará a cargo de los Gobiernos Federal, Estatal y Municipal en la parte que les corresponda conforme a las disposiciones legales aplicables.

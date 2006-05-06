@@ -1,0 +1,1 @@
+Artículo 2.21. La Secretaría en coordinación con las instituciones de educación superior y de investigación del Estado, nacionales e internacionales implementará los proyectos de investigación aplicada, para la búsqueda de mejores alternativas en la solución de la problemática ambiental en la Entidad.

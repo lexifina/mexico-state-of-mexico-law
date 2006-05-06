@@ -1,0 +1,1 @@
+Artículo 2.62. La Secretaría con el apoyo de otras dependencias y entidades estatales y municipales determinará las zonas y bienes estatales que requieran actividades de preservación, conservación, remediación, rehabilitación y restauración del equilibrio ecológico.

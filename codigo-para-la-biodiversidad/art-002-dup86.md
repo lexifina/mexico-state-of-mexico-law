@@ -1,0 +1,3 @@
+SECCION SEGUNDA
+DE LAS CATEGORIAS Y REGIMENES DE PROTECCION ESPECIAL DE LAS AREAS NATURALES PROTEGIDAS
+Artículo 2.87. En los términos del presente Libro las áreas naturales protegidas a que se refiere este Capítulo podrán ser materia de protección como reservas ecológicas para los propósitos, efectos y modalidades que en el presente Ordenamiento y en el Reglamento que para el efecto expida la Secretaría donde se precisen mediante la imposición de las limitaciones que determinen las autoridades competentes y las leyes aplicables, las zonas que serán consideradas como áreas naturales protegidas y de interés público.

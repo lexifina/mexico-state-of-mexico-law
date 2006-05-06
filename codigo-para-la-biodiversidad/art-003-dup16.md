@@ -1,0 +1,1 @@
+Artículo 3.16. El ejercicio de las anteriores funciones que asume el Gobierno del Estado a través de PROBOSQUE por virtud del convenio de coordinación previsto en el artículo 24 de la Ley General de Desarrollo Forestal Sustentable se regirá por lo dispuesto en la citada Ley y su Reglamento.

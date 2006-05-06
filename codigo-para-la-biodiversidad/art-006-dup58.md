@@ -1,0 +1,2 @@
+Artículo 6.58. Los refugios de las asociaciones protectoras de animales, clínicas, consultorios u hospitales veterinarios, centros de control animal, escuelas de adiestramiento, pensiones y demás instalaciones creadas para alojar temporal o permanentemente a los animales deberán contar con la supervisión de un médico veterinario zootecnista con cédula profesional y personal capacitado e instalaciones adecuadas.
+Si el animal bajo su custodia contrae alguna enfermedad, se lesiona o muere se le comunicará de inmediato al propietario o responsable.

@@ -1,0 +1,1 @@
+Artículo 6.63. El transporte de aves o cualesquiera otros animales pequeños deberá hacerse en cajas, huacales o jaulas que tengan la amplitud y ventilación necesaria para permitir que los mismos viajen sin maltratarse y sin que se causen daño.

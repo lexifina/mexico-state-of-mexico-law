@@ -1,0 +1,1 @@
+Artículo 2.66. En casos de emergencia que pongan en riesgo la integridad de las personas o del ambiente, la Secretaría podrá publicar en la Gaceta del Gobierno, normas técnicas ambientales estatales sin sujetarse al procedimiento específico. La vigencia de estas normas estará determinada por la temporalidad de la emergencia.

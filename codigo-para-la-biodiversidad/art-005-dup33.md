@@ -1,0 +1,1 @@
+Artículo 5.33. Durante los procesos de comercialización de ejemplares de la fauna silvestre se deberá evitar o disminuir la tensión, ansiedad, sufrimiento, crueldad, traumatismo y dolor de los mismos mediante el uso de métodos e instrumentos de manejo apropiados.

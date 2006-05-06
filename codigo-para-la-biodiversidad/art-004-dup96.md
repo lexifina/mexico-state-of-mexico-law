@@ -1,0 +1,1 @@
+Artículo 4.96. Las empresas a las que se hace mención en el artículo anterior tendrán incentivos fiscales y descuentos en el pago de derechos por manejo y disposición de residuos según lo establezca el Reglamento del presente Libro.

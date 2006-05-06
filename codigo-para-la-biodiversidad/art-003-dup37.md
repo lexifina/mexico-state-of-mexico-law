@@ -1,0 +1,1 @@
+Artículo 3.37. El Estado promoverá mediante la suscripción de convenios de colaboración la participación activa de los Municipios, de los poseedores y propietarios forestales, de los prestadores de servicios técnicos y del sector académico en la ordenación forestal.

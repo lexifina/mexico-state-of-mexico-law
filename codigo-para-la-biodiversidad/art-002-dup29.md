@@ -1,0 +1,1 @@
+Artículo 2.29. Toda petición de información pública ambiental deberá presentarse por escrito especificando claramente la información que se solicita y los motivos de la petición. Los solicitantes deberán identificarse indicando su nombre o razón social y domicilio.

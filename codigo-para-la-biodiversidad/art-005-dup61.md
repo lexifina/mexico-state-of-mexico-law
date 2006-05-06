@@ -1,0 +1,3 @@
+CAPITULO VII
+DE LA MOVILIDAD Y DISPERSION DE POBLACION DE ESPECIES SILVESTRES NATIVAS
+Artículo 5.61. Queda prohibido el uso de cercos u otros métodos de conformidad con lo establecido en el Reglamento para retener o atraer ejemplares de la fauna silvestre nativa que de otro modo se desarrollarían en varios predios. La Secretaría aprobará el establecimiento de cercos no permeables y otros métodos como medida de manejo para ejemplares y poblaciones de especies nativas cuando así se requiera para proyectos de recuperación y actividades de reproducción, repoblación, reintroducción, traslocación o preliberación.

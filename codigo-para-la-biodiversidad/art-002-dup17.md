@@ -1,0 +1,1 @@
+Artículo 2.17. La Secretaría establecerá el Registro Estatal Ambiental en el que inscribirá la información que obtenga a través del Sistema y del Centro a que se refiere el artículo anterior. El registro será público y no tendrá efectos constitutivos ni surtirá efectos contra terceros.

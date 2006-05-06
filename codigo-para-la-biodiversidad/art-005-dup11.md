@@ -1,0 +1,13 @@
+Artículo 5.11. El Estado por conducto de la Secretaría podrá suscribir convenios o acuerdos de coordinación con el objeto de que los Gobiernos Municipales asuman las siguientes facultades en el ámbito de su jurisdicción territorial:
+I. Autorizar, registrar y supervisar técnicamente el establecimiento de unidades de manejo para la conservación de vida silvestre en el ámbito de su jurisdicción territorial;
+II. Atender los asuntos relativos al manejo, control y remediación de problemas asociados a ejemplares y poblaciones que se tornen perjudiciales;
+III. Aplicar las medidas de sanidad relativas a la vida silvestre;
+IV. Aplicar las medidas relativas al hábitat crítico y a las áreas de refugio para proteger las especies acuáticas reguladas en el presente Libro;
+V. Promover y aplicar las medidas relativas al trato digno y respetuoso de la fauna silvestre;
+VI. Promover el establecimiento de las condiciones para el manejo y destino de ejemplares fuera de su hábitat natural de conformidad con los procedimientos establecidos en este Libro;
+VII. Llevar a cabo la inspección y vigilancia del cumplimiento del presente Libro y del Reglamento que de él se derive, así como imponer las medidas de seguridad y las sanciones administrativas establecidas en el presente Ordenamiento;
+VIII. Promover el establecimiento de las condiciones necesarias para el desarrollo de parques zoológicos municipales basados en criterios de sostenibilidad y aplicar los instrumentos de política ambiental para estimular el logro de los objetivos de conservación y aprovechamiento sostenible de la vida silvestre;
+IX. Otorgar, suspender, modificar y revocar las autorizaciones, certificaciones, registros y demás actos administrativos vinculados al aprovechamiento y liberación de ejemplares de las especies y poblaciones silvestres en el ejercicio de las actividades cinegéticas y para la prestación de servicios de este tipo de aprovechamiento, así como para la colecta científica de conformidad con las normas y demás disposiciones legales aplicables; y
+X. Promover el desarrollo de proyectos, estudios y actividades encaminados a la cultura, educación, capacitación e investigación sobre la vida silvestre para el desarrollo del conocimiento técnico y científico y el fomento de la utilización del conocimiento tradicional.
+Dichas facultades serán ejercidas conforme a lo dispuesto en este Libro y demás disposiciones reglamentarias aplicables y en aquellas que de las mismas deriven.
+En contra de los actos que emitan los Municipios en ejercicio de las facultades que asuman de conformidad con este precepto respecto de los particulares procederán los recursos y medios de defensa establecidos en el presente Código.

@@ -1,0 +1,1 @@
+Artículo 3.28. Los Ayuntamientos proporcionarán a la Secretaría, la información que recabe en el cumplimiento de sus atribuciones para que (sic) su integración al Sistema Estatal de Información Forestal.

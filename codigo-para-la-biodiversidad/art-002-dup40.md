@@ -1,0 +1,1 @@
+Artículo 2.40. La Secretaría elaborará, actualizará y gestionará el Programa de Ordenamiento Ecológico del Territorio Estatal y la guía para que los Ayuntamientos elaboren los Programas de Ordenamiento Ecológico del Territorio Municipal; sujetándose a las disposiciones de la legislación en materia de planeación y a la Ley General.

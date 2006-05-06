@@ -1,0 +1,1 @@
+Artículo 2.44. Los Programas de Ordenamiento Ecológico Regionales del Territorio Estatal podrán abarcar la totalidad o una parte del territorio del Estado de conformidad con las regiones ecológicas que determine el Programa de Ordenamiento Ecológico del Territorio Nacional dentro del territorio de la Entidad.

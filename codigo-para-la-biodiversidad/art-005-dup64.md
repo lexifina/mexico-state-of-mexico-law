@@ -1,0 +1,3 @@
+CAPITULO VIII
+DE LA CONSERVACION DE LAS ESPECIES MIGRATORIAS
+Artículo 5.64. La conservación de las especies migratorias se llevará a cabo mediante la protección y mantenimiento de sus hábitats, el muestreo y seguimiento de sus poblaciones, así como el fortalecimiento y desarrollo de la cooperación internacional de acuerdo con las disposiciones de este Libro, de la Ley General del Equilibrio Ecológico y la Protección al Ambiente y de las que de ellas se deriven sin perjuicio de lo establecido en los tratados y otros acuerdos internacionales en los que el país sea parte contratante.

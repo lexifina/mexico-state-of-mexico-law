@@ -1,0 +1,1 @@
+Artículo 6.84. Las autoridades municipales deberán implantar acciones tendientes a la regulación del crecimiento de poblaciones de aves urbanas empleando sistemas inofensivos e innovadores y lograr la reubicación pacífica de las parvadas cuando causen o puedan causar problemas a las estructuras, edificaciones, obras artísticas y demás análogas en áreas comunes.

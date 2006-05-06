@@ -1,0 +1,3 @@
+SECCION TERCERA
+DEL TRATAMIENTO TERMICO
+Artículo 4.90. La determinación de la conveniencia de someter a tratamiento térmico residuos sólidos urbanos o de manejo especial deberá sustentarse en el diagnóstico básico de los residuos que se generan en la Entidad de la disponibilidad y factibilidad técnica y económica de otras alternativas para su valorización o tratamiento por otros medios. Los residuos antes señalados solo podrán ser sujetos a tratamientos térmicos autorizados por la Federación y cuyo desempeño ambiental sea acorde a lo dispuesto en la Ley General, las normas oficiales mexicanas y demás ordenamientos aplicables.

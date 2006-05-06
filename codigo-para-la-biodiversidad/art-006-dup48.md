@@ -1,0 +1,1 @@
+Artículo 6. 48. Los animales enfermos heridos, con matadura o desnutridos y las hembras en el periodo próximo al parto, por ningún motivo serán utilizados para tiro o carga y queda igualmente prohibido cabalgar sobre animales que se encuentran en estas condiciones.

@@ -1,0 +1,1 @@
+Artículo 3.40. Para llevar a cabo la ordenación el Estado expedirá programas de ordenación forestal de conformidad con lo establecido en el Reglamento del presente Libro con base en lo señalado en la Ley General de Desarrollo Forestal Sustentable.

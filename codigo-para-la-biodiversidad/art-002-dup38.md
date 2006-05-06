@@ -1,0 +1,1 @@
+Artículo 2.38. El Programa Estatal de Protección a la Biodiversidad y Desarrollo Sostenible, tomará en consideración los elementos que aporte el diagnóstico ambiental de la Entidad; los criterios ambientales y el ordenamiento ecológico del territorio estatal, tomando en cuenta la opinión y participación corresponsable de los sectores público, social y privado.

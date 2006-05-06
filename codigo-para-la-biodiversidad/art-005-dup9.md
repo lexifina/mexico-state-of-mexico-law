@@ -1,0 +1,1 @@
+Artículo 5.9. Corresponde al Estado las facultades señaladas en el artículo 10 de la Ley General de Vida Silvestre para los procedimientos administrativos previstos en el presente Libro y además se estará a lo dispuesto en este Código.

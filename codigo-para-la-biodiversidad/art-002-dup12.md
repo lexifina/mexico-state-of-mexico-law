@@ -1,0 +1,1 @@
+Artículo 2.12. El Consejo es un órgano de asesoría, consulta, estudio y opinión del Ejecutivo en materia de conservación ecológica y protección a la biodiversidad y al ambiente en la Entidad, así como de promoción de acciones de coordinación y concertación entre los sectores público, social y privado.

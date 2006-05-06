@@ -1,0 +1,3 @@
+SECCION PRIMERA
+DE LA PLANEACION Y PROGRAMACION
+Artículo 4.10. En la planeación e instrumentación de la política de residuos sólidos urbanos y de manejo especial, de los servicios de limpia y aseo público, así como de la prevención de la contaminación por residuos y la remediación de sitios contaminados se observarán los criterios establecidos en el artículo anterior, los principios establecidos en el articulo 4.2 del presente Libro y los lineamientos en la materia que establezca el Programa para la Prevención y Gestión Integral de Residuos Sólidos Urbanos y de Manejo Espacial del Estado de México.

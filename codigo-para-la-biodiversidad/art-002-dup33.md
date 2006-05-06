@@ -1,0 +1,1 @@
+Artículo 2.33. Los afectados por actos de las autoridades regulados en este Capítulo, podrán reclamar los mismos mediante la interposición del medio de impugnación procedente, en términos de lo establecido en el presente Libro y en el Código de Procedimientos Administrativos del Estado de México.

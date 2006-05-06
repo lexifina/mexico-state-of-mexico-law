@@ -1,0 +1,7 @@
+Artículo 6.70. Los experimentos que se lleven a cabo con animales se realizarán únicamente cuando estén plenamente justificados ante las autoridades correspondientes cuando tales actos sean imprescindibles para el estudio y avance de la ciencia, siempre y cuando esté demostrado que:
+I. Los experimentos sean realizados bajo la supervisión de una institución de educación superior o de investigación debidamente reconocida oficialmente y que la persona que dirige el experimento sea un médico veterinario zootecnista con cédula profesional y con la colaboración de personal que reúna los conocimientos y la acreditación necesaria;
+II. Los resultados experimentales deseados no puedan obtenerse por otros procedimientos o alternativas;
+III. Los experimentos (sic) sean necesarios para el control, seguridad, prevención, diagnóstico o tratamiento de enfermedades que afecten al ser humano o al animal;
+IV. Los experimentos no puedan ser sustituidos por esquemas, dibujos, películas, fotografías, videocintas, discos de vídeo compactos, materiales biológicos o cualquier otro procedimiento análogo; y
+V. Se realicen en animales criados preferentemente para tal fin.
+La Secretaría de Salud está obligada a supervisar las condiciones y desarrollo de las intervenciones quirúrgicas experimentales en animales. Cualquier acto violatorio que recaiga en el ámbito federal lo hará de su conocimiento de manera inmediata a la autoridad correspondiente.

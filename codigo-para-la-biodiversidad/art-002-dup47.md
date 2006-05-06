@@ -1,0 +1,1 @@
+Artículo 2.47. La Secretaría y los Municipios deberán integrar al Programa Estatal de Ordenamiento Ecológico del Territorio Estatal, las aportaciones de todos los sectores participantes cuando éstas estén sustentadas por estudios fundados de cualquier disciplina que resulte aplicable.
