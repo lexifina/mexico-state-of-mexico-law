@@ -1,4 +1,4 @@
-(ADICIONADO, G.G.12 DE JULIO DE 2004)
+(ADICIONADO, G.G. 12 DE JULIO DE 2004)
 Artículo 88-Bis.- Corresponde a la Sala Constitucional:
 I. Garantizar la supremacía y control de esta Constitución;
 II. Substanciar y resolver los procedimientos en materia de controversias que se deriven de esta Constitución, con excepción de las que se refieran a la materia electoral, surgidos entre:
