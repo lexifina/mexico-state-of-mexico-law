@@ -1,1 +1,1 @@
-Artículo 87 Bis.- (DEROGADO, G.G. 22 DE DICIEMBRE DE 2004)
+Artículo 87 Bis.- (DEROGADO, G.G. 30 DE JUNIO DE 2006).

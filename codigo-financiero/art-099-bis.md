@@ -1,1 +1,1 @@
-Artículo 99 Bis.- (DEROGADO, G.G. 6 DE DICIEMBRE DE 2002)
+Artículo 99 Bis.- (DEROGADO, G.G. 30 DE JUNIO DE 2006)
