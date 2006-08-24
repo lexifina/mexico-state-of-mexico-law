@@ -9,3 +9,5 @@ VI. La contratación de los servicios de reconstrucción y mantenimiento de bien
 VII. La contratación de los servicios de maquila, seguros y transportación, así como de los de limpieza y vigilancia de bienes inmuebles;
 VIII. La prestación de servicios profesionales, la contratación de consultorías, asesorías, estudios e investigaciones, excepto la contratación de servicios personales de personas físicas bajo el régimen de honorarios.
 En general, otros actos que impliquen la contratación de servicios de cualquier naturaleza.
+(ADICIONADO, G.G. 21 DE AGOSTO DE 2006)
+No aplicarán las disposiciones del presente Libro a la operación, administración, uso, goce, disposición o cualquier otro acto jurídico sobre bienes muebles o inmuebles que pudieren regularse por este Libro, si dichos actos derivan de la prestación de servicios bajo la modalidad de proyectos para prestación de servicios; en estos casos aplicarán las disposiciones del Libro Décimo Sexto de este Código.
