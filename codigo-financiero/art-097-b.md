@@ -58,7 +58,7 @@ III. Por la prórroga o cambio de temporalidad de vigencia de la concesión, que
 A). Servicio regular de pasaje:
 1. Colectivo:
 (ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-a). Autobuses de 1a. Clase$9,010.
+a). Autobuses de 1a .Clase$9,010.
 (ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
 b). Autobuses de 2a. Clase$7,509.
 (ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
