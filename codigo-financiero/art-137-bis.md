@@ -2,7 +2,7 @@
 Artículo 137 Bis.- Por el control para el establecimiento del sistema de agua potable y alcantarillado de conjuntos urbanos, subdivisiones, fusiones y lotificaciones para condominios, se pagarán derechos conforme a la siguiente:
 (ADICIONADA, G.G. 6 DE DICIEMBRE DE 2002)
 I. Agua potable:
-(REFORMADA, G.G. 30 DE DICIEMBRE DE 2003)
+(REFORMADA, G.G. 29 DE DICIEMBRE DE 2006)
 TARIFA
 (VEASE ARCHIVO ANEXO)
 (ADICIONADA, G.G. 6 DE DICIEMBRE DE 2002)
