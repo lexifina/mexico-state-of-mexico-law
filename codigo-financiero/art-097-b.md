@@ -58,7 +58,7 @@ III. Por la prórroga o cambio de temporalidad de vigencia de la concesión, que
 A). Servicio regular de pasaje:
 1. Colectivo:
 (ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-a). Autobuses de 1a .Clase$9,010.
+a). Autobuses de 1a. Clase$9,010.
 (ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
 b). Autobuses de 2a. Clase$7,509.
 (ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
@@ -96,18 +96,8 @@ b). Minibús$3,605.
 c). Vagonetas$2,403.
 (ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
 d) Bicitaxis$487.
-B). El servicio de transporte de carga en general:
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-1. Capacidad hasta de 3,000 kgs.$1,680.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-2. Capacidad de carga de más de
-3,000 kgs.$2,403.
-C). El servicio especializado de carga:
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-1. Capacidad hasta de 3,000 kgs.$1,797.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-2. Capacidad de carga de más de
-3,000 kgs$2,403.
+B). (DEROGADO, G.G. 29 DE DICIEMBRE DE 2006)
+C). (DEROGADO, G.G. 29 DE DICIEMBRE DE 2006)
 D). El servicio discrecional de arrastre o de salvamento:
 (ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
 1. Grúas de arrastre u otros vehículos
@@ -201,11 +191,10 @@ del operador$291.
 (ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
 d). Vagonetas$196.
 H). Por estudios técnicos y económicos a solicitud de los particulares por el otorgamiento de permisos referidos a:
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
+(REFORMADO, G.G. 29 DE DICIEMBRE DE 2006)
 1. Permisos para vehículos de transporte
-de pasaje especializado escolar, personal de
-empresa y turismo, de carga en general,
-especializado de carga y el servicio de
+de pasaje especializado escolar, personal
+de empresa y turismo y el servicio de
 arrastre o salvamento$601.
 V. Por la cesión de derechos o cambio de titular del permiso respecto de:
 A). El servicio discrecional de pasaje:
@@ -227,11 +216,7 @@ c). Vagonetas$1,922.
 (ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
 d). Vehículos de propulsión no mecánica,
 bicitaxis$238.
-B). El servicio de carga en general y especializado de carga:
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-1. Capacidad hasta de 3000 kgs.$901.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-2. Capacidad de más de 3000 Kgs.$1,202.
+B). (DEROGADO, G.G. 29 DE DICIEMBRE DE 2006)
 C). El servicio discrecional de arrastre o de salvamento:
 (ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
 1. Grúas de arrastre u otros vehículos
@@ -282,11 +267,7 @@ b). Minibús$1,802.
 c ). Vagonetas$1,202.
 (ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
 d). Bicitaxi$487.
-B). El servicio de transporte de carga en general y especializado de carga:
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-1. Capacidad de hasta 3000 Kgs.$901.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-2. Capacidad de más de 3000 Kgs.$1,202.
+B). (DEROGADO, G.G. 29 DE DICIEMBRE DE 2006)
 C). El servicio discrecional de arrastre o de salvamento:
 (ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
 1. Grúas de arrastre u otros vehículos
@@ -463,122 +444,11 @@ tarjeta de circulación, para vehículos
 de servicio público en la modalidad de
 individual en vehículo de propulsión
 no mecánica.$239.
-B). Transporte particular y comercial:
-1. Por la expedición inicial o reposición de placas, tarjeta de circulación y calcomanía:
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-a). Para vehículos de servicio particular
-y capacidades diferentes.$367.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-b). Para vehículos destinados a
-carga mercantil$633.
-c). Para remolques:
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-Con capacidad de carga de hasta 1,000 Kg.$662.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-Con capacidad de carga de
-1,001 a 5,000 Kg.$792.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-Con capacidad de carga de
-5001 a 10,000 Kg.$946.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-Con capacidad de carga de
-10,001 Kg., en adelante$1,288.
-d). Para motocicleta:
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-Cilindrada 350 c.c.$353.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-Cilindrada 351 c.c., en adelante$424.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-e). Para auto antiguo$915.
-2. Por refrendo anual:
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-a). Para vehículos de uso particular
-y capacidades diferentes$167.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-b). Para vehículos destinados a
-carga mercantil$475.
-c). Para remolques:
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-Con capacidad de carga de hasta 1,000 Kg.$662.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-Con capacidad de carga de
-1,001 a 5,000 Kg.$792.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-Con capacidad de carga de
-5001 a 10,000 Kg.$946.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-Con capacidad de carga de
-10,001 Kg., en adelante$1,288.
-d). Para motocicleta:
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-Cilindrada 350 c.c.$353.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-Cilindrada 351 C.C., en adelante$424.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-e). Para auto antiguo$915.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-3. Por el duplicado o reposición de
-Ia tarjeta de circulación$201.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-4. Por cambio de propietario o reposición
-de calcomanía$201.
-(REFORMADO PRIMER PARRAFO, G.G. 30 DE DICIEMBRE DE 2005)
-5. Por la expedición de permiso para circular sin placas sin tarjeta de circulación y sin calcomanía hasta por treinta días:
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-a). Para vehículos de uso particular$113.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-b). Para vehículos destinados a
-carga mercantil$228.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-c). Para remolques$228.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-d). Para motocicleta$110.
-6. Por la expedición del permiso para transportar carga en vehículo particular:
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-a). Por ciento ochenta días$562.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-b). Para motocicletas y motonetas,
-por cada 30 días$84.
-7. Por el trámite de baja de vehículos:
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-a). Particular$228.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-b). Vehículos de carga mercantil$343.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-c). Particular emplacado en otra
-entidad federativa$0.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-d). Remolque$327.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-e). Remolque emplacado en otra
-entidad federativa$0.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-f). Motocicleta y motoneta$343.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-g). Motocicleta y motoneta emplacada
-en otra entidad federativa$0.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-8. Por la expedición del permiso para
-agencia autorizada$113.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-9. Por la expedición del permiso en
-demostración y traslado$113.
+B). (DEROGADO, G.G. 29 DE DICIEMBRE DE 2006)
 (ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
 XII. Expedición de permiso de transporte
 público en otras modalidades$601.
-(REFORMADA, G.G. 30 DE DICIEMBRE DE 2003)
-XIII. Por otros servicios relativos al transporte particular y comercial, se pagarán los siguientes derechos:
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-A). Por la práctica anual de revista a
-vehículos particulares de carga.$290.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-B). Por la reposición del tarjetón de
-revista anual.$123.
-(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
-C). Por los servicios de certificación de
-extravío, mutilación o deterioro de
-documentos que amparen la circulación
-del vehículo.$42.
+XIII. (DEROGADA, G.G. 29 DE DICIEMBRE DE 2006)
 (REFORMADO PRIMER PARRAFO, G.G. 22 DE DICIEMBRE DE 2004)
 XIV. Expedición de autorización o su refrendo anual para prestar el servicio público de autotransporte colectivo de pasajeros en rutas fijas dentro del territorio del Estado, a concesionarios del Gobierno del Distrito Federal; personas físicas o personas jurídicas colectivas, unidades o empresas económicas.
 (ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)

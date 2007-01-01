@@ -7,7 +7,8 @@ IV. Podrán estar denominados en unidades de inversión.
 V. Sólo podrán ser adquiridos por personas de nacionalidad mexicana.
 VI. Los recursos captados se destinarán a inversiones públicas productivas, en términos del artículo 260 de este Código.
 VII. Se inscribirán en la sección de valores del Registro Nacional de Valores y en la Bolsa Mexicana de Valores.
-VIII. Deberán contener los datos fundamentales de su autorización de su inscripción en el Registro de Deuda Pública Estatal y la prohibición de su venta a extranjeros.
+(REFORMADA, G.G. 29 DE DICIEMBRE DE 2006)
+VIII. Deberán contener los datos fundamentales de su autorización, de su inscripción en el Registro de Deuda Pública y la prohibición de su venta a extranjeros.
 IX. El Ejecutivo del Estado solo podrá emitir valores con una tasa de interés de hasta el 1% más del rendimiento de cualquier valor bursátil en el mercado nacional.
 X. Todo lo no previsto en este artículo, será resuelto por el Gobernador a través de la Secretaría.
 El resultado de lo anterior se hará del conocimiento de la Legislatura.

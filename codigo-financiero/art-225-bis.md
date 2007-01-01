@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 29 DE DICIEMBRE DE 2006)
+Artículo 225 Bis.- Las Participaciones derivadas del Impuesto sobre Erogaciones por Remuneraciones al Trabajo Personal se distribuirán a cada municipio conforme al pago mensual efectuado por el municipio, sus organismos públicos descentralizados y sus fideicomisos de acuerdo con el mecanismo establecido en el Convenio de Colaboración Administrativa que para el efecto suscriban con el Gobierno del Estado de México.

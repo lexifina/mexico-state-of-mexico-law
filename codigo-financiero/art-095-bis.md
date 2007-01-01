@@ -1,2 +1,1 @@
-(REFORMADO, G.G. 27 DE DICIEMBRE DE 2005)
-Artículo 95 Bis.- Por los servicios prestados por la Secretaría de Agua y, Obra Pública, relativos a la supervisión y control necesarios para la ejecución de obra pública, se cobrará un 2% por concepto de derechos a las campañas (sic) contratistas con quien se celebren contratos de obra pública o de servicios relacionados con la misma, sobre el importe de cada una de las estimaciones de trabajo generadas.
+Artículo 95 Bis.- (DEROGADO, G.G. 29 DE DICIEMBRE DE 2006)

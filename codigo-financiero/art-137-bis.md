@@ -1,14 +1,16 @@
-(ADICIONADO, G.G. 6 DE DICIEMBRE DE 2002)
-Artículo 137 Bis.- Por el control para el establecimiento del sistema de agua potable y alcantarillado, de conjuntos urbanos, habitacionales, industriales, agroindustriales y de abasto, comercio y servicios, subdivisión o lotificación para edificaciones en condominio, se pagarán derechos conforme a la siguiente:
+(REFORMADO PRIMER PARRAFO, G.G. 29 DE DICIEMBRE DE 2006)
+Artículo 137 Bis.- Por el control para el establecimiento del sistema de agua potable y alcantarillado de conjuntos urbanos, subdivisiones, fusiones y lotificaciones para condominios, se pagarán derechos conforme a la siguiente:
+(ADICIONADA, G.G. 6 DE DICIEMBRE DE 2002)
 I. Agua potable:
 (REFORMADA, G.G. 30 DE DICIEMBRE DE 2003)
 TARIFA
 (VEASE ARCHIVO ANEXO)
+(ADICIONADA, G.G. 6 DE DICIEMBRE DE 2002)
 II. Alcantarillado:
 (REFORMADA, G.G. 30 DE DICIEMBRE DE 2003)
 TARIFA
 (VEASE ARCHIVO ANEXO)
-(REFORMADO, G.G. 27 DE DICIEMBRE DE 2005)
-En cuanto al tipo de conjunto, se estará a las definiciones establecidas en las leyes de la materia.
-(REFORMADO, G.G. 27 DE DICIEMBRE DE 2005)
-No se pagarán los derechos previstos en este artículo por las viviendas de tipo social progresiva, y los conjuntos que no sean sujetos de división del suelo.
+(REFORMADO, G.G. 29 DE DICIEMBRE DE 2006)
+En cuanto a las subdivisiones, fusiones y lotificaciones para condominios de tipo vertical, horizontal y mixto, será aplicable la tipología prevista para los conjuntos urbanos establecida en las leyes de la materia.
+(REFORMADO, G.G. 29 DE DICIEMBRE DE 2006)
+No pagarán los derechos previstos en este artículo las viviendas de tipo social progresiva.

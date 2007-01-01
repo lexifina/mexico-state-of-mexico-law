@@ -1,8 +1,9 @@
-(ADICIONADO, G.G. 22 DE DICIEMBRE DE 2004)
-Artículo 317 Bis.- Las adecuaciones presupuestarias que impliquen traspasos entre programas, requerirán autorización de la Secretaría, y en el caso de los municipios, de la Tesorería, en los términos de las disposiciones aplicables.
-(REFORMADO, G.G. 27 DE DICIEMBRE DE 2005)
-Las adecuaciones presupuestarias que se den dentro del capítulo de gasto y proyecto serán autorizadas de manera directa por las dependencias y entidades públicas, debiendo informar a la Secretaría o a la Tesorería en su caso, en un plazo no mayor a los primeros diez días posteriores al cierre del mes inmediato anterior en que se hayan efectuado las adecuaciones respectivas, en el caso de los municipios estas adecuaciones serán también autorizadas por la Tesorería.
-(REFORMADO, G.G. 27 DE DICIEMBRE DE 2005)
-Las entidades públicas y dependencias no podrán realizar erogaciones para cubrir gastos que no correspondan estrictamente a estos, ni podrán realizar erogaciones ni transferencias a dependencias.
-Todas las adecuaciones presupuestarias aprobadas deberán mantener el equilibrio en el balance de ingresos y egresos.
-No se podrán realizar traspasos presupuestarios del gasto de inversión a los capítulos de gasto corriente.
+(REFORMADO, G.G. 29 DE DICIEMBRE DE 2006)
+Artículo 317 Bis.- Los traspasos presupuestarios externos serán aquellos que se realicen entre programas o capítulos de gasto, debiendo la unidad ejecutora solicitar autorización de la Secretaría, y en el caso de los municipios a la Tesorería, en términos de las disposiciones aplicables.
+La solicitud deberá contener la justificación necesaria, así como el dictamen de reconducción y actualización correspondiente.
+Para el caso de las entidades públicas, adicionalmente a la solicitud de traspasos externos, deberán contar con la aprobación del órgano de gobierno y presentarla a la Secretaría.
+Los traspasos presupuestarios autorizados deberán informarse dentro de los primeros diez días del mes siguiente en el que se realicen para ser integrados al informe que el Poder Ejecutivo rinda al Poder Legislativo.
+El monto total de traspasos presupuestarios externos que autorice la Secretaría no podrá exceder del 5% del presupuesto total autorizado anual, exceptuando de este capítulo los ajustes por incrementos salariales de carácter general y las contingencias derivadas de desastres naturales y siniestros.
+Las entidades públicas y dependencias no podrán realizar erogaciones para cubrir gastos que no correspondan estrictamente a éstos, ni podrán realizar erogaciones ni transferencias a dependencias.
+En caso de que se requiera la realización de traspasos presupuestarios externos que rebasen el porcentaje señalado en este artículo, el Ejecutivo deberá solicitar la autorización a la Legislatura o a la Diputación Permanente cuando aquella se encuentra en receso, quien deberá aprobarlo en un plazo no mayor de 15 días. En caso de no recibir respuesta, se entenderá por aprobado.
+La Secretaría deberá informar a la Legislatura de aquéllos traspasos externos que resulten en el incremento o disminución de más del 10% del presupuesto autorizado para un programa.
