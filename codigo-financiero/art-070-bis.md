@@ -3,15 +3,15 @@ Artículo 70 Bis.- Por la expedición de los siguientes documentos se pagarán:
 TARIFA
 CONCEPTO
 I. Por la expedición de copias certificadas
-(REFORMADO [N. DE E. ACTUALIZADO EN SU CANTIDAD], G.G. 30 DE JUNIO DE 2006)
-A). Por la primera hoja$42.
+(ACTUALIZADO EN SU TARIFA, G.G. 30 DE DICIEMBRE DE 2006)
+A). Por la primera hoja$43.
 (REFORMADO [N. DE E. ACTUALIZADO EN SU CANTIDAD], G.G. 29 DE DICIEMBRE DE 2006)
 B). Por cada hoja subsecuente$20.
 II. Copias simples$17.
 (REFORMADO [N. DE E. ACTUALIZADO EN SU CANTIDAD], G.G. 29 DE DICIEMBRE DE 2006)
 A). Por la primera hoja$11.
-(REFORMADO [N. DE E. ACTUALIZADO EN SU CANTIDAD], G.G. 30 DE JUNIO DE 2006)
-B). Por cada hoja subsecuente0.51¢.
+(ACTUALIZADO EN SU TARIFA, G.G. 30 DE DICIEMBRE DE 2006)
+B). Por cada hoja subsecuente$1.
 (REFORMADA [N. DE E. ACTUALIZADA EN SU CANTIDAD], G.G. 29 DE DICIEMBRE DE 2006)
 III. Expedición de copias certificadas de testimonios
 de viviendas de interés social, social progresiva y

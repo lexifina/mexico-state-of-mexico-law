@@ -1,5 +1,6 @@
 (ADICIONADO, G.G. 29 DE DICIEMBRE DE 2006)
 Artículo 91 Bis.- Por el otorgamiento de permisos y autorización, por su cesión (sic) o cambio de titular, por su prorroga o cambio de temporalidad, así como por los servicios de control vehicular de transporte de carga, de uso particular y comercial a cargo de la Dirección General de Recaudación, se pagarán los siguientes derechos:
+CONCEPTOTARIFA
 I. Por el otorgamiento de permisos de:
 A). Transporte de carga en general:
 1. Capacidad hasta de 3,000 kgs.$1,714.
