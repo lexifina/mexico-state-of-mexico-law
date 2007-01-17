@@ -17,5 +17,7 @@ XV. Los hábitos de juegos prohibidos o de embriaguez habitual, el uso indebido 
 XVI. Haber cometido un cónyuge contra la persona o los bienes del otro, un acto que sería punible si se tratara de tercero, siempre que tenga señalada en la ley una pena de prisión que exceda un año;
 XVII. El grave o reiterado maltrato físico o mental de un cónyuge hacia los hijos de ambos o de uno de ellos;
 XVIII. Permitir ser instrumento, de un método de concepción humana artificial, sin el consentimiento de su cónyuge;
-XIX. La separación de los cónyuges por más de dos años, independientemente del motivo que haya originado la separación, la cual podrá ser invocada por cualesquiera de ellos.
+XIX. La separación de los cónyuges por más de dos años, independientemente del motivo que haya originado la separación, la cual podrá ser invocada por cualesquiera de ellos;
+(ADICIONADA, G.G. 16 DE ENERO DE 2007)
+XX. Incumplimiento injustificado de las determinaciones judiciales que se hayan ordenado, tendientes a corregir los actos de Violencia Familiar hacia el otro cónyuge o a los hijos, por el cónyuge obligado a ello.
 Legitimación y plazo de la acción de divorcio
