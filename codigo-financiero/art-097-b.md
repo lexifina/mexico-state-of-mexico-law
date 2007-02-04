@@ -257,7 +257,7 @@ a). Autobús$919.
 (ACTUALIZADO EN SU TARIFA, G.G. 30 DE DICIEMBRE DE 2006)
 b). Minibús$735.
 (ACTUALIZADO EN SU TARIFA, G.G. 30 DE DICIEMBRE DE 2006)
-c). Vagonetas$735.
+c). Vagonetas$735
 2. El servicio de transporte de pasaje especializado de turismo e individual en vehículo de propulsión no mecánica:
 (ACTUALIZADO EN SU TARIFA, G.G. 30 DE DICIEMBRE DE 2006)
 a). Autobús$1,838.

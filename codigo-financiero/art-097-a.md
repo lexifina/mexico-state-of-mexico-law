@@ -79,7 +79,7 @@ B). Proyecto a realizar en terreno de lomerío con:
 C). Proyecto a realizar en terreno montañoso con:
 (ACTUALIZADO EN SU TARIFA, G.G. 30 DE DICIEMBRE DE 2006)
 1. Geometría en corte$19,119.
-(ACTUALIZADO EN SU TARIFA, G.G. 30 DE DICIEMBRE DE 2006)
+(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
 2. Geometría en terraplén$19,862.
 XII. Por el permiso del proyecto geométrico, estructura de pavimentos y obras hidráulicas en las autopistas de cuota estatales y zonas aledañas:
 (ACTUALIZADO EN SU TARIFA, G.G. 30 DE DICIEMBRE DE 2006)
