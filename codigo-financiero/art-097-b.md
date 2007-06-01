@@ -237,12 +237,12 @@ permiso para guardar y custodia de vehículos
 accidentados o a disposición de autoridades
 diversas, por cada corralón$5,230.
 D). Los servicios conexos:
-(ACTUALIZADO EN SU TARIFA, G.G. 30 DE DICIEMBRE DE 2006)
-1. Terminales de pasaje$4,953.
-(ACTUALIZADO EN SU TARIFA, G.G. 30 DE DICIEMBRE DE 2006)
-2. Bahías de ascenso y descenso$1,734.
-(ACTUALIZADO EN SU TARIFA, G.G. 30 DE DICIEMBRE DE 2006)
-3. Cobertizos$1,486.
+(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
+1. Terminales de pasaje$4,856.
+(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
+2. Bahías de ascenso y descenso$1,700.
+(ACTUALIZADO EN SU CANTIDAD, G.G. 30 DE JUNIO DE 2006)
+3. Cobertizos$1,457.
 4. (DEROGADO, G.G. 30 DE DICIEMBRE DE 2003)
 E). La instalación de anuncios publicitarios en el transporte:
 (ACTUALIZADO EN SU TARIFA, G.G. 30 DE DICIEMBRE DE 2006)

@@ -1,8 +1,6 @@
 (REFORMADO PRIMER PARRAFO, G.G. 30 DE DICIEMBRE DE 2005)
 Artículo 93 Bis.- Por los servicios prestados por el Organismo Público Descentralizado denominado Servicios Educativos Integrados al Estado de México, se pagarán derechos conforme a la siguiente:
 CONCEPTOTARIFA
-(REFORMADA, G.G. 22 DE DICIEMBRE DE 2004)
-I. Por la autorización de instituciones particulares para impartir estudios, por plan de estudios, modalidad y turno de educación:
 (ACTUALIZADO EN SU TARIFA, G.G. 30 DE DICIEMBRE DE 2006)
 A). Preescolar$3,649.
 (ACTUALIZADO EN SU TARIFA, G.G. 30 DE DICIEMBRE DE 2006)
