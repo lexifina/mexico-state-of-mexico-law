@@ -18,5 +18,7 @@ XVI. Propiciar, en coordinación con las instituciones del sector salud y asiste
 XVII. Promover la utilización de los medios de comunicación para acrecentar la educación y la cultura en la entidad;
 XVIII. Establecer políticas para el magisterio orientadas a la obtención de mejores condiciones académicas, profesionales, sociales, incluida la vivienda digna, culturales y económicas, de conformidad con lo dispuesto por la Ley General de Educación;
 XIX. Operar los sistemas de créditos y equivalencias que faciliten el tránsito de educandos entre las diferentes instituciones y planteles del sistema educativo estatal, de acuerdo a las disposiciones legales aplicables;
-XX. Imponer sanciones;
-XXI. Publicar en el periódico oficial Gaceta del Gobierno, los planes y programas de estudios que la autoridad educativa federal determine conforme a lo establecido por la Ley General.
+(ADICIONADA, G.G. 18 DE JUNIO DE 2007)
+XX. Vigilar el cumplimiento de las disposiciones jurídicas, políticas y planes del sector, a través de auditorías, revisiones e inspecciones, que se realicen a las instituciones educativas particulares de todos los tipos, niveles y modalidades;
+XXI. Imponer sanciones;
+XXII. Publicar en el periódico oficial Gaceta del Gobierno, los planes y programas de estudios que la autoridad educativa federal determine conforme a lo establecido por la Ley General.
