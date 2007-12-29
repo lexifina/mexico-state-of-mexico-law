@@ -1,4 +1,1 @@
-(ADICIONADO, G.G. 26 DE NOVIEMBRE DEL 2004)
-Artículo 205 BIS.- A quienes empleen a menores de dieciocho años en cantinas, tabernas, centros de vicio o prostíbulos, se les impondrán de seis meses a dos años de prisión y de treinta a sesenta días multa. Incurrirán en la misma pena los padres o tutores que acepten que sus hijos o menores, respectivamente, bajo su guarda, se empleen en los referidos establecimientos.
-Para los efectos de este precepto se considerará como empleado en la cantina, taberna y centro de vicio al menor de dieciocho años que por un salario, por la sola comida, por comisión de cualquier índole, por cualquier otro estipendio, emolumento o gratuitamente, preste sus servicios en tal lugar.
-Cuando el inculpado sea ascendiente, padrastro o madrastra del menor de edad, se le impondrán de uno a cuatro años de prisión y de treinta a cien días multa, privándoseles además de todo derecho a los bienes del ofendido. Si fuere tutor o curador será privado del cargo y de los derechos que por ello le genere la ley.
+Artículo 205 BIS.- (DEROGADO Y REUBICADO, G.G. 28 DE DICIEMBRE DE 2007)
