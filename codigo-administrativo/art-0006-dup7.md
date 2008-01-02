@@ -1,4 +1,5 @@
-Artículo 6.7.- La coordinación ejecutiva del sistema estatal de protección civil estará a cargo de la Secretaría General de Gobierno, quien ejercerá las atribuciones siguientes:
+(REFORMADO PRIMER PARRAFO, G.G. 31 DE DICIEMBRE DE 2007)
+Artículo 6.7.- La coordinación ejecutiva del sistema estatal de protección civil estará a cargo de la Secretaría General de Gobierno, quien la ejercerá a través de la Agencia de Seguridad Estatal, la cual tendrá las atribuciones siguientes:
 I. Vincular el sistema estatal de protección civil con el sistema nacional de protección civil;
 II. Proponer políticas y estrategias para el desarrollo de programas en la materia;
 III. Establecer las instancias, mecanismos, instrumentos y procedimientos de carácter técnico, operativo, de servicios y logística para prevenir y atender un desastre;
