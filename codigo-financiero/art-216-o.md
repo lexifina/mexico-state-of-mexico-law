@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 26 DE DICIEMBRE DE 2007)
+Artículo 216-O.- El funcionamiento del Comité Técnico del fideicomiso a que se refiere el presente Capítulo, los términos y condiciones del registro a que se refiere el artículo 216-M y el acreditamiento de la calidad o vocación de las superficies a que se refieren los artículos 216-N y 216-Ñ, deberán preverse en las reglas de operación que al efecto se emitan.

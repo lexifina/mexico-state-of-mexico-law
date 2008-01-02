@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 26 DE DICIEMBRE DE 2007)
+Artículo 64 Bis.- Están obligados a presentar declaración trimestral informativa dentro de los primeros 15 días de los meses de enero, abril, julio y octubre las personas físicas y jurídicas colectivas, incluidas las asociaciones en participación, así como los consignatarios de vehículos automotores usados, que de manera habitual se dediquen a la compraventa de vehículos automotores, conforme a las reglas de carácter general que emitirá la autoridad fiscal competente, mismas que habrán de publicarse en el Periódico Oficial.

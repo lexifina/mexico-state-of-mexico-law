@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 26 DE DICIEMBRE DE 2007)
+Artículo 216-M.- El ingreso que se perciba por este concepto, se destinará a incentivar en los propietarios, poseedores o tenedores de bosques que cuenten con registro ante el fideicomiso a que se refiere el artículo 216-K del Código, la conservación de las superficies boscosas de que se trate, a fin de que no les den un uso alternativo, así como a la adquisición de plantas para reforestación de los bosques del Estado de México.

@@ -1,16 +1,14 @@
-(ADICIONADO, G.G. 6 DE DICIEMBRE DE 2002)
-DE INTERÉS SOCIAL$422.
-(ADICIONADO, G.G. 6 DE DICIEMBRE DE 2002)
-POPULAR$632.
-(REFORMADO, G.G. 30 DE DICIEMBRE DE 2003)
-MEDIA$7,359.
-(REFORMADO, G.G. 30 DE DICIEMBRE DE 2003)
-RESIDENCIA$12,232.
-(REFORMADO, G.G. 30 DE DICIEMBRE DE 2003)
+(REFORMADA, G.G. 26 DE DICIEMBRE DE 2007)
+TIPO DE VIVIENDAMONTO DE APORTACIÓN
+POR VIVIENDA
+DE INTERÉS SOCIAL$516
+POPULAR$772
+MEDIA$8,646
+RESIDENCIA$14,373
 RESIDENCIAL ALTO
-Y CAMPESTRE$20,869.
-(REFORMADO PRIMER PARRAFO, G.G. 29 DE DICIEMBRE DE 2006)
-Artículo 216-F.- Estas Aportaciones para Obras de Impacto Vial deberán pagarse dentro de los diecisiete días siguientes al día en que surta efectos la notificación del dictamen en el que se determine el monto de las aportaciones correspondientes, debiendo enterarlas mediante declaración en la forma oficial aprobada, o convenirse el pago diferido o en parcialidades, con otorgamiento de la garantía del interés fiscal conjuntamente con la solicitud de autorización, mismas que se deberán presentar dentro del plazo citado.
+Y CAMPESTRE$24,521
+(REFORMADO PRIMER PARRAFO, G.G. 26 DE DICIEMBRE DE 2007)
+Artículo 216-F.- Estas Aportaciones para Obras de Impacto Vial deberán pagarse dentro de los diecisiete días siguientes al inicio de la vigencia de la primera licencia municipal de construcción, debiendo enterarlas mediante declaración en la forma oficial aprobada, o convenirse el pago diferido o en parcialidades, con otorgamiento de la garantía del interés fiscal conjuntamente con la solicitud de autorización, mismas que se deberán presentar dentro del plazo citado.
 (REFORMADO, G.G. 29 DE DICIEMBRE DE 2006)
 Las aportaciones de mejoras para obras de impacto vial, serán recibidas en obra para infraestructura vial, o bien, en depósito al fideicomiso de aportaciones para obras de impacto vial, de ser convenido previamente por la Secretaria de Comunicaciones y el municipio o municipios afectados.
 (REFORMADO, G.G. 22 DE DICIEMBRE DE 2004)

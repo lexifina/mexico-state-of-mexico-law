@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 26 DE DICIEMBRE DE 2007)
+Artículo 216-N.- El incentivo previsto en el artículo 216-L, consistirá en un pago anual por cada hectárea de superficie boscosa, pago que se realizará en todos los casos por instrucciones expresas del Comité Técnico con cargo al patrimonio del fideicomiso de aportaciones de mejoras por servicios ambientales y hasta donde éste baste y alcance, y que deberá revisarse para cada ejercicio fiscal determinando en su caso la necesidad de su actualización.
