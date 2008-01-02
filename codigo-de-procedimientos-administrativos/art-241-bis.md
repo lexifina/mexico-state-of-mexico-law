@@ -1,0 +1,1 @@
+Art. 241 Bis. (DEROGADO, P.O. 17 DE JUNIO DE 2000)

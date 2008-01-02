@@ -1,1 +1,2 @@
-Artículo 8.67.- Serán aplicables a estas inscripciones las disposiciones relativas al registro de bienes inmuebles, en cuanto sean compatibles con la naturaleza de los actos o contratos materia del presente capítulo y con los efectos que las inscripciones producen.
+Artículo 8.63.- Cualquiera que se crea con derecho a los bienes materia de inmatriculación administrativa, podrá oponerse reuniendo los requisitos que señala el reglamento.
+Sistemas de registro

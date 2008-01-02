@@ -1,0 +1,3 @@
+Art. 174 Ter. (DEROGADO, P.O. 30 DE ENERO DE 2007)
+CAPITULO III
+Violación

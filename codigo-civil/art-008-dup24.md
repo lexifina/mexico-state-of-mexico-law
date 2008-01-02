@@ -1,3 +1,4 @@
-Artículo 8.24.- Inscrito o anotado un título no podrá inscribirse o anotarse otro de igual o anterior fecha que refiriéndose al mismo bien o derecho real, se le oponga o sea incompatible.
-Si sólo se hubiere extendido el asiento de presentación, tampoco podrá inscribirse o anotarse otro título de la clase antes expresada mientras el asiento esté vigente.
-Calificación registral
+Artículo 8.21.- La inscripción definitiva de un derecho que haya sido anotado preventivamente, surtirá sus efectos desde la fecha de dicha anotación preventiva.
+CAPITULO III
+De la Calificación Registral
+Devolución de documento con datos de inscripción

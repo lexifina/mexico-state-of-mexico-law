@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 27 DE SEPTIEMBRE DE 2014) (F. DE E., P.O. 11 DE OCTUBRE DE 2016)
+Art. 103 Bis. Cuando el daño que se cause al ofendido produzca su muerte, el monto de la pena de indemnización se fijará atendiendo a lo establecido en el artículo 502 de la Ley Federal del Trabajo. Si la víctima no percibe utilidad por salario o no pudiere determinarse éste, el monto de la indemnización se fijará tomando como base el valor diario de la Unidad de Medida y Actualización vigente.
+Si el daño produce incapacidad total o parcial, temporal o permanente, el monto de la indemnización se fijará de acuerdo con las tablas que para esta clase de incapacidades establece la Ley Federal del Trabajo, siendo aplicable en lo conducente, lo dispuesto en el párrafo que precede.

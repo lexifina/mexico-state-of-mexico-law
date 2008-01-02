@@ -1,6 +1,8 @@
-Artículo 8.6- Los actos ejecutados, los contratos otorgados y las resoluciones judiciales pronunciadas en país extranjero, sólo se inscribirán si concurren las circunstancias siguientes:
-I. Si los actos o contratos hubiesen sido celebrados o las resoluciones pronunciadas en el Estado de México, habrían sido inscribibles;
-II. Los actos o contratos cuya inscripción se pretenda, no contravengan las leyes mexicanas;
-III. Que estén debidamente legalizados y que hayan sido protocolizados ante notario. Si los documentos están redactados en idioma extranjero, deberán ser previamente traducidos por perito;
-IV. Si fueran resoluciones judiciales, se ordene su inscripción por la autoridad judicial nacional que corresponda.
-La inscripción no produce convalidación
+(ADICIONADO, G.G. 3 DE DICIEMBRE DE 2007)
+Artículo 8.4.2.- Para garantizar la preservación, guarda, custodia y seguridad del acervo registral, el Instituto de la Función Registral del Estado de México desarrollará sistemas y programas sustentados en tecnologías de la información, que garanticen su exactitud e inviolabilidad para otorgar seguridad jurídica a la propiedad inmobiliaria.
+Los lineamientos y criterios para la preservación, guarda, custodia y seguridad del acervo registral, así como las bases y mecanismos para la digitalización de los documentos inscritos en el Registro Público de la Propiedad se determinarán en el Reglamento.
+TITULO SEGUNDO
+Disposiciones Comunes
+CAPITULO I
+De los Documentos Registrables
+Actos jurídicos registrables

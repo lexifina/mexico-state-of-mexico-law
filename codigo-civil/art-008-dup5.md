@@ -1,6 +1,4 @@
-Artículo 8.5.- Sólo se registrarán:
-I. Los testimonios de instrumentos notariales u otros documentos auténticos;
-II. Las resoluciones y providencias judiciales que así lo determinen;
-III. Los documentos privados que impliquen actos u operaciones jurídicas reputados válidos bajo esa forma con arreglo a la ley, siempre y cuando se hayan ratificado sus firmas judicialmente o ante notario público;
-IV. Los planes de desarrollo urbano, previstos en la ley.
-Actos jurídicos realizados en el extranjero que son inscribibles
+(ADICIONADO, G.G. 3 DE DICIEMBRE DE 2007)
+Artículo 8.4.1.- La certificación es el acto a través del cual, el registrador da fe de los actos o constancias inscritos en los libros correspondientes, folios, registros o archivos del Registro Público de la Propiedad, o bien de la inexistencia de los mismos, así como también de las constancias que obren en los archivos respectivos.
+Los certificados se expedirán en las modalidades, contenido y términos previstos al efecto en el Reglamento.
+Acervo y Registros

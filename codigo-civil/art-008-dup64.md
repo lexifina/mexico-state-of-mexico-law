@@ -1,4 +1,2 @@
-Artículo 8.64.- El Reglamento establecerá los sistemas conforme a los cuales deben llevarse las inscripciones y anotaciones.
-TITULO CUARTO
-Del Registro de Operaciones sobre Muebles
-Inscripción de actos jurídicos sobre muebles
+Artículo 8.60.- La inmatriculación de un inmueble por resolución del titular del Registro Público, dejará siempre a salvo los derechos de terceros.
+Rectificación de las inmatriculaciones

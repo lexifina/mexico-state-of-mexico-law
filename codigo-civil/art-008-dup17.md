@@ -1,2 +1,2 @@
-Artículo 8.17.- En la solicitud a que se refiere el artículo anterior, y que surtirá efectos de aviso preventivo, deberán mencionarse los requisitos que señale el reglamento.
-Anotación del aviso preventivo
+Artículo 8.14.- Los asientos del Registro producen todos sus efectos, salvo resolución judicial, cancelación o rectificación de los mismos.
+Prioridades por la hora y fecha de presentación

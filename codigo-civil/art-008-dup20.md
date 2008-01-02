@@ -1,2 +1,2 @@
-Artículo 8.20.- Si el aviso definitivo se da durante la vigencia del aviso preventivo, surtirá efectos desde la presentación de éste, en caso contrario desde la presentación del aviso definitivo.
-Momento en que surte efectos la inscripción definitiva
+Artículo 8.17.- En la solicitud a que se refiere el artículo anterior, y que surtirá efectos de aviso preventivo, deberán mencionarse los requisitos que señale el reglamento.
+Anotación del aviso preventivo

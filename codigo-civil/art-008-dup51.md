@@ -1,2 +1,2 @@
-Artículo 8.51.- La inmatriculación es la inscripción de la propiedad o posesión de un inmueble que carece de antecedentes registrales.
-Medios de inmatriculación
+Artículo 8.47.- La anotación perjudicará a cualquier adquirente del inmueble o derecho real a que se refiere la anotación, cuya adquisición sea posterior a la fecha de aquélla, y dará preferencia para el cobro del crédito sobre cualquier otro de fecha posterior a la anotación.
+Anotaciones judiciales o administrativas

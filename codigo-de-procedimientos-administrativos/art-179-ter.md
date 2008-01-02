@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 29 DE JULIO DE 2023)
+Art. 179 Ter. El robo de menores lo comete el que se apodere de una persona menor de dieciocho años de edad de cualquier sexo, sin derecho y sin consentimiento de sus padres o de quienes legítimamente lo tengan en su poder, con el fin de segregarla del medio familiar que le es propio. Este delito se castigará con pena de siete a veintidós años de prisión.
+Cuando por consecuencia del robo del menor, éste resultare afectado en su integridad física, se aumentará la sanción hasta en una cuarta parte, independientemente de las que pudieren resultar por la comisión de cualquier otro delito.

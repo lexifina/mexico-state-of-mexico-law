@@ -1,0 +1,4 @@
+(REFORMADO PRIMER PÁRRAFO, P.O. 11 DE OCTUBRE DE 2016)
+Art. 253 Quáter. Se le impondrá de dos a cuatro años de prisión y multa por el importe equivalente de mil a tres mil veces el valor diario de la Unidad de Medida y Actualización, al Director Responsable de Obra o Corresponsable de Obra que de manera dolosa autorice el desarrollo de una construcción, de la que otorgó su responsiva sin apego a la licencia, autorización o permiso otorgado por la autoridad competente.
+(ADICIONADO, P.O. 5 DE NOVIEMBRE DE 2015)
+La misma sanción se impondrá al propietario del inmueble donde se desarrolla la construcción, a su representante legal y al constructor que, teniendo conocimiento de la ilegalidad del acto, no presente la denuncia correspondiente ante la autoridad competente, permita la edificación sin sujetarse a la licencia o permiso de construcción o urbanización.

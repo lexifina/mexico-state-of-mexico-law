@@ -1,2 +1,2 @@
-Artículo 8.58.- El que tenga título fehaciente que abarque cuando menos un período ininterrumpido de cinco años inmediatamente anteriores a su promoción, podrá inmatricular su predio mediante resolución judicial, siempre y cuando se satisfagan los requisitos que señala el Código de Procedimientos Civiles.
-Inmatriculación de inmuebles que carezcan de antecedentes registrales
+Artículo 8.54.- El que tenga una posesión apta para prescribir bienes inmuebles y que no constituyan parte de uno de mayor porción, pueden inmatricular la posesión antes de que transcurra el tiempo necesario para prescribir en los términos del Código de Procedimientos Civiles.
+Oposición a la información de dominio o de posesión

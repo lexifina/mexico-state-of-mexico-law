@@ -1,0 +1,2 @@
+(REFORMADO, P.O. 11 DE OCTUBRE DE 2016)
+Art. 142-G. Se impondrán de siete a catorce años de prisión y multa por el equivalente de quinientas veces el valor diario de la Unidad de Medida y Actualización, a quien administre, regentee, induzca, promueva, ofrezca, facilite o lleve a cabo actos tendientes a la utilización con persona menor de dieciocho años de edad o con quien no tenga capacidad para comprender el significado del hecho en prácticas de prostitución o pornografía.

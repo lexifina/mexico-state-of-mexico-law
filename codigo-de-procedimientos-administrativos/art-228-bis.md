@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 8 DE OCTUBRE DE 2024)
+Art. 228 Bis. Se impondrán de tres a seis años de prisión a quien haga que una mujer embarazada interrumpa el embarazo, en cualquier momento de la gestación, sin su consentimiento o en contra de su voluntad. Si además mediare violencia física o psicológica, la sanción será de cuatro a seis años de prisión.
+Si la interrupción del embarazo la causare personal médico, pasante o estudiante de medicina o de enfermería, profesional de partería o comadrona en los términos del párrafo anterior, además de las sanciones que le correspondan, se le suspenderá de uno a cinco años en el ejercicio de su profesión, oficio o respectiva actividad.

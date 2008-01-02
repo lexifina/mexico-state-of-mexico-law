@@ -1,2 +1,6 @@
-Artículo 8.48.- En los casos de las anotaciones judiciales o administrativas, podrá producirse el cierre del registro en los términos de la resolución correspondiente.
-Anotación de fianzas
+Artículo 8.44.- Las cancelaciones se harán en la forma que establezca el reglamento.
+TITULO TERCERO
+Del Registro de la Propiedad Inmueble
+CAPITULO I
+De los Títulos Inscribibles y de los Anotables
+Títulos inscribibles

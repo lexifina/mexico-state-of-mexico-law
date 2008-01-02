@@ -1,5 +1,2 @@
-Artículo 8.26.- La calificación hecha por el Registrador podrá recurrirse ante el director del Registro Público de la Propiedad. Si éste confirma la calificación, el perjudicado por ella podrá reclamarla en juicio contencioso administrativo.
-Si la autoridad ordena que se registre el título rechazado, la inscripción surtirá sus efectos desde que por primera vez se presentó el título.
-CAPITULO IV
-De la rectificación de asientos
-Rectificación de asientos por error
+Artículo 8.23.- Para inscribir o anotar cualquier título, deberá constar previamente inscrito o anotado el derecho de la persona que otorgó aquél o de la que vaya a resultar perjudicada por la inscripción, a no ser que se trate de una inmatriculación.
+Títulos incompatibles

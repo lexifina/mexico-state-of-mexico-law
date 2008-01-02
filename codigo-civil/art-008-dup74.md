@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 3 DE DICIEMBRE DE 2007)
+Artículo 8.68.- En el desempeño de sus funciones y cumplimiento de sus responsabilidades, los servidores públicos del Instituto de la Función Registral del Estado de México deberán cumplir con las disposiciones de este Código, el Reglamento, la Ley que Crea el Organismo Público Descentralizado Denominado Instituto de la Función Registral del Estado de México, su reglamento interior, los manuales administrativos y demás disposiciones legales, reglamentarias y administrativas aplicables.

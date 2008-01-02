@@ -1,0 +1,4 @@
+P.O. 18 DE OCTUBRE DE 2012.
+PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el periódico oficial El Estado de Jalisco.
+SEGUNDO. Los delitos que son eliminados o modificados con motivo del presente decreto continuarán en vigor, respecto a los hechos cometidos con anterioridad a la entrada en vigor del presente decreto y mientras existan procesos penales pendiente o sentencias por cumplir y penas por compurgar.
+TERCERO. La reforma a la fracción I del artículo 342 del Código de Procedimiento (sic) Penales para el Estado Libre y Soberano de Jalisco toma como referencia el texto vigente al día 20 de septiembre de 2012, por lo que no debe entenderse que deroga las posibles reformas a la misma fracción que hayan sido aprobadas con anterioridad por el Congreso del Estado y que, estando en proceso de sanción y publicación, aún no cobran vigencia en la fecha señalada.

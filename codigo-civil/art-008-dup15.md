@@ -1,2 +1,2 @@
-Artículo 8.15.- La prelación entre los diversos documentos ingresados al Registro se determinará por la prioridad en cuanto a la fecha y hora de presentación, salvo lo dispuesto en el artículo siguiente.
-Exigencia de certificado de gravámenes
+Artículo 8.12.- La preferencia entre derechos reales sobre una misma finca o derechos, se determinará por la prioridad de su inscripción en el Registro.
+Derecho real anterior a la anotación

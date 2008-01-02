@@ -1,1 +1,0 @@
-Artículo Noveno.- Con la finalidad de que los magistrados del Tribunal de lo Contencioso Administrativo puedan sustituirse en forma escalonada, seis serán nombrados por cinco años y seis por diez años.

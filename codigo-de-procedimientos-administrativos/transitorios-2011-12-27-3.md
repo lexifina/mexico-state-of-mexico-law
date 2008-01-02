@@ -1,0 +1,3 @@
+P.O. 27 DE DICIEMBRE DE 2011.
+DECRETO No. 23934/LIX/11, POR EL QUE SE REFORMAN LOS PÁRRAFOS PRIMERO Y CUARTO DEL ARTÍCULO 179 Y LOS PÁRRAFOS PRIMERO, SEGUNDO Y QUINTO DEL ARTÍCULO 179 BIS DEL CÓDIGO PENAL DEL ESTADO DE JALISCO.
+ÚNICO. El presente decreto entrará en vigor al día siguiente de su publicación en el periódico oficial El Estado de Jalisco.

@@ -1,2 +1,3 @@
-Artículo 8.27.- La rectificación de los asientos por causa de error material o de concepto, sólo procede cuando existe discrepancia entre el título y la inscripción.
-Error material
+Artículo 8.24.- Inscrito o anotado un título no podrá inscribirse o anotarse otro de igual o anterior fecha que refiriéndose al mismo bien o derecho real, se le oponga o sea incompatible.
+Si sólo se hubiere extendido el asiento de presentación, tampoco podrá inscribirse o anotarse otro título de la clase antes expresada mientras el asiento esté vigente.
+Calificación registral

@@ -1,2 +1,3 @@
-Artículo 8.34.- Las anotaciones preventivas se extinguen por cancelación, caducidad o por la inscripción definitiva.
-Cancelación por consentimiento
+(ADICIONADO, G.G. 3 DE DICIEMBRE DE 2007)
+Artículo 8.30.1.- Tratándose de la reposición y restauración de libros y documentos deteriorados, destruidos o extraviados, el interesado deberá acreditar su interés jurídico.
+Oposición del registrador a la rectificación

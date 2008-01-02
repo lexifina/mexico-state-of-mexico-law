@@ -1,2 +1,5 @@
-Artículo 8.63.- Cualquiera que se crea con derecho a los bienes materia de inmatriculación administrativa, podrá oponerse reuniendo los requisitos que señala el reglamento.
-Sistemas de registro
+Artículo 8.59.- Para la inmatriculación de inmuebles que carezcan de antecedentes registrales los que tengan interés legítimo podrán ocurrir ante el Registro Público a solicitarla, debiendo acompañar a su promoción:
+I. Certificado del Registro Público de la Propiedad que acredite que el bien de que se trata no está inscrito;
+II. Comprobante del pago del impuesto predial al corriente a nombre de quién se promueve;
+Las personas que soliciten la inmatriculación de inmuebles, deberán cumplir los requisitos y sujetarse al procedimiento que establezca el reglamento respectivo.
+La inmatriculación en relación a terceros

@@ -1,3 +1,2 @@
-Artículo 8.35.- Las inscripciones y anotaciones pueden cancelarse por consentimiento de las personas a cuyo favor estén hechas o por orden judicial.
-Podrán no obstante ser canceladas a petición de parte sin dichos requisitos cuando el derecho inscrito o anotado quede extinguido.
-Consentimiento expreso en escritura para cancelar
+Artículo 8.31.- En caso de que el registrador se oponga a la rectificación se observará lo mismo que en el supuesto de que suspenda o niegue una inscripción.
+Personas a quienes no afecta la rectificación

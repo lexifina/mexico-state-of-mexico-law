@@ -1,4 +1,3 @@
-Artículo 8.11.- En caso de embargo precautorio, juicio ejecutivo o procedimiento de apremio sobre bienes o derechos reales, se sobreseerá todo procedimiento de apremio respecto de los mismos o de sus frutos, inmediatamente que conste en los autos por manifestación auténtica del Registro, que dichos bienes o derechos están inscritos a favor de persona distinta de aquella contra la que se decretó el embargo o se siguió el procedimiento, a no ser que se hubiere dirigido contra ella la acción como causa habiente del que aparece dueño en el Registro.
-CAPITULO II
-De la Prelación
-Prioridad de la inscripción
+Artículo 8.8.- No obstante lo dispuesto en el artículo anterior, los actos o contratos que se otorguen o celebren por personas que en el Registro aparezcan con derecho a ello, no se invalidarán en cuanto a terceros de buena fe, una vez inscritos, aunque después se anule o se resuelva el derecho del otorgante en virtud del título anterior no inscrito o de causas que no resulten claramente del mismo registro.
+Lo dispuesto en este artículo no se aplicará a los contratos gratuitos.
+Presunción de existencia del derecho inscrito

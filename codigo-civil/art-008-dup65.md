@@ -1,7 +1,4 @@
-Artículo 8.65.- Se inscribirán en el Registro de operaciones sobre bienes muebles:
-I. Los contratos de compra venta a plazos de bienes muebles sujetos a condición resolutoria;
-II. Los contratos de compra venta de bienes muebles por los cuales el vendedor se reserva la propiedad de los mismos;
-III. Los contratos de prenda, cuyo registro exige este Código.
-TITULO QUINTO
-Del registro de personas jurídicas colectivas
-Actos jurídicos sobre personas jurídicas colectivas
+(REFORMADO PRIMER PARRAFO, G.G. 3 DE DICIEMBRE DE 2007)
+Artículo 8.61.- Una vez realizada la inmatriculación, sólo podrá rectificarse por el Director General del Instituto de la Función Registral del Estado de México cuando se hubieren cometido errores mecanográficos, ortográficos o de otra índole que no afecten sus datos esenciales, sin cambiar por eso el sentido general de la inscripción ni el de ninguno de los conceptos. Tratándose de un error de concepto, sólo podrá rectificarse o cancelarse por determinación judicial.
+Se entenderá que se comete error de concepto cuando al expresar en la inmatriculación alguno de los contenidos del título, se altere o varíe su sentido.
+Inscripción de la inmatriculación administrativa

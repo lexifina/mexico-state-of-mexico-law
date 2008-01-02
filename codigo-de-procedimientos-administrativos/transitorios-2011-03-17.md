@@ -1,0 +1,6 @@
+P.O. 17 DE MARZO DE 2011.
+PRIMERO. El presente decreto entrará en vigor a los noventa días de su publicación en el periódico oficial El Estado de Jalisco.
+SEGUNDO. El Ejecutivo del Estado deberá elaborar y publicar el reglamento correspondiente, a más tardar a los treinta días siguientes a la publicación del presente decreto.
+TERCERO. El Instituto de Ciencias Forenses deberá elaborar las normas técnicas, manuales o acuerdos con las disposiciones, lineamientos o procedimientos necesarios para la preservación del lugar de los hechos y la cadena de custodia. Previa su publicación, deberá enviarlos a las corporaciones de seguridad pública, vialidad, rescate y auxilio médico estatales y municipales para su conocimiento, con independencia de lo señalado en el siguiente transitorio.
+CUARTO. El Instituto Jalisciense de Ciencias Forenses deberá coordinarse con las corporaciones de seguridad pública, vialidad, rescate y auxilio médico estatales y municipales, para dar la capacitación necesaria para el debido cumplimiento del presente decreto.
+QUINTO. Se autoriza al Ejecutivo del Estado para que realice los ajustes presupuestales necesarios para dar cumplimiento al presente decreto, de lo cual deberá informar al Congreso de los cambios financieros que haga.

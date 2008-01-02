@@ -1,2 +1,2 @@
-Artículo 8.37.- La cancelación de las inscripciones y anotaciones preventivas podrá ser total o parcial.
-Cancelación total
+Artículo 8.33.- El concepto rectificado surtirá efectos desde la fecha de la rectificación.
+Extinción de las anotaciones preventivas

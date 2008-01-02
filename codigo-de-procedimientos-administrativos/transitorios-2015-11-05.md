@@ -1,0 +1,7 @@
+P.O. 5 DE NOVIEMBRE DE 2015.
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el periódico oficial "El Estado de Jalisco".
+SEGUNDO. El Titular del Poder Ejecutivo deberá, durante los 90 días siguientes a la entrada en vigor del presente Decreto, emitir las disposiciones reglamentarias pertinentes, así como las reformas necesarias al Reglamento de Zonificación del Estado de Jalisco.
+TERCERO. Los ayuntamientos deberán, durante los 90 días siguientes a la entrada en vigor del presente Decreto, emitir las disposiciones reglamentarias que les corresponda.
+CUARTO. La instalación de los ciclopuertos en espacios públicos, se realizará con cargo a los ayuntamientos, dentro de sus posibilidades presupuestales.
+QUINTO. Dentro de los sesenta días siguientes a la entrada en vigor del presente Decreto, la Procuraduría de Infraestructura y Desarrollo Urbano realizará las adecuaciones necesarias a su Reglamento Interno, sus manuales de Organización y Procedimiento, y las normas de funcionalidad del organismo que las requieran, de conformidad con lo establecido en las fracciones X y XI del artículo 21 del Código Urbano para el Estado de Jalisco.
+SEXTO. Dentro de los sesenta días siguientes a la entrada en vigor del presente Decreto, el Consejo Estatal de Desarrollo Urbano realizará las adecuaciones necesarias a su reglamento, de conformidad con lo establecido en la fracción XIII del artículo 43 del Código Urbano para el Estado de Jalisco.

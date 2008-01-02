@@ -1,0 +1,1 @@
+Art. 136 Bis. (DEROGADO, P.O. 30 DE ENERO DE 2007)

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 22 DE AGOSTO DE 2015)
+Art. 124 Bis. Se impondrá de seis meses a cuatro años de prisión al que ilegalmente introduzca, guarde, tuviere en su poder o porte en estadios, centros deportivos o de espectáculos públicos, cualquier tipo de objeto o arma de las señaladas en el artículo 119 de este Código. La misma sanción se impondrá al que facilite o permita la realización de cualquiera de las conductas a que se refiere el presente artículo.

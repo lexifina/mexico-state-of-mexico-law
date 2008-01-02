@@ -1,3 +1,2 @@
-Artículo 8.19.- Una vez firmada la escritura que produzca cualquiera de las consecuencias mencionadas, el notario dará el aviso definitivo al Registro durante la vigencia del aviso preventivo y contendrá los datos que señale el reglamento, la fecha de la escritura y la de su firma.
-El Registrador con el aviso definitivo y sin cobro de derecho alguno, lo asentará de inmediato.
-Momento en que surte efectos el aviso definitivo
+Artículo 8.16.- Cuando vaya a otorgarse una escritura en la que se declare, reconozca, adquiera, transmita, modifique, limite o extinga la propiedad o posesión de bienes inmuebles o cualquier derecho real sobre los mismos o que sin serlo sea inscribible, el notario deberá solicitar al Registro, certificado sobre la existencia o inexistencia de gravámenes.
+Requisitos de la solicitud de certificado de gravámenes

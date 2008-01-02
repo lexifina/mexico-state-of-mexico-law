@@ -1,3 +1,2 @@
-Artículo 8.18.- El registrador procederá a anotar el aviso preventivo, al margen del asiento correspondiente, sin cobro de derechos por este concepto.
-Dicha nota tendrá vigencia de sesenta días naturales a partir de la fecha de presentación de la solicitud.
-Aviso definitivo por el notario
+Artículo 8.15.- La prelación entre los diversos documentos ingresados al Registro se determinará por la prioridad en cuanto a la fecha y hora de presentación, salvo lo dispuesto en el artículo siguiente.
+Exigencia de certificado de gravámenes
