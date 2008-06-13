@@ -1,3 +1,5 @@
+CAPITULO II
+DE LOS INSTRUMENTOS DE LA POLITICA FORESTAL
 Artículo 3.23. Son instrumentos de la política estatal en materia forestal, los siguientes:
 l. La planeación del desarrollo forestal;
 II. El Sistema Estatal de Información Forestal;
