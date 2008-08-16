@@ -21,4 +21,5 @@ XIX. Operar los sistemas de créditos y equivalencias que faciliten el tránsito
 (ADICIONADA, G.G. 18 DE JUNIO DE 2007)
 XX. Vigilar el cumplimiento de las disposiciones jurídicas, políticas y planes del sector, a través de auditorías, revisiones e inspecciones, que se realicen a las instituciones educativas particulares de todos los tipos, niveles y modalidades;
 XXI. Imponer sanciones;
-XXII. Publicar en el periódico oficial Gaceta del Gobierno, los planes y programas de estudios que la autoridad educativa federal determine conforme a lo establecido por la Ley General.
+(REFORMADA, G.G. 15 DE AGOSTO DE 2008)
+XXII. Propiciar, en coordinación con las autoridades federales y municipales, programas de educación ambiental en los planteles educativos del Estado de México, buscando que los contenidos teóricos de los programas de estudio se vinculen con proyectos prácticos, que fomenten la conciencia ambiental de los estudiantes.

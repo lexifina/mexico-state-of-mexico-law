@@ -6,6 +6,8 @@ IV. Participar en el mantenimiento y equipamiento de las escuelas públicas ubic
 V. Coadyuvar en la vigilancia y seguridad de los planteles escolares;
 VI. Promover y apoyar otro tipo de actividades educativas de interés a la sociedad;
 VII. Promover la gestión de recursos para contribuir a la atención de las necesidades educativas, sin perjuicio de la participación directa de otras instancias;
-VIII. Promover y apoyar los programas y acciones de capacitación y difusión dirigidas a los padres de familia y tutores, para que orienten y guíen adecuadamente la educación de sus hijos o pupilos, así como para fortalecer la integración familiar.
+VIII. Promover y apoyar los programas y acciones de capacitación y difusión dirigidas a los padres de familia y tutores, para que orienten y guíen adecuadamente la educación de sus hijos o pupilos, así como para fortalecer la integración familiar;
+(ADICIONADA, G.G. 15 DE AGOSTO DE 2008)
+IX. Implementar, en coordinación con las autoridades federales y estatales, programas de educación ambiental en las comunidades de los municipios, buscando se vinculen con proyectos prácticos, que fomenten la conciencia ambiental de sus habitantes.
 CAPITULO SEGUNDO
 Del Sistema Educativo Estatal
