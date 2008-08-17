@@ -1,0 +1,1 @@
+ARTÍCULO OCTAVO. El Consejo Consultivo del Organismo, emitirá las disposiciones que regulen el sistema de servicio profesional de carrera de la Comisión, dentro de los ciento ochenta días naturales siguientes a la entrada en vigor de la presente Ley, el cual deberá ser publicado en el órgano de difusión de la Comisión.

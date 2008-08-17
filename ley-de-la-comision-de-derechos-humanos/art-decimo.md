@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO. El Comisionado y los miembros del Consejo Consultivo, cuya designación se realizó al amparo de la Ley que Crea la Comisión de Derechos Humanos del Estado de México, permanecerán en su encargo plenamente por el periodo para el que fueron electos.

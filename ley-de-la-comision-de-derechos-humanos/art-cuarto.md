@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO. El Consejo Consultivo de la Comisión, deberá emitir el nuevo Reglamento Interno del Organismo, dentro de los ciento ochenta días naturales siguientes a la entrada en vigor de esta Ley, el cual será publicado en el Periódico Oficial "Gaceta del Gobierno".

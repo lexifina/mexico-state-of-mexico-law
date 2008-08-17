@@ -1,0 +1,1 @@
+ARTÍCULO NOVENO. El Consejo Consultivo, realizará las adecuaciones que sean conducentes a la Declaración de Principios Éticos de los Servidores Públicos del Organismo, dentro de los ciento ochenta días naturales siguientes a la entrada en vigor de la presente Ley, las cuales deberán ser publicadas en el órgano de difusión de la Comisión.

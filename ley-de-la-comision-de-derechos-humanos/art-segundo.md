@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. La Ley que Crea la Comisión de Derechos Humanos del Estado de México, publicada en el Periódico Oficial "Gaceta del Gobierno" el 20 de octubre de 1992, será abrogada al entrar en vigor la presente Ley.

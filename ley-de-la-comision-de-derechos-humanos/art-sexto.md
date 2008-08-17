@@ -1,0 +1,1 @@
+ARTÍCULO SEXTO. En tanto se expide el reglamento a que se refiere el transitorio anterior, se aplicarán las disposiciones reglamentarias en vigor, que no sean contrarias a las previsiones de esta Ley.
