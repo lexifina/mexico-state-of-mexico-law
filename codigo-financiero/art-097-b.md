@@ -261,7 +261,7 @@ D). Los servicios conexos:
 (REFORMADO, G.G. 26 DE DICIEMBRE DE 2007)
 3. Cobertizos.$1,547.
 4. (DEROGADO, G.G. 30 DE DICIEMBRE DE 2003)
-(ADICIONADO, G.G. 6 DE DICIEMBRE DE 2002)
+(ADICIONADA, G.G. 6 DE DICIEMBRE DE 2002)
 E). La instalación de anuncios publicitarios en el transporte:
 (REFORMADO, G.G. 26 DE DICIEMBRE DE 2007)
 1. Por la cesión de derechos o cambio de
