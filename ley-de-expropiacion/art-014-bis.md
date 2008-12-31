@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 30 DE DICIEMBRE DE 2008)
+Artículo 14 Bis.- Es procedente la ocupación del bien expropiado, una vez que se ha publicado el decreto y en los términos del mismo. Podrá decretarse la ocupación anticipada del bien expropiado, cuando se establezca pago diferido de la indemnización, o cuando la expropiación obedezca a las causas de utilidad públicas señaladas en las fracciones III, IX, XVIII, XIX y XX del artículo 3 de este ordenamiento.

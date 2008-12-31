@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 30 DE DICIEMBRE DE 2008)
+Artículo 15 Bis.- En caso de bienes inmuebles adjudicados como propiedad estatal, éstos deberán inscribirse en el Registro Administrativo de la Propiedad Pública, con base en lo señalado en los artículos 58, 62, 63 fracciones I, II y VII y 64 de la Ley de Bienes del Estado de México, en un plazo no mayor a cinco días hábiles después de la adjudicación; y se procederá a su inscripción definitiva en el Instituto de la Función Registral del Estado de México, en un máximo de diez días hábiles después de la adjudicación.

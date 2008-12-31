@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 30 DE DICIEMBRE DE 2008)
+Artículo 19 Bis.- Cuando el titular del bien expropiado se rehúse a recibir el importe del pago de la indemnización, se le notificará que ésta queda a su disposición en la Secretaría de Finanzas donde podrá ser reclamada en un plazo de 5 años a partir de ser notificado. Si en este plazo no es reclamada ésta pasará a beneficio del Estado y éste podrá disponer de la misma libremente y sin responsabilidad.
