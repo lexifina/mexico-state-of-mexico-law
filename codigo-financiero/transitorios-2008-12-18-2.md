@@ -1,0 +1,8 @@
+G.G. 18 DE DICIEMBRE DE 2008.
+DECRETO No. 235, POR EL QUE SE ADICIONAN LOS ARTICULOS 203-G, 230-H, 230-I, 230-J, 230-K Y 230-L AL CODIGO FINANCIERO DEL ESTADO DE MEXICO Y MUNICIPIOS.
+SE TRANSCRIBEN UNICAMENTE EL ARTICULO SEGUNDO DEL DECRETO No. 235, QUE SE RELACIONA CON EL CODIGO.
+ARTICULO SEGUNDO.- Las retenciones y pagos a que se refieren los artículos 37 de la Ley de Coordinación Fiscal, 230-B, 230-D y 230-E del Código Financiero del Estado de México y Municipios y Tercero Transitorio del Decreto Número 123 de la H. "LVI" Legislatura del Estado de México, publicado en el Periódico Oficial "Gaceta del Gobierno" de fecha 27 de marzo de 2008, tendrán en todo momento prioridad respecto de las retenciones a que se refieren los artículos 230-H, 230-J y 230-L del propio Código Financiero.
+TRANSITORIOS
+PRIMERO.- Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
+SEGUNDO.- El presente Decreto entrará en vigor a partir del día siguiente de su publicación en el Periódico Oficial "Gaceta del Gobierno".
+TERCERO.- Las retenciones y pagos a que se refieren los artículos 230-H, 230-J y 230-L del Código Financiero del Estado de México y Municipios, que se realicen con cargo a los recursos que correspondan al municipio del Fondo previsto en el artículo 228 fracción IV del propio Código Financiero, sólo podrán solicitarse para el cobro de adeudos generados a partir del uno de enero de 2008, siempre y cuando el municipio de que se trate se haya acogido a lo dispuesto en el artículo 15 párrafo octavo de la Ley de Ingresos de la Federación para el Ejercicio Fiscal 2008.
