@@ -4,5 +4,12 @@ La solicitud deberá contener la justificación necesaria, así como el dictamen
 Para el caso de las entidades públicas, adicionalmente a la solicitud de traspasos externos, deberán contar con la aprobación del órgano de gobierno y presentarla a la Secretaría.
 Los traspasos presupuestarios autorizados deberán informarse dentro de los primeros diez días del mes siguiente en el que se realicen para ser integrados al informe que el Poder Ejecutivo rinda al Poder Legislativo, el que invariablemente deberá contener montos, los programas, unidades ejecutoras y capítulos afectados por cada uno de los traspasos realizados.
 El monto total de traspasos presupuestarios externos que autorice la Secretaría no podrá exceder del 5% del presupuesto total autorizado anual, exceptuando de este Capítulo los ajustes por incrementos salariales de carácter general y las contingencias derivadas de desastres naturales y siniestros.
-En caso de que se requiera la realización de traspasos presupuestarios externos que rebasen el porcentaje señalado en este artículo, el Ejecutivo deberá solicitar la autorización a la Legislatura o a la Diputación Permanente cuando aquella se encuentra en receso, quien deberá aprobarlo en un plazo no mayor de 15 días. En caso de no recibir respuesta, se entenderá por aprobado.
-La Secretaría deberá informar a la Legislatura de aquellos traspasos externos que resulten en el incremento o disminución de más del 10% del presupuesto autorizado para un programa.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(REFORMADO, G.G. 18 DE DICIEMBRE DE 2008)
+En caso de que se requiera la realización de traspasos presupuestarios externos que rebasen el porcentaje señalado en este artículo, el Ejecutivo deberá solicitar la autorización a la Legislatura o a la Diputación Permanente cuando aquella se encuentra en receso, quien deberá aprobarlo en un plazo no mayor de 15 días.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(REFORMADO, G.G. 18 DE DICIEMBRE DE 2008)
+La Secretaría deberá informar a la Legislatura de aquellos traspasos externos que realice.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(ADICIONADO, G.G. 18 DE DICIEMBRE DE 2008)
+No se podrán realizar traspasos presupuestarios del gasto de inversión en obras y acciones a los capítulos de gasto corriente.

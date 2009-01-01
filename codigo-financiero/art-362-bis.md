@@ -7,7 +7,9 @@ A). Se amonestará al Contador Público cuando:
 1. Presente incompleta la información que deberá contener el dictamen de conformidad con este Código.
 2. No cumpla con lo dispuesto en los incisos A) y C) de la fracción I del artículo 48-
 B de este Código, sin justificación que lo motive.
-3. No cumpla con lo establecido en el segundo o tercer párrafo del artículo 47-E de este Código, en cuyo caso la amonestación será por cada bimestre que transcurra sin cumplir con cualquiera de esas obligaciones.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE NUMERAL, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(REFORMADO, G.G. 18 DE DICIEMBRE DE 2008)
+3. No cumpla con lo establecido en el segundo o tercer párrafo del artículo 47 D de este Código, en cuyo caso la amonestación será por cada bimestre que transcurra sin cumplir con cualquiera de esas obligaciones.
 B). Se suspenderán temporalmente los efectos de su registro para formular dictamen por dos años cuando:
 1. Formule el dictamen en contravención a lo dispuesto en este Código o no lo elabore de conformidad con las reglas de carácter general que al efecto emitan las autoridades fiscales.
 2. El Contador Público acumule tres amonestaciones.
@@ -16,8 +18,12 @@ En el caso de que el Contador Público se encuentre sujeto a proceso por la comi
 C). Se cancelará definitivamente su registro para formular dictamen, revocándose la autorización otorgada, cuando:
 1. Incurra en reincidencia al acumular tres suspensiones con motivo de la violación a las disposiciones fiscales que rigen la formulación del dictamen.
 2. No exhiba a requerimiento de la autoridad fiscal competente los papeles de trabajo a que se refiere el inciso B) de la fracción I del artículo 48-B de éste Código.
-3. Haya formulado dictamen sin registro vigente para dictaminar o estando impedido por afectar su independencia mental e imparcialidad de criterio en términos del artículo 47-E de este Código.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE NUMERAL, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(REFORMADO, G.G. 18 DE DICIEMBRE DE 2008)
+3. Formule dictamen estando impedido en términos del artículo 47 E de este Código.
 4. Haya participado en la comisión de delitos de carácter fiscal o delitos intencionales que ameriten pena corporal, respecto de los cuales se haya dictado sentencia definitiva que lo declare culpable.
 5. El Contador Público no sea localizado en el domicilio que haya señalado dentro del territorio del Estado ante las autoridades fiscales para oír y recibir notificaciones por los actos que se emitan en relación con los dictámenes que formule.
 El cómputo de lo dispuesto en el numeral 1, de los incisos A) y B) de la fracción III de ese artículo, se hará por cada actuación del Contador Público, independientemente del contribuyente al que se refieran.
-En caso de suspensión temporal o cancelación definitiva de registro a que se refieren los incisos B) y C) de la fracción III de este artículo, la autoridad fiscal competente dará aviso por escrito al colegio profesional o asociación de contadores públicos y, en su caso, a la Federación de Colegios Profesionales a la que pertenezca el Contador Público en cuestión.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(REFORMADO, G.G. 18 DE DICIEMBRE DE 2008)
+En caso de suspensión temporal o cancelación definitiva de registro a que se refieren los incisos B) y C) de la fracción III de este artículo, la autoridad fiscal competente dará aviso mediante correo electrónico al colegio profesional o asociación de contadores públicos y, en su caso, a la Federación de Colegios Profesionales a la que pertenezca el Contador Público en cuestión, sin perjuicio de la sanción que corresponda.

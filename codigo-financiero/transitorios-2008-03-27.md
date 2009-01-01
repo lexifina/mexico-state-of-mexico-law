@@ -1,11 +1,13 @@
 G.G. 27 DE MARZO DE 2008.
 PRIMERO.- Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
 SEGUNDO.- El presente Decreto entrará en vigor a partir del día siguiente de su publicación, en el Periódico Oficial "Gaceta del Gobierno".
-TERCERO.- Las retenciones y pagos que se realicen con cargo a los recursos del Fondo previsto en la fracción IV del artículo 228 del Código Financiero del Estado de México y Municipios, que correspondan al municipio y/o a sus organismos operadores de agua, a que se refieren los artículos 230 B, 230 D y 230 E del referido Código Financiero, sólo podrán solicitarse para el cobro de adeudos generados a partir del 1° de enero de 2008. Lo anterior, en el entendido de que las retenciones y pagos relativos a los conceptos de aprovechamientos por el suministro de agua en bloque por parte de la Comisión Nacional del Agua y por concepto de suministro de agua en bloque, cloración, operación, uso de la infraestructura hidráulica para la conducción de volúmenes y entrega de agua por la Comisión del Agua del Estado de México, con cargo a los recursos del citado Fondo, deberán efectuarse mediante la aplicación de los recursos del Fondo mencionado de manera gradual, con base en los siguientes porcentajes aplicables sobre el total de los recursos que le correspondan a cada municipio por concepto del Fondo previsto en la fracción IV del artículo 228 del propio Código Financiero vigente en la Entidad:
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE TRANSITORIO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(REFORMADO, G.G. 18 DE DICIEMBRE DE 2008)
+TERCERO.- Las retenciones y pagos que se realicen con cargo a los recursos del Fondo previsto en la fracción IV del artículo 228 del Código Financiero del Estado de México y Municipios, que correspondan al municipio y/o sus organismos operadores de agua, a que se refieren los artículos 230 B, 230 D, y 230 E del referido Código Financiero, sólo podrán solicitarse para el cobro de adeudos generados a partir del 10 de enero de 2008. Lo anterior, en el entendido de que las retenciones y pagos relativos a los conceptos del Derecho sobre agua por la explotación, uso o aprovechamiento de aguas nacionales y de aprovechamientos por el suministro de agua en bloque por parte de la Comisión Nacional del Agua y por concepto de suministro de agua en bloque, cloración, operación, uso de la infraestructura hidráulica para la conducción de volúmenes y entrega de agua por la Comisión del Agua del Estado de México, con cargo a los recursos del citado Fondo, deberán efectuarse mediante la aplicación de los recursos del Fondo mencionado de manera gradual, con base en los siguientes porcentajes aplicables sobre el total de los recursos que correspondan a cada municipio por concepto del Fondo previsto en la fracción IV del artículo 228 del propio Código Financiero vigente en la entidad.
 EJERCICIO FISCALPORCENTAJE MÁXIMO DE
 RETENCIÓN DEL FORTAMUN
 200840%
-200955%
+200945%
 201070%
 201185%
 2012 EN ADELANTE100%

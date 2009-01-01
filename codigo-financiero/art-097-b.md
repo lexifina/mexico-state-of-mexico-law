@@ -193,13 +193,15 @@ instalación de anuncios publicitarios.$2,576
 a). Autobús.$516
 (REFORMADO, G.G. 26 DE DICIEMBRE DE 2007)
 b). Minibús.$361
-(REFORMADO, G.G. 26 DE DICIEMBRE DE 2007)
-c). Vehículo de cuatro puertas sin incluir la
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE SUBINCISO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(REFORMADO, G.G. 18 DE DICIEMBRE DE 2008)
+c). Pick up, panel, van y vagoneta$309
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE SUBINCISO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(REFORMADO, G.G. 18 DE DICIEMBRE DE 2008)
+d). Vehículo de cuatro puertas sin incluir la
 del portaequipaje, con un máximo de cinco
 asientos y un mínimo de cuatro, incluido el
-del operador.$309
-(REFORMADO, G.G. 26 DE DICIEMBRE DE 2007)
-d). Vagonetas.$207
+del operador.$207
 H). Por estudios técnicos y económicos a solicitud de los particulares por el otorgamiento de permisos referidos a:
 (REFORMADO, G.G. 26 DE DICIEMBRE DE 2007)
 1. Permisos para vehículos de transporte
@@ -261,7 +263,6 @@ D). Los servicios conexos:
 (REFORMADO, G.G. 26 DE DICIEMBRE DE 2007)
 3. Cobertizos.$1,547.
 4. (DEROGADO, G.G. 30 DE DICIEMBRE DE 2003)
-(ADICIONADA, G.G. 6 DE DICIEMBRE DE 2002)
 E). La instalación de anuncios publicitarios en el transporte:
 (REFORMADO, G.G. 26 DE DICIEMBRE DE 2007)
 1. Por la cesión de derechos o cambio de
@@ -469,6 +470,9 @@ XIV. Expedición de autorización o su refrendo anual para prestar el servicio p
 A). Autorización.$8,320
 (REFORMADO, G.G. 26 DE DICIEMBRE DE 2007)
 B). Refrendo.$166
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(ADICIONADO, G.G. 18 DE DICIEMBRE DE 2008)
+Los derechos por refrendo previstos en esta fracción, se pagarán anualmente dentro de los tres primeros meses de cada año.
 (REFORMADA, G.G. 26 DE DICIEMBRE DE 2007)
 XV. Por la realización de estudios técnicos
 y económicos para el establecimiento
