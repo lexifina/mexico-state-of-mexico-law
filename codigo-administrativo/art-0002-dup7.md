@@ -1,12 +1,4 @@
-Artículo 2.7.- El patrimonio del Instituto se integra con:
-I. Los bienes con los que actualmente cuenta;
-II. Las aportaciones que los gobiernos federal, estatal y municipales le otorguen;
-III. Los derechos que tenga sobre los bienes muebles e inmuebles que le transfieran;
-IV. Las aportaciones, donaciones, legados y demás análogas que reciba de los sectores social y privado;
-V. Las cuotas de recuperación que reciba por los servicios que preste;
-VI. Los rendimientos, recuperaciones y demás ingresos que obtenga de la inversión de los recursos a que se refieren las fracciones anteriores;
-VII. Las concesiones, permisos, licencias y autorizaciones que se le otorguen conforme a la Ley General de Salud y este Libro;
-VIII. En general, todos los bienes, derechos y obligaciones que entrañen utilidad económica o sean susceptibles de estimación pecuniaria y que se obtengan por cualquier título.
-Los ingresos del Instituto, así como los productos e instrumentos financieros autorizados serán destinados y aplicados a las actividades señaladas en los programas aprobados por el consejo interno.
-CAPITULO QUINTO
-Del Consejo de Salud del Estado de México
+Artículo 2.6.- La dirección y administración del Instituto está a cargo de un consejo interno y un director general.
+El consejo interno se integra en los términos previstos en la Ley para la Coordinación y Control de Organismos Auxiliares y Fideicomisos del Estado de México y cuenta con nueve vocales que son los representantes de las secretarías de Finanzas y Planeación, del Trabajo y de la Previsión Social, de Educación, Cultura y Bienestar Social, de Desarrollo Urbano y Obras Públicas, de Desarrollo Agropecuario, de Administración y de Ecología, así como un representante de la Secretaría de Salud del Gobierno Federal y otro de los trabajadores designado por el Comité Ejecutivo Nacional del Sindicato Nacional de Trabajadores de la Secretaría de Salud.
+El director general será nombrado por el Gobernador del Estado y deberá ser preferentemente ciudadano mexiquense y con experiencia en materias de salud pública y administración de servicios de salud; mayor de cuarenta años de edad; médico cirujano; de reconocida calidad moral, buena conducta, y honorabilidad manifiesta.
+La organización y funcionamiento del Instituto se regirá por el reglamento interno que expida el consejo interno.
