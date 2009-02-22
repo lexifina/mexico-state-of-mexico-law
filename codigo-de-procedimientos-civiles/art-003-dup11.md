@@ -1,2 +1,3 @@
-Artículo 3.11.- El Juez designará perito para hacer el avalúo en caso de venta.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+Artículo 3.11.- (DEROGADO, G.G. 19 DE FEBRERO DE 2009)
 Subasta de los bienes
