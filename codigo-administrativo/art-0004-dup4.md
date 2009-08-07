@@ -1,4 +1,5 @@
-Artículo 4.4.- (DEROGADO, G.G. 3 DE MAYO DE 2006)
-(DEROGADO CON LOS ARTICULOS QUE LO INTEGRAN, G.G. 3 DE MAYO DE 2006)
-CAPITULO TERCERO
-Del Consejo Consultivo para el desarrollo sustentable del Estado de México
+(REFORMADO [N. DE E. ADICIONADO], G.G. 6 DE AGOSTO DE 2009)
+Artículo 4.4.- Son autoridades en materia de turismo:
+I. El Ejecutivo del Estado;
+II. La Secretaría de Turismo;
+III. Los Municipios.
