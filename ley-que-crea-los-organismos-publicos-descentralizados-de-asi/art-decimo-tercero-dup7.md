@@ -15,4 +15,11 @@ XII. Conducir las relaciones laborales del Organismo de acuerdo con las disposic
 XIII. Rendir los informes que la Junta de Gobierno le solicite;
 XIV. Revisar y autorizar los libros de Contabilidad y de inventarios que deba llevar el Organismo;
 XV. Pedir y recibir los informes que requiera del personal del Organismo;
-XVI. Las demás que le confieran los ordenamientos legales y la Junta de Gobierno.
+(REFORMADA, G.G. 17 DE AGOSTO DE 2009)
+XVI. Supervisar la administración, registro, control, uso, mantenimiento y conservación adecuados de los bienes del organismo;
+(ADICIONADA, G.G.17 DE AGOSTO DE 2009)
+XVII. Vigilar que el manejo y administración de los recursos que conforman el patrimonio del organismo, se realice conforme a las disposiciones legales aplicables;
+(ADICIONADA, G.G.17 DE AGOSTO DE 2009)
+XVIII. Autorizar con su firma y presentar la documentación que deba remitirse al Órgano Superior de Fiscalización del Estado de México; y
+(ADICIONADA, G.G.17 DE AGOSTO DE 2009)
+XIX. Las demás que le confieran los ordenamientos legales y la Junta de Gobierno.
