@@ -1,0 +1,8 @@
+CAPÍTULO QUINTO
+DE SU PATRIMONIO
+Artículo 23.- El patrimonio del Instituto Municipal de Cultura Física y Deporte de lxtapaluca, se integra con:
+I. La asignación anual del 2% del total del presupuesto de egresos del Municipio;
+II. Los bienes muebles e inmuebles que el H. Ayuntamiento le asigne como organismo público descentralizado;
+III. Los apoyos financieros, subsidios, valores, bienes y servicios que provengan del gobierno federal, estatal y municipal;
+IV. Los productos, concesiones, aprovechamientos, donativos, cooperaciones y demás ingresos que adquiera por cualquier título, ya sea público, privado y social; y
+V. Los ingresos y utilidades que obtenga por la prestación de sus servicios.
