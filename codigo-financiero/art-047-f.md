@@ -1,5 +1,5 @@
 (ADICIONADO, G.G. 26 DE DICIEMBRE DE 2007)
-Artículo 47-F.- Las normas de auditoria a que se refiere la fracción II del artículo 47 C de este Código, se consideran cumplidas en la forma siguiente:
+Artículo 47 F.- Las normas de auditoria a que se refiere la fracción II del artículo 47 C de este Código, se consideran cumplidas en la forma siguiente:
 I. Las relativas a la capacidad, independencia e imparcialidad profesionales del Contador Público autorizado, cuando su registro se encuentre vigente y no tenga impedimento para dictaminar en términos del artículo 47 E de este Código.
 II. Las relativas al trabajo profesional, cuando:
 A). La planeación del trabajo y la supervisión de sus ayudantes le permitan allegarse de los elementos de juicio suficientes para fundar su dictamen.

@@ -9,8 +9,11 @@ CONCEPTO
 I. Otorgamiento de concesiones para explotar el servicio público de transporte de pasajeros, en sus modalidades de:
 A). Servicio regular de pasaje.
 1. Colectivo:
-a). Autobuses de la. Clase.$20,234.
-b). Autobuses de 2a. Clase.$16,590.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(REFORMADO, G.G. 10 DE DICIEMBRE DE 2009)
+a). Autobuses.$20,234.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+b). (DEROGADO, G.G. 10 DE DICIEMBRE DE 2009)
 c). Minibuses.$16,590.
 d). Vagonetas.$16,590.
 2. (DEROGADO, G.G. 30 DE DICIEMBRE DE 2003) (REPUBLICADO, G.G. 1 DE ENERO DE 2009)
@@ -21,32 +24,64 @@ I. Individual en automóvil de alquiler de sitio, de alquiler de radio servicio 
 a). Vehículo de cuatro puertas sin incluir la del portaequipaje,
 con un máximo de cinco asientos y un mínimo de cuatro,
 incluido el del operador.$15,614.
-C). Por estudios técnicos y económicos, a solicitud de los particulares, para el otorgamiento de concesiones, ampliación de ruta y territorio de operación, referidos a:
-1. Concesiones para servicio de transporte de pasajeros.$1,348.
-2. (DEROGADO, G.G. 30 DE DICIEMBRE DE 2003) (REPUBLICADO, G.G. 1 DE ENERO DE 2009)
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(ADICIONADO, G.G. 10 DE DICIEMBRE DE 2009)
+C). El servicio discrecional de arrastre o de salvamento:
+1. Grúas de arrastre u otros vehículos especializados para
+trasladar vehículos impedidos mecánica o legalmente
+para su autodesplazamiento.$21,408
+2. Grúas de salvamento.$21,408
+3. Servicio de depósito de vehículos para guarda y custodia
+de vehículos accidentados o a disposición de autoridades
+diversas por cada corralón. $21,408
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(REFORMADO, G.G. 10 DE DICIEMBRE DE 2009)
+D). Por estudios técnicos y económicos, a solicitud de los particulares, para el otorgamiento de concesiones, ampliación de ruta y territorio de operación, referidos a:
+1. Concesiones para servicio de transporte de pasajeros.$1,426
+2. Concesiones para servicio discrecional de arrastre o
+de salvamento.$1,426
 II. Por la cesión de derechos o cambio de titular de la concesión, que se refieran a las modalidades:
 A). Servicio regular de pasaje:
 1. Colectivo:
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(REFORMADO, G.G. 10 DE DICIEMBRE DE 2009)
 a). Autobuses de 1a. Clase.$16,188.
-b). Autobuses de 2a. Clase.$13,490.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+b). (DEROGADO, G.G. 10 DE DICIEMBRE DE 2009)
 c). Minibuses.$13,490.
 d). Vagonetas.$13,271.
 2. (DEROGADO, G.G. 30 DE DICIEMBRE DE 2003) (REPUBLICADO, G.G. 1 DE ENERO DE 2009)
 3. Mixto:
-a). Camioneta mixta de carga y pasaje.$10,792.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(REFORMADO, G.G. 10 DE DICIEMBRE DE 2009)
+a). Camioneta de carga y pasaje.$10,792.
 B). Servicio discrecional de pasaje:
 1. Individual en automóvil de alquiler de sitio, de alquiler de radio servicio y de alquiler sin base, tipo intraurbano o suburbano:
 a). Vehículo de cuatro puertas sin incluir la del portaequipaje,
 con un máximo de 5 asientos y un mínimo de cuatro,
 incluido el del operador.$13,490.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(ADICIONADO, G.G. 10 DE DICIEMBRE DE 2009)
+C). El servicio discrecional de arrastre o de salvamento:
+1. Grúas de arrastre u otros vehículos especializados para
+trasladar vehículos impedidos mecánica o legalmente
+para su autodesplazamiento.$17,127
+2. Grúas de salvamento.$17,127
+3. Servicio de depósito de vehículos para guarda y
+custodia de vehículos accidentados o a disposición
+de autoridades diversas por cada corralón.$17,127
 III. Por la prórroga o cambio de temporalidad de vigencia de la concesión, que se refieran a las modalidades de:
 A). Servicio regular de pasaje
-I. Colectivo:
-a). Autobuses de 1a. Clase.$10,116.
-b). Autobuses de 2a. Clase.$8,431.
+1. Colectivo:
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(REFORMADO, G.G. 10 DE DICIEMBRE DE 2009)
+a). Autobuses.$10,116.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+b). (DEROGADO, G.G. 10 DE DICIEMBRE DE 2009)
 c). Minibuses.$8,431.
 d). Vagonetas.$8,431.
-2. Alta capacidad o masivo.$0.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE NUMERAL, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+2. (DEROGADO, G.G. 10 DE DICIEMBRE DE 2009)
 3. Mixto:
 a). Camioneta mixta de carga y pasaje. $6,744.
 B). Servicio discrecional de pasaje
@@ -55,13 +90,25 @@ a). Vehículo de cuatro puertas sin incluir la del portaequipaje,
 con un máximo de cinco asientos y un mínimo de cuatro,
 incluido el del operador.$8,431.
 Las tarifas establecidas en esta fracción, amparan la prórroga o cambio de la temporalidad de vigencia de las concesiones por un período hasta de diez años, pudiendo los contribuyentes solicitar la prestación de estos servicios por anualidad, para lo cual se pagarán los derechos correspondientes en forma proporcional al período solicitado, cuando así lo acuerde la autoridad administrativa.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(ADICIONADO, G.G. 10 DE DICIEMBRE DE 2009)
+C). El servicio discrecional de arrastre o de salvamento:
+1. Grúas de arrastre u otros vehículos especializados para
+trasladar vehículos impedidos mecánica o legalmente
+para su autodesplazamiento.$10,703
+2. Grúas de salvamento.$10,703
+3. Servicio de depósito de vehículos para guarda y custodia de vehículos accidentados o a disposición de autoridades diversas por cada corralón.$10,703
 IV. Por el otorgamiento de permisos de:
 A). Servicio discrecional de pasaje en la modalidad especializado:
-1. Vehículos de transporte de pasaje especializado escolar y personal de empresa:
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(REFORMADO PRIMER PARRAFO, G.G. 10 DE DICIEMBRE DE 2009)
+1 Vehículos de transporte de pasaje especializado escolar y personal de empresa en que se obtenga lucro por la prestación del servicio:
 a). Autobús.$1,886.
 b). Minibús.$1,886.
 c). Vagonetas.$1,618.
-2. El servicio de transporte de pasaje especializado de turismo e individual en vehículo de propulsión no mecánica:
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(REFORMADO PRIMER PARRAFO, G.G. 10 DE DICIEMBRE DE 2009)
+2. El servicio de transporte de pasaje especializado de turismo e individual en vehículo de propulsión no mecánica, en que se obtenga lucro por la prestación del servicio:
 a). Autobús.$4,164.
 b). Minibús.$4,164.
 c). Vagonetas.$2,698.
@@ -69,25 +116,17 @@ d). Bicitaxis.$546.
 B). Transporte de carga en general:
 1. Capacidad hasta de 3,000 kgs.$1,887.
 2. Capacidad de carga de más de 3,000 kgs.$2,698.
-C). Servicio especializado de carga:
-1. Capacidad hasta de 3,000 kgs.$2,018.
-2. Capacidad de carga de más de 3,000 kgs.$2,698.
-D). El servicio discrecional de arrastre o de salvamento:
-1. Grúas de arrastre u otros vehículos especializados para
-trasladar vehículos impedidos mecánica o legalmente
-para su auto-desplazamiento.$8,093.
-2. Grúas de salvamento u otros vehículos especializados
-para el rescate de personas, objetos o animales que se
-encuentren en situaciones de peligro o que atenten contra
-la seguridad de terceros en sus personas o bienes.$8,093.
-3. Servicio de depósito de vehículos para guarda y custodia
-de vehículos accidentados o a disposición de autoridades
-diversas por cada corralón.$5,755.
-4. Realización de estudios técnicos relativos a los numerales
-anteriores a que se refiere este inciso.$1,348.
-5. Por la realización de estudios técnicos y económicos a
-solicitud de los particulares, para el otorgamiento de permisos
-en la modalidad de vehículos de propulsión no mecánica.$107.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(REFORMADO PRIMER PARRAFO, G.G. 10 DE DICIEMBRE DE 2009)
+C). Por la realización de estudios técnicos y económicos
+a solicitud de los particulares, para el otorgamiento de
+permisos en la modalidad de vehículos de propulsión
+no mecánica. $113
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(REFORMADO PRIMER PARRAFO, G.G. 10 DE DICIEMBRE DE 2009)
+D). El servicio discrecional de arrastre y traslado, prestado
+a través de grúas para transportar vehículos impedidos
+mecánicamente para su auto-desplazamiento o para traslado.$10,703
 E). Por el Otorgamiento de permiso o autorización de bases,
 sitios o lanzaderas, por cada uno de ellos.$1,189.
 F). Los servicios conexos al servicio público de transporte:
@@ -105,19 +144,21 @@ de bahías de ascenso y descenso.$1,636.
 7. Por la realización de estudios técnicos para el establecimiento
 de cobertizos.$2,727.
 8. (DEROGADO, G.G. 30 DE DICIEMBRE DE 2003) (REPUBLICADO, G.G. 1 DE ENERO DE 2009)
-9. Por la realización de estudios técnicos y económicos a
-solicitud de los Particulares, para el otorgamiento de
-concesiones y permisos en todas sus Modalidades, por
-unidad vehicular.$1,348.
-10. Por la realización de estudios técnicos y económicos a
-solicitud de los Particulares, para la autorización de ruta o
-derrotero, enlace, enrolamiento, sitios, bases o lanzaderas.$3,372.
-11. Por la realización de estudios técnicos y económicos a
-solicitud de los Particulares, para la modificación de ruta o
-derrotero, enlace, enrolamiento, Sitios, bases o lanzaderas.$3,372.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE NUMERAL, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(REFORMADO, G.G. 10 DE DICIEMBRE DE 2009)
+9. Por la realización de estudios técnicos y económicos
+para el otorgamiento de concesiones y permisos en todas
+sus modalidades, por unidad vehicular.$1,348.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE NUMERAL, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(REFORMADO, G.G. 10 DE DICIEMBRE DE 2009)
+10. Por la realización de estudios técnicos y económicos,
+para la autorización o modificación de ruta o derrotero,
+enlace, enrolamiento, sitios, bases o lanzaderas.$3,372.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE NUMERAL, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+11. (DEROGADO, G.G. 10 DE DICIEMBRE DE 2009)
 12. (DEROGADO, G.G. 30 DE DICIEMBRE DE 2003) (REPUBLICADO, G.G. 1 DE ENERO DE 2009)
 G). La instalación y explotación de anuncios publicitarios en el transporte:
-1. Por la obtención del permiso para la instalación de anuncios $2,725.
+1. Por la obtención del permiso para la instalación de anuncios$2,725.
 publicitarios.
 2. Por la instalación y explotación de anuncios publicitarios por el período de ciento veinte días por unidad vehicular:
 a). Autobús.$546.
@@ -130,9 +171,13 @@ H). Por estudios técnicos y económicos a solicitud de los particulares por el 
 1. Permisos para vehículos de transporte de pasaje
 especializado escolar, personal de empresa y turismo
 y el servicio de arrastre o salvamento.$674.
-V. Por la cesión de derechos o cambio de titular del permiso de carga en general y especializado de carga:
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(REFORMADO PRIMER PARRAFO, G.G. 10 DE DICIEMBRE DE 2009)
+V. Por la cesión de derechos o cambio de titular del permiso de carga en general:
 A). El servicio discrecional de pasaje:
-1. Transporte de pasaje especializado escolar y personal de empresa:
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(REFORMADO PRIMER PARRAFO, G.G. 10 DE DICIEMBRE DE 2009)
+1. Transporte de pasaje especializado escolar y personal de empresa, en que se obtenga un lucro por la prestación:
 a). Autobús.$1,618.
 b). Minibús.$1,618.
 c). Vagoneta.$1,295.
@@ -141,21 +186,16 @@ a). Autobús.$3,238.
 b). Minibús.$3,238.
 c). Vagonetas.$2,158.
 d). Vehículos de propulsión no mecánica, bicitaxis.$273.
-B). El servicio de carga en general y especializado de carga:
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(REFORMADO PRIMER PARRAFO, G.G. 10 DE DICIEMBRE DE 2009)
+B). El servicio de carga en general:
 1. Capacidad hasta de 3,000 kgs.$1,012.
 2. Capacidad de carga de más de 3,000 kgs.$1,350.
-C). El servicio discrecional de arrastre o de salvamento:
-1. Grúas de arrastre u otros vehículos especializados para
-trasladar vehículos impedidos mecánica o legalmente
-para su auto-desplazamiento.$8,093.
-2. Grúas de salvamento u otros vehículos especializados
-para el rescate de personas, objetos o animales que se
-encuentren en situaciones de peligro o que atenten contra
-la seguridad de terceros en sus personas o bienes.$8,093.
-3. Servicio de depósito de vehículos por cesión de derechos o
-cambio de titular de permiso para guardar y custodia de
-vehículos accidentados o a disposición de autoridades diversas,
-por cada corralón.$5,755.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(REFORMADO, G.G. 10 DE DICIEMBRE DE 2009)
+C). El servicio discrecional de arrastre y traslado, prestado
+a través de grúas para transportar vehículos impedidos
+mecánicamente para su auto-desplazamiento o para traslado.$8, 563
 D). Los servicios conexos:
 1. Terminales de pasaje.$5,452.
 2. Bahías de ascenso y descenso.$1,909.
@@ -166,11 +206,15 @@ E). La instalación de anuncios publicitarios en el transporte:
 para la instalación de anuncios publicitarios.$1,363.
 VI. Por la prórroga o cambio de la temporalidad de vigencia del permiso respecto de:
 A). El servicio discrecional de pasaje:
-1. El servicio de transporte de pasaje especializado escolar y personal de empresa:
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(REFORMADO PRIMER PARRAFO, G.G. 10 DE DICIEMBRE DE 2009)
+1. El servicio de transporte de pasaje especializado escolar y personal de empresa en que se obtenga un lucro por la prestación del servicio:
 a). Autobús.$1,012.
-b ). Minibús.$810.
+b ).Minibús.$810.
 c). Vagonetas.$810.
-2. El servicio de transporte de pasaje especializado de turismo e individual en vehículo de propulsión no mecánica.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(REFORMADO PRIMER PARRAFO, G.G. 10 DE DICIEMBRE DE 2009)
+2. El servicio de transporte de pasaje especializado de turismo e individual en vehículo de propulsión no mecánica que obtenga un lucro por la prestación del servicio:
 a). Autobús.$2,023.
 b). Minibús.$2,023.
 c). Vagonetas.$1,349.
@@ -178,17 +222,11 @@ d). Bicitaxi.$546.
 B). El servicio de carga en general y especializado de carga:
 1. Capacidad hasta de 3,000 kgs.$1,012.
 2. Capacidad de carga de más de 3,000 kgs.$1,350.
-C). El servicio discrecional de arrastre o de salvamento:
-1. Grúas de arrastre u otros vehículos especializados para
-trasladar vehículos impedidos mecánica o legalmente
-para su auto-desplazamiento.$4,046.
-2. Grúas de salvamento u otros vehículos especializados
-para el rescate de personas, objetos o animales que se
-encuentren en situaciones de peligro o que atenten contra
-la seguridad de terceros en sus personas o bienes.$4,046.
-3. Servicio de depósito de vehículos para guarda y
-custodia de vehículos accidentados o a disposición de
-autoridades diversas por cada corralón.$5,755.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(REFORMADO PRIMER PARRAFO, G.G. 10 DE DICIEMBRE DE 2009) (F. DE E., G.G. 2 DE FEBRERO DE 2010)
+C). El servicio discrecional de arrastre y traslado, prestado
+a través de grúas para transportar vehículos impedidos
+mecánicamente para su auto-desplazamiento o para traslado.$4,281.
 D). Los servicios conexos, por el establecimiento de:
 1. Terminales de pasaje.$2,727.
 2. Bahías de ascenso y descenso.$982.
@@ -254,7 +292,8 @@ A). Por la expedición de la tarjeta de identificación personal
 para operadores de transporte público, por año.$832.
 B). Por el duplicado de la tarjeta de identificación personal
 para operadores de transporte público con la vigencia del
-documento expedido originalmente y con la leyenda "Duplicado".$608.
+documento expedido originalmente y con la leyenda
+"Duplicado".$608.
 La expedición de la tarjeta de identificación personal incluye exámenes medico, Psicométrico y toxicológico.
 XI. Por los servicios de control vehicular se pagarán los siguientes derechos:
 A). Servicio público de transporte:
@@ -294,4 +333,4 @@ XVI. Expedición del permiso para el establecimiento de bases
 a concesionarios del Gobierno del Distrito Federal, que
 hayan sido autorizados para prestar el servicio público de
 autotransporte colectivo de pasajeros, en rutas fijas dentro
-del territorio del Estado.$376.
+del territorio del Estado.$376

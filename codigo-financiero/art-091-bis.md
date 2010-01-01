@@ -54,8 +54,12 @@ E). Remolque emplacado en otra entidad federativa.$0.
 F). Motocicleta, motoneta, trimoto y cuadrimoto.$386.
 G). Motocicleta, motoneta, trimoto y cuadrimoto, emplacada
 en otra entidad federativa.$0.
-VIII. Por la expedición con vigencia anual de placas de vehículos
-en demostración y traslado.$1,270.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCION, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(REFORMADA, G.G. 10 DE DICIEMBRE DE 2009)
+VIII. Por los servicios relativos a las placas en demostración y traslado.
+A). Por la expedición inicial de placas y tarjeta de circulación.$1,343.
+B). Refrendo anual.$838.
+C). Baja.$317.
 IX. Por otros servicios relativos al transporte particular y comercial, se pagarán los siguientes derechos:
 A.) Por la práctica de revista a vehículos particulares de carga.$326.
 Los derechos previstos en este inciso, se pagarán anualmente de manera simultánea con el Impuesto sobre Tenencia o Uso de Vehículos o el Impuesto sobre Tenencia o Uso de Vehículos Automotores, según corresponda, mediante declaración, dentro de los tres primeros meses de cada año.

@@ -20,6 +20,9 @@ E). El Contador Público que haya formulado el dictamen esté impedido para ello
 F). El Contador Público no sea localizado en el domicilio que haya señalado dentro del territorio del Estado ante las autoridades fiscales para oír y recibir notificaciones por los actos que se emitan en relación con los dictámenes que formule.
 G). El dictamen haya sido formulado en contravención a lo dispuesto en este Código y en las reglas de carácter general que al efecto emitan las autoridades fiscales.
 H). El contribuyente no acepte o no esté de acuerdo con su dictamen respecto del Contador Público autorizado que lo haya formulado.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+(ADICIONADO, G.G. 10 DE DICIEMBRE DE 2009)
+I). El Contador Público Autorizado que haya formulado el dictamen hubiese fallecido.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (REFORMADO, G.G. 18 DE DICIEMBRE DE 2008)
 Para los efectos del inciso H) de esta fracción, se considera que el contribuyente no acepta o no está de acuerdo con el dictamen formulado por Contador Público autorizado, cuando así lo manifieste por escrito y bajo protesta de decir verdad ante la autoridad fiscal competente, a más tardar en los diez días siguientes a la fecha en que presentó o debió presentar el dictamen de que se trate, indicando las razones o los motivos que tenga y presentando las pruebas documentales pertinentes. En estos casos, dicha autoridad fiscal informará al Contador Público en cuestión acerca de la inconformidad presentada por el contribuyente respecto de su dictamen. Lo dispuesto en este párrafo es sin perjuicio de lo dispuesto en el artículo 47 C del Código y de la posible infracción en que incurra el contribuyente de conformidad con la fracción XV del artículo 361 de este Código.
