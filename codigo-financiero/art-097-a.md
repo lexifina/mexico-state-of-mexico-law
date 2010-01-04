@@ -1,94 +1,95 @@
 (REFORMADO, G.G. 6 DE DICIEMBRE DE 2002)
 Artículo 97-A.- Por el uso o aprovechamiento del derecho de vía de las autopistas de cuota y zonas aledañas, así como por los servicios prestados por el Sistema de Autopistas, Aeropuertos, Servicios Conexos y Auxiliares del Estado de México, se pagarán los siguientes derechos:
-(ACTUALIZADA EN SUS CUOTAS Y TARIFAS, G.G. 1 DE ENERO DE 2009)
+(ACTUALIZADA EN SUS CUOTAS Y TARIFAS, G.G. 1 DE ENERO DE 2010)
 TARIFA
 CONCEPTO
 I. Por la integración de expediente técnico de la solicitud
 para la explotación y utilización del derecho de vía de las
-autopistas de cuota estatales y zonas aledañas. $54.
+autopistas de cuota estatales y zonas aledañas. $57
 II. Por el estudio técnico de planos y proyectos para la
 instalación de cada señalamiento vertical informativo dentro
 del derecho de vía de las autopistas de cuota estatales y
-zonas aledañas.$327.
+zonas aledañas.$346
 III. Por el estudio técnico de planos y proyectos para la
 instalación de cada señalamiento publicitario monumental
 dentro del derecho de vía de las autopistas de cuota
-estatales y zonas aledañas.$5,179.
+estatales y zonas aledañas.$5,480
 IV. Por el estudio técnico de planos, proyectos y memorias de
 cálculo, para obras e instalaciones marginales dentro del
 derecho de vía de las autopistas de cuota estatales y zonas
 aledañas, por cada 100 metros lineales o fracción que
-exceda de dicha longitud.$5,179.
+exceda de dicha longitud.$5,480
 V. Por el estudio técnico para validación y restitución del
 derecho de vía de las autopistas de cuota estatales y zonas
-aledañas.$982.
+aledañas.$1,039
 VI. Por el estudio técnico de planos, proyectos y memorias
 de cálculo para la construcción de obras por cruzamientos
 superficiales, subterráneos o aéreos que atraviesen las
-autopistas de cuota estatales y zonas aledañas.$3,816.
+autopistas de cuota estatales y zonas aledañas.$4,037
 VII. Por el estudio técnico de planos, proyectos y memorias
 de cálculo para la construcción de obras e instalaciones
 marginales subterráneas, que se realicen dentro de los
 derechos de vía de las autopistas de cuota estatales y
-zonas aledañas, por kilómetro lineal o fracción.$982.
+zonas aledañas, por kilómetro lineal o fracción.$1,039
 VIII. Por el estudio técnico del proyecto y aprobación de obras para paradores integrales de servicio en las autopistas de cuota estatales y zonas aledañas:
 A). Con superficie total del proyecto hasta 3,000 metros
-cuadrados.$42,307.
+cuadrados.$44,761
 B). Con superficie total del proyecto hasta 5,000 metros
-cuadrados.$50,378.
+cuadrados.$53,299
 C). Con superficie total del proyecto hasta 10,000 metros
-cuadrados.$58,991.
+cuadrados.$62,412.
 D). Con superficie mayor a los 10,000 metros cuadrados,
-para cada 1,000 metros cuadrados adicionales.$1,619.
+para cada 1,000 metros cuadrados adicionales.$1,789
 IX. Por el permiso para la instalación de cada señalamiento
 informativo sobre el derecho de vía de las autopistas de
-cuota estatales y zonas aledañas.$191.
+cuota estatales y zonas aledañas.$203
 X. Por el permiso para la instalación de cada señalamiento informativo publicitario, sobre el derecho de vía de las autopistas de cuota estatales y zonas aledañas:
-A). De 2.00 y hasta 50.00 metros cuadrados.$12,518.
-B). De 51.00 y hasta 90.00 metros cuadrados.$15,727.
+A). De 2.00 y hasta 50.00 metros cuadrados.$13,244
+B). De 51.00 y hasta 90.00 metros cuadrados.$16,639
 XI. Por el permiso para la construcción de accesos que afecten el derecho de vía de las autopistas de cuota estatales y zonas aledañas:
-A). Proyecto a realizar en terreno plano.$16,846.
+A). Proyecto a realizar en terreno plano.$17,829
 B). Proyecto a realizar en terreno de lomerío con:
-1. Geometría en corte.$17,665.
-2. Geometría en terraplén.$18,537.
+1. Geometría en corte.$18,690
+2. Geometría en terraplén.$19,612
 C). Proyecto a realizar en terreno montañoso con:
-1. Geometría en corte.$21,045.
-2. Geometría en terraplén.$21,863.
+1. Geometría en corte.$22,266
+2. Geometría en terraplén.$23,131
 XII. Por el permiso del proyecto geométrico, estructura de pavimentos y obras hidráulicas en las autopistas de cuota estatales y zonas aledañas:
 A). Por obras desarrolladas en un tramo de I kilómetro de
-longitud.$16,846.
+longitud.$17,823
 B). Por obras desarrolladas en un tramo mayor de I kilómetro
-y hasta 5 kilómetros de longitud.$18,537.
+y hasta 5 kilómetros de longitud.$19,612
 C). Por obras desarrolladas en un tramo mayor de
-5 kilómetros y hasta 20 kilómetros de longitud.$21,863.
+5 kilómetros y hasta 20 kilómetros de longitud.$23,131
 D). Por obras desarrolladas en un tramo mayor de
-20 kilómetros, por cada kilómetro adicional.$219.
+20 kilómetros, por cada kilómetro adicional.$231
 XIII. Pago anual por el permiso para permanencia de cada
 señalamiento informativo sobre el derecho de vía de las
-autopistas de cuota estatales y zonas aledañas.$191.
+autopistas de cuota estatales y zonas aledañas.$203
 XIV. Pago anual por el permiso para la permanencia de cada señalamiento informativo publicitario, sobre el derecho de vía de las autopistas de cuota estatales y zonas aledañas:
-A). De 2.00 y hasta 50.00 metros cuadrados.$45,202.
-B). De 51.00 y hasta 90.00 metros cuadrados.$67,242.
-XV. Pago anual por la explotación de cada acceso que afecte
-el derecho de vía de las autopistas de cuota estatales y zonas
-aledañas.$79,491.
-XVI. Pago anual por la permanencia de cada cruce subterráneo
-o aéreo en las autopistas de cuota estatales y zonas aledañas.$3,053.
+A). De 2.00 y hasta 50.00 metros cuadrados.$47,824
+B). De 51.00 y hasta 90.00 metros cuadrados.$71,142
+XV. Pago anual por la explotación de cada acceso que
+afecte el derecho de vía de las autopistas de cuota estatales
+y zonas aledañas.$84,102
+XVI. Pago anual por la permanencia de cada cruce
+subterráneo o aéreo en las autopistas de cuota
+estatales y zonas aledañas.$3,230
 XVII. Pago anual por la permanencia de instalaciones
 marginales subterráneas, que el particular realice dentro
 de los derechos de vía de las autopistas de cuota estatales
-y zonas aledañas, por kilómetro lineal o fracción.$763.
+y zonas aledañas, por kilómetro lineal o fracción.$807
 XVIII. Permiso por un día para la expedición de folletos o
 volantes en plataformas y casetas de las autopistas de
-cuota estatales y zonas aledañas.$1,123.
+cuota estatales y zonas aledañas.$1,188
 XIX. Por verificación inicial para desvíos y maniobras en
 plataformas e instalaciones sobre el derecho de vía de
-las autopistas de cuota estatales y zonas aledañas.$6,740.
+las autopistas de cuota estatales y zonas aledañas.$7,131
 XX. Por la verificación inicial para la construcción de obras
 por cruzamientos superficiales, subterráneos o aéreos
 que atraviesen las autopistas de cuota estatales y zonas
-aledañas.$16,536.
+aledañas.$17,496
 XXI. Por el permiso para la construcción de obras e
 instalaciones marginales, que se realicen dentro de los
 derechos de vía de las autopistas de cuotas estatales
-y zonas aledañas, por kilómetro lineal o fracción.$4,147.
+y zonas aledañas, por kilómetro lineal o fracción.$4,388
