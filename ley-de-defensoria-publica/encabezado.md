@@ -1,0 +1,8 @@
+LEY DE DEFENSORIA PUBLICA DEL ESTADO DE MEXICO
+Ley publicada en la Sección Cuarta de la Gaceta del Gobierno del Estado de México, el miércoles 3 de febrero de 2010.
+ENRIQUE PEÑA NIETO, Gobernador Constitucional del Estado Libre y Soberano de México, a sus habitantes sabed:
+Que la Legislatura del Estado, ha tenido a bien aprobar lo siguiente:
+DECRETO NÚMERO 60
+LA H. "LVII" LEGISLATURA DEL ESTADO DE MÉXICO
+DECRETA:
+LEY DE DEFENSORÍA PÚBLICA DEL ESTADO DE MÉXICO
