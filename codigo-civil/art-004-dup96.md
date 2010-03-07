@@ -1,2 +1,7 @@
-Artículo 4.96.- En la sentencia que decrete el divorcio, se determinarán los derechos y obligaciones derivados de la patria potestad, respecto a la persona y bienes de sus hijos, teniendo en cuenta el interés particular de los menores, su salud, costumbres, educación y conservación de su patrimonio. El Juez acordará de oficio cualquier providencia que considere benéfica para los hijos o los sujetos a tutela.
-Revocación de las donaciones por divorcio
+Artículo 4.95.- Al admitirse la demanda de divorcio, o antes, si hubiere urgencia, podrán dictarse sólo mientras dure el juicio, las disposiciones siguientes:
+I. Separar a los cónyuges, tomando siempre en cuenta las circunstancias personales de cada uno y el interés superior de los hijos menores y de los sujetos a tutela;
+II. Fijar y asegurar los alimentos que debe dar el cónyuge alimentario al acreedor y a los hijos;
+III. A falta de acuerdo entre los cónyuges, la guarda y custodia de los hijos se decretará por el Juez en función del mayor interés de los menores y de los sujetos a tutela;
+IV. Dictar las medidas convenientes respecto a la mujer que esté embarazada;
+V. Las necesarias para que los cónyuges no se causen daños en su persona, en sus bienes, en los de la sociedad conyugal o en los bienes de los hijos.
+Sentencia de divorcio en relación a los hijos

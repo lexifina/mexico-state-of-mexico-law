@@ -1,2 +1,2 @@
-Artículo 4.69.- La acción de nulidad proveniente del atentado contra la vida de alguno de los cónyuges para casarse con el que quede libre, puede ser deducida por los hijos del cónyuge víctima del atentado o por el Ministerio Público, dentro del plazo de seis meses, contados desde que se celebró el nuevo matrimonio.
-Violencia como causa de nulidad del matrimonio
+Artículo 4.68.- La acción de nulidad por impedimento de adulterio, se ejercitará dentro de seis meses, contados a partir de la celebración del matrimonio, por el cónyuge ofendido o por el Ministerio Público, en caso de muerte de aquél.
+Legitimación y plazo para deducir contra la vida

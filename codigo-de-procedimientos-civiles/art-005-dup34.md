@@ -1,5 +1,4 @@
-Articulo 5.34.- La declaración de parte podrá recibirse con independencia de la confesional.
-Si se admiten la confesional y declaración de parte, ésta se desahogará al concluir aquélla.
+Artículo 5.35.- De existir menores, a petición de parte o de oficio, el juez tomará las providencias necesarias para que sin formalidad alguna, expresen de manera libre su opinión en los asuntos que les afecten, con citación del Ministerio Público adscrito.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Opinión de menores
+Objeción de documentos

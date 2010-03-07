@@ -1,6 +1,5 @@
-Artículo 5.56.- El juez procederá a admitir los medios de prueba ofrecidos en la demanda, reconvención y contestación a éstas, y las relacionadas con la objeción de documentos y tendrá por desahogadas las que su naturaleza así lo permita; dictará las medidas necesarias para preparar el desahogo de las restantes en la audiencia principal o fuera de ésta.
-Cuando se advierta la falta de algún requisito en el ofrecimiento de una prueba, el juez requerirá a la oferente para que lo subsane en ese acto, de no hacerlo en sus términos, la inadmitirá.
-En los asuntos donde se controviertan derechos de menores e incapaces o en materia de alimentos a favor del acreedor alimentario, el juez podrá ordenar el desahogo y práctica de cualquier medio probatorio.
+Artículo 5.57.- El desahogo de las pruebas fuera del local del juzgado pero dentro de su ámbito de competencia territorial, se realizará en los días, horas y lugares que señale el juez, pero antes de la audiencia principal, para lo cual, dictará las medidas conducentes.
+En el auto en que se admitan medios de prueba, se dejará a disposición del oferente el oficio o exhorto respectivo para que realice los trámites necesarios a fin de exhibirlo debidamente diligenciado hasta la fecha de la audiencia principal, con el apercibimiento de la deserción de la prueba.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Desahogo de pruebas fuera de audiencia
+Revisión de las medidas provisionales

@@ -1,2 +1,4 @@
-Artículo 4.97.- Por el divorcio se revocan las donaciones hechas al cónyuge culpable. El cónyuge inocente conservará lo recibido y podrá reclamar lo pactado en su provecho.
-Liquidación de la sociedad conyugal
+(REFORMADO, G.G. 6 DE MARZO DE 2010)
+Artículo 4.96.- En la sentencia que decrete el divorcio, se determinarán los derechos y obligaciones derivados de la patria potestad, respecto a la persona y bienes de los hijos, teniendo en cuenta el interés particular de los menores, su salud, costumbres, educación y conservación de su patrimonio.
+El Juez acordará de oficio cualquier providencia que considere benéfica para los hijos o los sujetos a tutela.
+Revocación de las donaciones por divorcio

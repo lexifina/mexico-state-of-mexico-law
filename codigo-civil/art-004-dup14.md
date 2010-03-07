@@ -1,2 +1,3 @@
-Artículo 4.14.- Cuando el tutor, el curador o sus descendientes contraen matrimonio con la persona que ha estado o está bajo la guarda de aquellos sin haber obtenido dispensa, el Juez nombrará inmediatamente un tutor interino que reciba los bienes y los administre mientras obtiene la dispensa. En este supuesto el matrimonio se considerará celebrado bajo el régimen de separación de bienes, aunque se haya pactado lo contrario.
-Matrimonio de mexicanos en el extranjero
+(REUBICADO, G.G. 6 DE MARZO DE 2010)
+Artículo 4.13.- Denunciado el impedimento el denunciante no se podrá desistir de él, y el oficial del Registro Civil suspenderá la celebración del matrimonio, en tanto se decida por el Juez o se obtenga dispensa.
+Matrimonio sin dispensa entre tutor y pupilo

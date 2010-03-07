@@ -1,2 +1,2 @@
-Artículo 4.56.- Las donaciones antenupciales son revocables. Las realizadas entre pretendientes se tienen por revocadas cuando el donatario cometa adulterio, abandone injustificadamente el domicilio conyugal por más de seis meses o incumpla sus obligaciones inherentes a la familia.
-Donaciones antenupciales sin efecto
+Artículo 4.55.- Las donaciones antenupciales no se revocarán por ingratitud a no ser que el donante fuere un extraño, que la donación haya sido hecha a ambos esposos y que los dos sean ingratos.
+Revocación de las donaciones antenupciales

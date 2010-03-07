@@ -1,2 +1,2 @@
-Artículo 4.34.- Todo convenio que importe cesión de una parte de los bienes propios de cada cónyuge, será considerado como donación.
-Irrenunciabilidad anticipada a las ganancias
+Artículo 4.33.- Es nula la capitulación en que se convenga que uno de los cónyuges perciba todas las utilidades; así como la que establezca que responda de las pérdidas y deudas comunes en una parte que exceda a la que proporcionalmente corresponda a su aportación o utilidades.
+La cesión entre cónyuges se considera donación

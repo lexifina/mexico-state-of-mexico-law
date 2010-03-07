@@ -1,2 +1,2 @@
-Artículo 4.49.- Las capitulaciones que establezcan separación de bienes contendrán un inventario de los que sea propietario cada contrayente o cónyuge y la relación de sus deudas.
-Ingresos de cada cónyuge
+Artículo 4.48.- Durante el matrimonio la separación de bienes puede terminar para ser substituida por la sociedad conyugal, observándose las formalidades sobre transmisión de los bienes de que se trate.
+Inventario en la separación de bienes

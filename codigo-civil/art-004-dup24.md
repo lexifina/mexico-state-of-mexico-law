@@ -1,3 +1,6 @@
-Artículo 4.24.- El matrimonio debe celebrarse bajo el régimen de sociedad conyugal o el de separación de bienes. En el caso de omisión o imprecisión, se entenderá celebrado bajo el régimen de separación de bienes.
-El régimen patrimonial podrá cambiarse mediante resolución judicial.
-Concepto de capitulaciones matrimoniales
+Artículo 4.23.- Entre los cónyuges no corre el plazo para la prescripción.
+TITULO SEGUNDO
+De los efectos del Matrimonio en relación con los Bienes de los Cónyuges
+CAPITULO I
+Disposiciones Generales
+Régimen patrimonial en el matrimonio

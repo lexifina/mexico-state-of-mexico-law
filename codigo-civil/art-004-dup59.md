@@ -1,2 +1,4 @@
-Artículo 4.59.- Los cónyuges pueden hacerse donaciones siempre que no perjudiquen el derecho de los acreedores alimentarios; pero sólo se confirman con la muerte del donante.
-Posibilidad de revocar donaciones entre cónyuges
+Artículo 4.58.- Son aplicables a las donaciones antenupciales las reglas de las donaciones comunes, en todo lo que no fueren contrarias a este capítulo.
+CAPITULO V
+De las Donaciones entre Cónyuges
+Confirmación de las donaciones entre cónyuges

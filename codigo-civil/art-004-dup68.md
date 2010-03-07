@@ -1,2 +1,2 @@
-Artículo 4.68.- La acción de nulidad por impedimento de adulterio, se ejercitará dentro de seis meses, contados a partir de la celebración del matrimonio, por el cónyuge ofendido o por el Ministerio Público, en caso de muerte de aquél.
-Legitimación y plazo para deducir contra la vida
+Artículo 4.67.- La nulidad por parentesco puede demandarse por cualquiera de los cónyuges, por sus ascendientes o por el Ministerio Público.
+Plazo para ejercitar la acción de nulidad por adulterio

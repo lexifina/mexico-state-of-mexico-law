@@ -1,2 +1,5 @@
-Artículo 4.64.- La nulidad por falta de consentimiento de los ascendientes o de quienes deban suplirlo, se pedirá por éstos dentro de los treinta días desde que tengan conocimiento del matrimonio.
-Improcedencia de la nulidad por falta de consentimiento de los ascendientes
+Artículo 4.63.- La falta de edad para contraer matrimonio dejará de ser causa de nulidad cuando:
+I. Haya hijos o la cónyuge se encuentre embarazada;
+II. Se alcance la mayoría de edad y no se hubiere demandado la nulidad;
+III. Se obtuviere dispensa de edad.
+Plazo para pedir la nulidad por falta de consentimiento de los ascendientes

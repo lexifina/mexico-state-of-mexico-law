@@ -1,2 +1,2 @@
-Artículo 4.75.- La nulidad que se funde en la falta de formalidades para la validez del matrimonio, puede alegarse por los cónyuges y por cualquiera que tenga interés en probar que no hay matrimonio o por el Ministerio Público.
-Improcedencia de nulidad por falta de solemnidades
+Artículo 4.74.- La acción de nulidad por impedimento de un matrimonio anterior, existente al tiempo de contraerse el segundo, puede deducirse por el cónyuge del primer matrimonio; por sus hijos o herederos, y por los cónyuges que contrajeron el segundo. No deduciéndola ninguna de las personas mencionadas, la ejercitará el Ministerio Público.
+Legitimación para alegar la nulidad por falta de formalidades

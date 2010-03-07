@@ -1,2 +1,2 @@
-Artículo 4.48.- Durante el matrimonio la separación de bienes puede terminar para ser substituida por la sociedad conyugal, observándose las formalidades sobre transmisión de los bienes de que se trate.
-Inventario en la separación de bienes
+Artículo 4.47.- La separación de bienes puede ser absoluta o parcial. En el segundo caso, los bienes que no estén comprendidos en las capitulaciones, serán objeto de la sociedad conyugal.
+Conclusión de la separación de bienes

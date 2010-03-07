@@ -1,2 +1,3 @@
-Artículo 4.20.- Los cónyuges podrán desempeñar cualquier actividad, excepto las que dañen la moral de la familia o la estructura de ésta. Cualquiera de ellos podrá oponerse a que el otro desempeñe la actividad de que se trate, y el Juez competente resolverá lo que proceda.
-Administración de bienes por el cónyuge menor
+Artículo 4.19.- Los cónyuges de común acuerdo decidirán lo relativo a la educación y formación de los hijos y a la administración de los bienes que sean comunes a los cónyuges o que pertenezcan a los hijos sujetos a su patria potestad.
+En caso de desacuerdo el Juez de Primera Instancia resolverá lo conducente, sin necesidad de juicio.
+Libertad entre los cónyuges para elegir su actividad

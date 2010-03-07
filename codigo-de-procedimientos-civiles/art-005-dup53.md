@@ -1,5 +1,4 @@
-Artículo 5.53.- El juez procurará conciliar a las partes, de lograrlo, se formulará el convenio respectivo. Para aprobarlo, el juez vigilará que los derechos de los menores o incapaces queden garantizados, de ser necesario sugerirá las modificaciones respectivas.
-En la etapa de conciliación el juez mencionará los inconvenientes que conlleva la tramitación de un juicio y los instruirá de los alcances de una transacción.
+Artículo 5.54.- Si las partes logran conciliar parcialmente sus diferencias, cuando la naturaleza de la litis lo permita, el juez aprobará el convenio y continuará la controversia con los puntos que no fueron objeto de éste.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Conciliación parcial
+Fase de depuración procesal

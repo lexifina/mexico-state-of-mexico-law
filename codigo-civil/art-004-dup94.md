@@ -1,2 +1,2 @@
-Artículo 4.94.- La reconciliación de los cónyuges pone término al juicio de divorcio en cualquier estado en que se encuentre, si aún no hubiere sentencia ejecutoria, comunicándolo al Juez.
-Medidas precautorias en el divorcio
+Artículo 4.93.- Ninguna de las causas de divorcio pueden alegarse cuando haya mediado perdón expreso o tácito.
+Reconciliación de los cónyuges

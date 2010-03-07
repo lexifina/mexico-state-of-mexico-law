@@ -1,2 +1,4 @@
-Artículo 4.46.- La separación de bienes se rige por las capitulaciones matrimoniales o por sentencia judicial. La separación puede comprender no sólo los bienes de que sean propietarios los cónyuges al celebrar el matrimonio, sino también los que adquieran después.
-Régimen de separación de bienes absoluto o parcial
+Artículo 4.45.- Todo lo relativo a la terminación y liquidación de la sociedad conyugal, se regirá por lo que disponga el Código de Procedimientos Civiles al respecto.
+CAPITULO III
+De la Separación de Bienes
+Disposiciones que rigen la separación de bienes

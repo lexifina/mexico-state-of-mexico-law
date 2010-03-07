@@ -1,4 +1,7 @@
-Artículo 5.59.- El juez señalará día y hora para la celebración de la audiencia principal dentro de los quince días siguientes, en la que recibirá las pruebas pendientes de desahogo, se formularán alegatos y, en su caso, dictará la resolución definitiva.
+Artículo 5.60.- Si las pruebas admitidas, por su naturaleza, fueron desahogadas y el juez no considera la recepción de otra, se recibirán alegatos y, en su caso, dictará sentencia.
+(ADICIONADO CON LOS ARTICULOS QUE LO INTEGRAN, G.G. 19 DE FEBRERO DE 2009)
+CAPITULO VI
+De la Audiencia Principal
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Recepción de alegatos
+Desarrollo de la audiencia principal

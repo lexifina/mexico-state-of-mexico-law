@@ -1,5 +1,2 @@
-Artículo 4.63.- La falta de edad para contraer matrimonio dejará de ser causa de nulidad cuando:
-I. Haya hijos o la cónyuge se encuentre embarazada;
-II. Se alcance la mayoría de edad y no se hubiere demandado la nulidad;
-III. Se obtuviere dispensa de edad.
-Plazo para pedir la nulidad por falta de consentimiento de los ascendientes
+Artículo 4.62.- La acción de nulidad que nace del error o la impotencia, sólo puede ejercitarse por el cónyuge engañado; pero si no lo denuncia dentro del plazo de treinta días de conocerlo, se tiene por ratificado el consentimiento.
+Casos en que la falta de edad no es causa de nulidad de matrimonio

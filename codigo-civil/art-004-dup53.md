@@ -1,2 +1,2 @@
-Artículo 4.53.- Para determinar si es inoficiosa una donación antenupcial, tienen, el cónyuge donatario o sus herederos, la facultad de elegir la época en que se hizo la donación o la del fallecimiento del donador, pero si al hacerse la donación no se formó inventario de los bienes del donador, no podrá elegirse la época en que se otorgó.
-Consentimiento tácito en las donaciones antenupciales
+Artículo 4.52.- Son donaciones antenupciales las que antes del matrimonio hace un pretendiente al otro, así como las que un tercero hace a alguno de los pretendientes, o a ambos en consideración al matrimonio, las que podrán ser inoficiosas en los términos en que lo fueren las comunes.
+Determinación de donación antenupcial inoficiosa

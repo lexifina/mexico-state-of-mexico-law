@@ -1,3 +1,4 @@
-Artículo 4.12.- Las denuncias de impedimento pueden hacerse por cualquiera persona bajo protesta de decir verdad.
-Si se declara no haber impedimento, el denunciante de mala fe, será condenado al pago de las costas, daños y perjuicios.
-De los impedimentos no hay desistimiento
+(REUBICADO, G.G. 6 DE MARZO DE 2010)
+Artículo 4.11.- El oficial del Registro Civil que tenga conocimiento de que los pretendientes tienen impedimento para contraer matrimonio, levantará acta, en la que hará constar los datos que le hagan suponer que existe el impedimento.
+El acta firmada por los que en ella intervinieren, será remitida al Juez de Primera Instancia que corresponda para que con audiencia de los pretendientes, del denunciante y del Ministerio Público, haga la calificación del impedimento.
+Denuncia de impedimentos de matrimonio

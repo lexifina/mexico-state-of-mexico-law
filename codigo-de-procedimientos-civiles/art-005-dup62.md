@@ -1,4 +1,6 @@
-Artículo 5.62.- La audiencia principal sólo se suspenderá por motivo excepcional a juicio del juez.
+Artículo 5.63.- Los incidentes se formularán con ofrecimiento de pruebas durante la audiencia y previa vista a la contraria, se resolverán en la propia audiencia.
+Sólo será admisible la documental y presuncional, salvo que el juez estime el desahogo de algún otro medio de prueba para mejor proveer.
+El incidente de nulidad no suspende la citación para sentencia.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-De los incidentes
+Recepción de pruebas después de la audiencia principal

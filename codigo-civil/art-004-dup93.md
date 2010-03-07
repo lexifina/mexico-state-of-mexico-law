@@ -1,2 +1,2 @@
-Artículo 4.93.- Ninguna de las causas de divorcio pueden alegarse cuando haya mediado perdón expreso o tácito.
-Reconciliación de los cónyuges
+Artículo 4.92.- La caducidad de la acción de divorcio se examinará de oficio aún desde la presentación de la demanda.
+Extinción de la acción de divorcio por perdón

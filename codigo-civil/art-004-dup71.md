@@ -1,2 +1,5 @@
-Artículo 4.71.- La acción de nulidad del matrimonio por violencia, sólo puede deducirse por el cónyuge agraviado, dentro de los sesenta días desde que cesó la misma.
-Legitimación y plazo para pedir la nulidad por embriaguez o uso de drogas y bisexualidad
+Artículo 4.70.- Habrá violencia como causa de nulidad del matrimonio si concurren las circunstancias siguientes:
+I. Que importe peligro de perder la vida, la honra, la libertad, la salud o una parte considerable de los bienes;
+II. Que se cause al contrayente, a sus parientes en línea recta sin limitación de grado, sus colaterales dentro del segundo grado, o a su tutor;
+III. Que haya subsistido al tiempo de celebrarse el matrimonio.
+Legitimación y plazo para deducir la nulidad por violencia

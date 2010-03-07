@@ -1,2 +1,2 @@
-Artículo 4.98.- Ejecutoriada la sentencia de divorcio, se liquidará la sociedad conyugal, y se tomarán las precauciones necesarias para asegurar las obligaciones pendientes entre los cónyuges, o con relación a los hijos.
-Alimentos de los cónyuges en el divorcio
+Artículo 4.97.- Por el divorcio se revocan las donaciones hechas al cónyuge culpable. El cónyuge inocente conservará lo recibido y podrá reclamar lo pactado en su provecho.
+Liquidación de la sociedad conyugal

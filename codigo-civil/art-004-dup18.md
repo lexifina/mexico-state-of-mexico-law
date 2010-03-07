@@ -1,3 +1,3 @@
-Artículo 4.18.- Los cónyuges contribuirán económicamente al sostenimiento del hogar, a sus alimentos y a los de sus hijos, sin perjuicio de distribuirse la carga en la forma y proporción que acuerden.
-No tiene esta obligación el cónyuge que carezca de bienes propios y esté imposibilitado para trabajar; ni el que por convenio tácito o expreso, se ocupe de las labores del hogar o de la atención de los hijos. En estos casos, el otro cónyuge solventará íntegramente esos gastos.
-Educación de los hijos y administración de bienes
+Artículo 4.17.- Los cónyuges vivirán en el domicilio conyugal. Se considera domicilio conyugal el lugar establecido de común acuerdo por los consortes, en el cual ambos disfrutan de la misma autoridad y de consideraciones iguales, con independencia de terceros, que vivan en el mismo domicilio.
+Los Tribunales podrán eximir de esta obligación a alguno de ellos, cuando el otro traslade su domicilio a otro país o entidad federativa, se establezca en lugar insalubre o indecoroso.
+Sostenimiento económico del hogar

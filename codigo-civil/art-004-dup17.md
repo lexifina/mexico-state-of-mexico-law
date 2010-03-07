@@ -1,3 +1,4 @@
-Artículo 4.17.- Los cónyuges vivirán en el domicilio conyugal. Se considera domicilio conyugal el lugar establecido de común acuerdo por los consortes, en el cual ambos disfrutan de la misma autoridad y de consideraciones iguales, con independencia de terceros, que vivan en el mismo domicilio.
-Los Tribunales podrán eximir de esta obligación a alguno de ellos, cuando el otro traslade su domicilio a otro país o entidad federativa, se establezca en lugar insalubre o indecoroso.
-Sostenimiento económico del hogar
+(REFORMADO, G.G. 6 DE MARZO DE 2010)
+Artículo 4.16.- Los cónyuges están obligados a guardarse fidelidad, solidaridad, respetarse en su integridad física y psicológica, dignidad, bienes, creencias, nacionalidad, orígenes étnicos o de raza y en su condición de género, a contribuir a los fines del matrimonio y a socorrerse mutuamente.
+Los cónyuges tienen derecho a decidir de manera libre, responsable e informada sobre el número de hijos que deseen tener, así como a emplear métodos de reproducción asistida para lograr su propia descendencia. Este derecho sólo será ejercido por común acuerdo de los cónyuges y de conformidad con las restricciones que al efecto establezcan las leyes.
+Domicilio conyugal

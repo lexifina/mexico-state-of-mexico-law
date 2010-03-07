@@ -1,4 +1,2 @@
-Artículo 4.65.- No opera la causa de nulidad a que se refiere el artículo anterior:
-I. Si no se demandó dentro del plazo señalado;
-II. Si se otorga el consentimiento expreso o tácito.
-Revalidación del matrimonio entre parientes consanguíneos
+Artículo 4.64.- La nulidad por falta de consentimiento de los ascendientes o de quienes deban suplirlo, se pedirá por éstos dentro de los treinta días desde que tengan conocimiento del matrimonio.
+Improcedencia de la nulidad por falta de consentimiento de los ascendientes

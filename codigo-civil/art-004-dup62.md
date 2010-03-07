@@ -1,2 +1,5 @@
-Artículo 4.62.- La acción de nulidad que nace del error o la impotencia, sólo puede ejercitarse por el cónyuge engañado; pero si no lo denuncia dentro del plazo de treinta días de conocerlo, se tiene por ratificado el consentimiento.
-Casos en que la falta de edad no es causa de nulidad de matrimonio
+Artículo 4.61.- Son causas de nulidad de un matrimonio:
+I. El error acerca de la persona con quien se contrae;
+II. Que el matrimonio se haya celebrado con alguno de los impedimentos señalados en este Código;
+III. Que se haya celebrado sin las formalidades que la ley señala.
+Legitimación para pedir la nulidad de matrimonio por error

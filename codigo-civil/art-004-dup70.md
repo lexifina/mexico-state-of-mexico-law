@@ -1,5 +1,2 @@
-Artículo 4.70.- Habrá violencia como causa de nulidad del matrimonio si concurren las circunstancias siguientes:
-I. Que importe peligro de perder la vida, la honra, la libertad, la salud o una parte considerable de los bienes;
-II. Que se cause al contrayente, a sus parientes en línea recta sin limitación de grado, sus colaterales dentro del segundo grado, o a su tutor;
-III. Que haya subsistido al tiempo de celebrarse el matrimonio.
-Legitimación y plazo para deducir la nulidad por violencia
+Artículo 4.69.- La acción de nulidad proveniente del atentado contra la vida de alguno de los cónyuges para casarse con el que quede libre, puede ser deducida por los hijos del cónyuge víctima del atentado o por el Ministerio Público, dentro del plazo de seis meses, contados desde que se celebró el nuevo matrimonio.
+Violencia como causa de nulidad del matrimonio

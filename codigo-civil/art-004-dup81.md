@@ -1,2 +1,2 @@
-Artículo 4.81.- La buena fe se presume, salvo prueba en contrario.
-Medidas provisionales si sólo uno de los cónyuges solicita la nulidad
+Artículo 4.80.- Si ha habido mala fe de parte de ambos consortes, el matrimonio produce efectos civiles solamente respecto de los hijos.
+Presunción de buena fe

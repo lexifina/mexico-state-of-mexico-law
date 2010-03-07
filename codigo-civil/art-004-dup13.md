@@ -1,2 +1,4 @@
-Artículo 4.13.- Denunciado el impedimento el denunciante no se podrá desistir de él, y el oficial del Registro Civil suspenderá la celebración del matrimonio, en tanto se decida por el Juez o se obtenga dispensa.
-Matrimonio sin dispensa entre tutor y pupilo
+(REUBICADO, G.G. 6 DE MARZO DE 2010)
+Artículo 4.12.- Las denuncias de impedimento pueden hacerse por cualquiera persona bajo protesta de decir verdad.
+Si se declara no haber impedimento, el denunciante de mala fe, será condenado al pago de las costas, daños y perjuicios.
+De los impedimentos no hay desistimiento

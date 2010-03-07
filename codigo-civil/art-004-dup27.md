@@ -1,2 +1,2 @@
-Artículo 4.27.- A falta de pacto expreso, la sociedad conyugal comprenderá todos los bienes que adquieran los cónyuges, individual o conjuntamente durante la vigencia de la misma, a excepción de los bienes adquiridos por donación o herencia.
-Otorgamiento de capitulación por el menor
+Artículo 4.26.- Las capitulaciones matrimoniales pueden otorgarse antes de la celebración del matrimonio o durante él, y pueden comprender no solamente los bienes de que sean dueños los esposos en el momento de hacer el pacto, sino también los que adquieran después.
+Bienes que comprende la sociedad conyugal

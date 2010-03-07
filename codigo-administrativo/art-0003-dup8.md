@@ -1,4 +1,5 @@
-Artículo 3.8.- Son atribuciones de la Secretaría de Educación, Cultura y Bienestar Social:
+(REFORMADO PRIMER PARRAFO, G.G. 6 DE MARZO DE 2010)
+Artículo 3.8.- Son atribuciones de la Secretaría de Educación:
 I. Fortalecer la educación pública;
 II. Prestar los servicios de educación inicial básica, - incluyendo la indígena -, la especial, la normal y demás para la formación de maestros;
 III. Promover la educación especial para que las personas con capacidades diferentes alcancen un mayor desarrollo de la personalidad y se favorezca su integración social;
@@ -12,7 +13,8 @@ X. Autorizar el establecimiento, extensión y desarrollo de instituciones de edu
 XI. Garantizar y velar, en coordinación con los municipios, por la seguridad de los escolares y de los establecimientos educativos;
 XII. Promover que las instituciones que forman parte del sistema educativo estatal formulen y ejecuten, de acuerdo con sus posibilidades, programas que promuevan el otorgamiento de recompensas y estímulos que permitan reconocer el trabajo y méritos de los educadores, así como para el otorgamiento de becas económicas y de exención, y estímulos a los estudiantes que así lo requieran, considerando su situación socioeconómica y desempeño académico;
 XIII. Impulsar el establecimiento de centros de desarrollo infantil y de educación para adultos, con el apoyo de los municipios y de los beneficiarios de los servicios;
-XIV. Promover y favorecer la educación para la salud, sexual, ambiental, las bellas artes y el deporte, así como la enseñanza de un idioma extranjero, preferentemente el inglés, en todos los tipos y niveles educativos;
+(REFORMADA, G.G. 6 DE MARZO DE 2010)
+XIV. Promover y favorecer la educación para la salud, sexual, civismo, ética, fomento al respeto a la mujer, ambiental, las bellas artes y el deporte, así como la enseñanza de un idioma extranjero, preferentemente el inglés, en todos los tipos y niveles educativos;
 XV. Promover la incorporación de los estudiantes de las instituciones públicas y privadas a los servicios de atención médica;
 XVI. Propiciar, en coordinación con las instituciones del sector salud y asistenciales, la integración de los niños en edad escolar, condición vulnerable e infortunio familiar a los servicios de educación básica;
 XVII. Promover la utilización de los medios de comunicación para acrecentar la educación y la cultura en la entidad;
