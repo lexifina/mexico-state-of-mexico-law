@@ -1,0 +1,10 @@
+G.G. 30 DE JULIO DE 2010.
+PRIMERO.- Publíquese el presente Decreto en el periódico oficial "Gaceta del Gobierno" del Estado de México.
+SEGUNDO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el periódico oficial "Gaceta del Gobierno" del Estado de México.
+TERCERO.- Se derogan las disposiciones de igual o menor jerarquía que se opongan al presente Decreto.
+CUARTO.- Las remuneraciones que en el actual ejercicio sean superiores a la máxima establecida en el presente Decreto, deberán ser ajustadas o disminuidas en los Presupuestos de Egresos correspondientes al Ejercicio Fiscal del año siguiente a aquél en que haya entrado en vigor.
+QUINTO.- La Legislatura del Estado, adecuará la legislación secundaria, para tipificar y sancionar penal y administrativamente las conductas de los servidores públicos cuya finalidad sea eludir lo dispuesto en el presente Decreto, dentro del plazo de 90 días naturales siguientes al de su entrada en vigor.
+SEXTO.- A partir del ejercicio fiscal del año siguiente a aquél en que haya entrado en vigor el presente Decreto, las percepciones de los magistrados y jueces del Poder Judicial del Estado de México, que actualmente estén en funciones, se sujetarán a lo siguiente:
+a) Las retribuciones nominales señaladas en los presupuestos vigentes superiores al monto máximo previsto en la base II del artículo 127 de la Constitución Política de los Estados Unidos Mexicanos, se mantendrán durante el tiempo que dure su encargo.
+b) Las remuneraciones adicionales a las nominales, tales como gratificaciones, premios, recompensas, bonos, estímulos, comisiones, compensaciones, y cualquier remuneración en dinero o especie, sólo se podrán mantener en la medida en que la remuneración total no exceda el máximo establecido en la base II del artículo 127 de la Constitución Política de los Estados Unidos Mexicanos.
+c) Los incrementos a las retribuciones nominales o adicionales sólo podrán realizarse si la remuneración total no excede el monto máximo antes referido.
