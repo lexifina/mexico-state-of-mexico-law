@@ -1,5 +1,0 @@
-(ADICIONADO, P.O. 12 DE JUNIO DE 2003)
-Art. 262 Bis. Comete el delito de pillaje el que valiéndose de su posición como funcionario de protección civil, coadyuvante, voluntario o cualquier otra que en el momento implique carácter de autoridad o mando en el lugar en donde se haya declarado emergencia, alarma u orden de evacuación, por el riesgo o temor fundado, ocasionado por un siniestro o desastre, realice cualquiera de las siguientes conductas:
-I. En forma ilegítima se haga entregar, destruya, deteriore o arrebate del dominio ajeno las cosas pertenecientes a los habitantes del lugar;
-II. Disponga para sí o para interpósita persona de los apoyos y donaciones que den los particulares y/o personas jurídicas privadas que estén depositados o destinados para ayuda a la población afectada por el siniestro o desastre; y
-III. Estando a cargo de la vigilancia y administración de un centro de acopio, independientemente del cargo que detenten, vendan o usufructúen los recursos materiales que les haya otorgado el Gobierno del Estado, organismos públicos, privados o personas físicas.

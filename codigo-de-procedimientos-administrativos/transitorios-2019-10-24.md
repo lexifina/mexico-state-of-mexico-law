@@ -1,4 +1,0 @@
-P.O. 24 DE OCTUBRE DE 2019.
-[N. DE E. TRANSITORIOS DEL "DECRETO 27385/LXII/19 QUE REFORMA EL ARTÍCULO 176 BIS DEL CÓDIGO PENAL PARA EL ESTADO LIBRE Y SOBERANO DE JALISCO, LOS ARTÍCULOS 2° FRACCIÓN XI, 40 Y SE ADICIONA UN CAPÍTULO VII AL TÍTULO TERCERO, DENOMINADO "DE LOS PROTOCOLOS DE ACTUACIÓN PARA LA PREVENCIÓN, ATENCIÓN, SANCIÓN Y ERRADICACIÓN DE VIOLENCIA CONTRA LAS MUJERES, NIÑAS Y DE GÉNERO" CON LOS ARTÍCULOS 61, 62, 63 Y 64 TODAS (SIC) LA LEY DE ACCESO DE LAS MUJERES A UNA VIDA LIBRE DE VIOLENCIA DEL ESTADO DE JALISCO".]
-PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el periódico oficial "El Estado de Jalisco".
-SEGUNDO. Las dependencias y entidades obligadas por la presente ley a crear los protocolos contarán con un plazo de 180 días a partir de la publicación del presente decreto, para la elaboración y publicación de los mismos.

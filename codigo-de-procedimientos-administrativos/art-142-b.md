@@ -1,2 +1,0 @@
-(REFORMADO, P.O. 29 DE JULIO DE 2023)
-Art. 142-B. Se impondrán de un mes a tres años de prisión, multa por el importe de setenta a doscientas veces el valor diario de la Unidad de Medida y Actualización y cierre temporal o definitivo del establecimiento, al que por cualquier prestación en efectivo, especie o gratuitamente, utilice para beneficio propio o del establecimiento, los servicios con persona menor de dieciocho años de edad o con quien no tenga capacidad para comprender el significado del hecho o de resistirlo en cantinas, tabernas o centros de vicio.

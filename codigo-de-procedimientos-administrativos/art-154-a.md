@@ -1,9 +1,0 @@
-(NOTA: EL 27 DE ABRIL DE 2020, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN LOS APARTADOS VI Y VII, ASÍ COMO EN EL RESOLUTIVO SEGUNDO DE LA SENTENCIA DICTADA AL RESOLVER LA ACCIÓN DE INCONSTITUCIONALIDAD 86/2019, DECLARÓ LA INVALIDEZ DEL PÁRRAFO PRIMERO DE ESTE ARTÍCULO INDICADO CON MAYÚSCULAS, LA CUAL SURTIÓ EFECTOS RETROACTIVOS AL 12 DE JULIO DE 2019, FECHA EN LA QUE ENTRÓ EN VIGOR EL DECRETO NÚMERO 27295/LXII/19, DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www2.scjn.gob.mx/).
-(REFORMADO PRIMER PÁRRAFO, P.O. 11 DE JULIO DE 2019)
-Art. 154-A. COMETE EL DELITO DE DESAPARICIÓN FORZADA DE PERSONAS EL SERVIDOR PÚBLICO, EL PARTICULAR ACTUANDO POR ORDEN DE AUTORIDAD O INTEGRANTE DE LOS CUERPOS DE SEGURIDAD PÚBLICA QUE PRIVE DE LA LIBERTAD A UNA O MÁS PERSONAS, CUALQUIERA QUE FUERE SU FORMA, SEGUIDO DE LA NEGATIVA DE RECONOCER DICHA PRIVACIÓN DE LIBERTAD O DE INFORMAR SOBRE LA SUERTE, DESTINO O PARADERO DE LA PERSONA.
-(ADICIONADO, P.O. 15 DE OCTUBRE DE 2013)
-Es sujeto activo del delito de desaparición forzada de personas quien intervenga actuando con la autorización, la ayuda, la aquiescencia o tolerancia directa o indirecta de servidores públicos o de integrantes de seguridad pública.
-(ADICIONADO, P.O. 15 DE OCTUBRE DE 2013)
-Serán igualmente considerados como sujeto activo el particular que prive de la libertad a una o más personas, cualquiera que fuere su forma, seguido de la falta de información o de la negativa a reconocer dicha privación de libertad o de informar sobre el paradero de la persona, aunque en ello no participen servidores públicos en ningún grado
-(ADICIONADO, P.O. 15 DE OCTUBRE DE 2013)
-El delito de desaparición forzada se considera permanente e imprescriptible.

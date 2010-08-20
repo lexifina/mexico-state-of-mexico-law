@@ -1,3 +1,0 @@
-P.O. 8 DE OCTUBRE DE 2024.
-[N. DE E. TRANSITORIO DEL "DECRETO 29572/LXIII/24 DEL CONGRESO DEL ESTADO QUE DEROGA, REFORMA Y ADICIONA DIVERSOS ARTÍCULOS DEL CÓDIGO PENAL PARA EL ESTADO LIBRE Y SOBERANO DE JALISCO".]
-ÚNICO. El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Jalisco".

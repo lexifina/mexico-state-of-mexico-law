@@ -1,3 +1,0 @@
-P.O. 28 DE ABRIL DE 2022.
-[N. DE E. TRANSITORIO DEL "DECRETO NÚMERO 28760/LXIII/22 DEL CONGRESO DEL ESTADO QUE REFORMA EL ARTÍCULO 289 Y SE ADICIONA EL ARTÍCULO 289 BIS DEL CÓDIGO PENAL PARA EL ESTADO LIBRE Y SOBERANO DE JALISCO".]
-ÚNICO. El presente decreto entrará en vigor al día siguiente de su publicación el periódico oficial "El Estado de Jalisco".

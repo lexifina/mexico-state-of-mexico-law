@@ -1,4 +1,0 @@
-Art. 135 Bis. (DEROGADO, P.O. 19 DE SEPTIEMBRE DE 2020)
-(REFORMADA SU DENOMINACIÓN, P.O. 12 DE JUNIO DE 2003)
-CAPITULO II
-Corrupción de menores y Pornografía Infantil

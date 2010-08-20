@@ -1,5 +1,0 @@
-P.O. 19 DE SEPTIEMBRE DE 2020.
-[N. DE E. TRANSITORIOS DEL "DECRETO 27958/LXII/20 QUE REFORMA Y ADICIONA LOS ARTÍCULOS 10, 28, 29, 34, 40, 41, 57 A Y 57 B, DE LA LEY DE ACCESO DE LAS MUJERES A UNA VIDA LIBRE DE VIOLENCIA, SE DEROGA EL ARTÍCULO 135 BIS Y SE ADICIONAN LOS ARTÍCULOS 176 BIS 1 Y 176 BIS 2, DEL CÓDIGO PENAL, AMBAS LEYES DEL ESTADO DE JALISCO, CON EL OBJETO DE PREVENIR, ATENDER, SANCIONAR Y ERRADICAR LA VIOLENCIA DIGITAL CONTRA LAS MUJERES, CONOCIDA COMO LEY OLIMPIA".]
-PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el periódico oficial "El Estado de Jalisco".
-SEGUNDO. Se derogan las disposiciones que se opongan al presente decreto.
-TERCERO. Las secretarías y las instituciones señaladas en el presente decreto contaran con un plazo no mayor a 90 días posteriores a la publicación del presente decreto para la creación e implementación de los programas, protocolos y políticas para la prevención, atención, sanción y erradicación de la violencia digital.
