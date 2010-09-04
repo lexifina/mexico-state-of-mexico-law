@@ -5,5 +5,6 @@ II. Con la presencia de los contrayentes o sus mandatarios, en el lugar, día y 
 III. Con la comparecencia de sus testigos;
 IV. La lectura de la solicitud y los documentos relacionados;
 V. El Titular u oficial del Registro Civil, procederá a interrogar a los testigos si los pretendientes son las mismas personas a que se refiere la solicitud y si existe algún impedimento legal;
-VI. En caso de no existir impedimento, preguntará a cada uno de los contrayentes si es su voluntad unirse en matrimonio; estando conformes los declarará unidos en nombre de la ley y la sociedad, asentándose el acta correspondiente.
+(REFORMADA, G.G. 3 DE SEPTIEMBRE DE 2010)
+VI. En caso de no existir impedimento, hará saber a los contrayentes los derechos y obligaciones del matrimonio y preguntará a cada uno de ellos si es su voluntad unirse en matrimonio; estando conformes los declarará unidos en nombre de la Ley y la sociedad, asentándose el acta correspondiente.
 Irrenunciables los fines del matrimonio
