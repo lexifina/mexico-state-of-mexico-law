@@ -1,0 +1,8 @@
+LEY REGLAMENTARIA DE LAS FRACCIONES XXV Y XXVI DEL ARTÍCULO 61 DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE MÉXICO
+Ley publicada en la Sección Tercera de la Gaceta del Gobierno del Estado de México, el viernes 3 de septiembre de 2010.
+ENRIQUE PEÑA NIETO, Gobernador Constitucional del Estado Libre y Soberano de México, a sus habitantes sabed:
+Que la Legislatura del Estado, ha tenido a bien aprobar lo siguiente:
+DECRETO NÚMERO 144
+LA H. "LVII" LEGISLATURA DEL ESTADO DE MÉXICO
+DECRETA:
+LEY REGLAMENTARIA DE LAS FRACCIONES XXV Y XXVI DEL ARTÍCULO 61 DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE MÉXICO.
