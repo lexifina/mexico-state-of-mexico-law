@@ -1,5 +1,6 @@
 Artículo 6.9.- El Consejo Estatal de Protección Civil tendrá las atribuciones siguientes:
-I. Participar en la elaboración y evaluación del Programa Estatal de Protección Civil, y coadyuvar en su aplicación, procurando su amplia difusión en la entidad;
+(REFORMADA, G.G. 3 DE SEPTIEMBRE DE 2010)
+I. Participar en la elaboración y evaluación del Programa Estatal de Protección Civil, y coadyuvar en su aplicación, para mejorar la cultura de la prevención en la materia y su amplia difusión en la entidad;
 II. Fomentar la participación de los sectores de la sociedad en la formulación y ejecución de los programas de protección civil;
 III. Convocar, coordinar y armonizar la participación de los grupos sociales y los municipios, con pleno respeto a la libertad municipal, en la definición y ejecución de las acciones en la materia;
 IV. Promover el estudio, investigación y capacitación en materia de protección civil, identificando sus problemas y tendencias, y proponiendo normas y procedimientos que permitan su solución;
