@@ -1,5 +1,3 @@
-(ADICIONADO, G.G. 29 DE DICIEMBRE DE 2006)
-Artículo 22 Bis.- Las notificaciones de los actos previstos en este Código, se realizarán de forma personal, por edictos y/o por correo certificado de acuerdo en el procedimiento establecido en el Capítulo Tercero del Código de Procedimientos Administrativos del Estado de México; y de acuerdo a lo previsto en este Código, las relativas a estrados y correo electrónico.
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
-(REFORMADO, G.G. 18 DE DICIEMBRE DE 2008)
-En el caso de notificaciones por correo electrónico, cuando la autoridad transmita un documento digital, a una dirección o portal electrónico manifestado por el contribuyente, se tendrá como fecha de notificación la que corresponda al acuse de recibo que se obtenga del destinatario en forma automática, que se formalizará al abrir el documento digital enviado, y surtirá efectos a partir del día hábil siguiente a este evento.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE CODIGO.
+(REFORMADO, G.G. 3 DE SEPTIEMBRE DE 2010)
+Artículo 22 Bis.- Las notificaciones de los actos previstos en este Código, se realizarán de forma personal, por edictos y/o por correo certificado de acuerdo al procedimiento establecido en el Capítulo Tercero del Código de Procedimientos Administrativos del Estado de México; de acuerdo a lo previsto en este Código, las relativas a estrados; y de acuerdo a lo previsto en la Ley de Medios Electrónicos, cuando las gestiones asociadas a dichos actos se hayan realizado por conducto del SEITS.
