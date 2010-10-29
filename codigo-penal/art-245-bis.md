@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 28 DE OCTUBRE DE 2010)
+Artículo 245 Bis.- Se impondrá la pena establecida en la fracción II del artículo 242 de este Código, cuando el delito de homicidio sea cometido en contra de servidores públicos de las instituciones de Seguridad Pública, procuración o administración de justicia, al ejercer lícitamente sus funciones o con motivo de ellas. Tratándose de lesiones se aplicará la pena prevista en la fracción VI del artículo 238 de este Código.
