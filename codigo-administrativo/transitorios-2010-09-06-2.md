@@ -1,0 +1,14 @@
+G.G. 6 DE SEPTIEMBRE DE 2010.
+DECRETO NUMERO 148, POR EL QUE SE EXPIDE LA LEY PARA LA MEJORA REGULATORIA DEL ESTADO DE MEXICO Y MUNICIPIOS, TRANSITORIO DECIMO SEGUNDO, SE DEROGA EL TITULO CUARTO DEL LIBRO PRIMERO DEL CODIGO ADMINISTRATIVO DEL ESTADO DE MEXICO.
+PRIMERO. Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno" del Estado de México.
+SEGUNDO. Esta ley entrará en vigor al día siguiente de su publicación en el Periódico Oficial "Gaceta del Gobierno" del Estado de México.
+TERCERO. El Consejo Estatal de Mejora Regulatoria y la Comisión Estatal de Mejora Regulatoria se integrarán e instalarán en un término de sesenta días naturales contados a partir de la entrada en vigor de esta Ley;
+CUARTO. Las Dependencias deberán informar a la Comisión Estatal, en un lapso no mayor de noventa días naturales a la instalación formal de ésta, del nombramiento de sus Enlaces de Mejora Regulatoria.
+QUINTO. El Registro Estatal de Trámites y Servicios deberá estar integrado en un término de noventa días naturales a partir de la entrada en vigor de esta Ley, y las disposiciones aplicables entrarán en vigor una vez que la Comisión publique en el Periódico Oficial "Gaceta de Gobierno" del Estado de México, el acuerdo de que el Registro se encuentra operando y sustituirá al Registro Estatal de Trámites Empresariales.
+SEXTO. El Ejecutivo Estatal expedirá los reglamentos relacionados con la Ley, en un término de noventa días naturales. Hasta en tanto se emitan dichos reglamentos, seguirán aplicándose las disposiciones reglamentarias vigentes, en todo aquello que no la contravengan.
+SÉPTIMO. Las dependencias estatales elaborarán y enviarán a la Comisión Estatal su respectivo Programa Anual de Mejora Regulatoria en un término de sesenta días naturales posteriores a la instalación formal de la Comisión Estatal;
+OCTAVO. Los municipios expedirán su propio reglamento en la materia en un plazo no mayor de noventa días naturales, contados a partir de la entrada en vigor de la Ley, el cual será publicado en la Gaceta Municipal del Municipio respectivo. Concluido este plazo, las Comisiones Municipales de Mejora Regulatoria deberán integrarse e instalarse en un plazo no mayor a sesenta días naturales.
+NOVENO. Las dependencias municipales elaborarán y enviarán a la Comisión Municipal su respectivo Programa de Mejora Regulatoria, en un término de sesenta días naturales posteriores a su instalación formal.
+DÉCIMO. Los municipios establecerán sus Registros Municipales de Trámites y Servicios en un término máximo de un año.
+DÉCIMO PRIMERO. Todos los asuntos pendientes de resolución en materia de Mejora Regulatoria, pasarán a la Comisión Estatal una vez que ésta se haya instalado.
+DÉCIMO SEGUNDO. Se deroga el Título Cuarto del Libro Primero del Código Administrativo del Estado de México.
