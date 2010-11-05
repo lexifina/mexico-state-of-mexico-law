@@ -1,5 +1,7 @@
-Artículo 10.5.- Los municipios realizarán acciones de fomento económico que sean congruentes con las previstas en este Libro a cargo de la Secretaría de Desarrollo Económico y el Plan de Desarrollo Estatal.
+Artículo 10.5.- (DEROGADO, G.G. 7 DE SEPTIEMBRE DE 2010)
+(DEROGADO CON LAS SECCIONES Y ARTICULOS QUE LO INTEGRAN, G.G. 7 DE SEPTIEMBRE DE 2010)
 CAPITULO TERCERO
 De los consejos consultivos económicos
+(DEROGADA CON LOS ARTICULOS QUE LO INTEGRAN, G.G. 7 DE SEPTIEMBRE DE 2010)
 SECCION PRIMERA
 Del Consejo Consultivo Económico Estatal

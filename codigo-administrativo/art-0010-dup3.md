@@ -1,1 +1,1 @@
-Artículo 10.3.- Corresponde a la Secretaría de Desarrollo Económico el fomento de las actividades económicas en los términos de este Libro, en coordinación con las demás dependencias y organismos auxiliares de la administración pública estatal, federal y municipal.
+Artículo 10.3.- (DEROGADO, G.G. 7 DE SEPTIEMBRE DE 2010)

@@ -1,1 +1,1 @@
-Artículo 10.6.- El Consejo Consultivo Económico Estatal es un órgano técnico de asesoría del Ejecutivo del Estado, para la promoción de las actividades económicas y el impulso del desarrollo integral de la entidad.
+Artículo 10.6.- (DEROGADO, G.G. 7 DE SEPTIEMBRE DE 2010)
