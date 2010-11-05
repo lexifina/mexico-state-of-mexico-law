@@ -1,4 +1,5 @@
 G.G. 6 DE SEPTIEMBRE DE 2010.
+DECRETO NUMERO 148, POR EL QUE SE EXPIDE LA LEY PARA LA MEJORA REGULATORIA DEL ESTADO DE MEXICO Y MUNICIPIOS, TRANSITORIO DECIMO SEGUNDO, SE DEROGA EL TITULO CUARTO DEL LIBRO PRIMERO DEL CODIGO ADMINISTRATIVO DEL ESTADO DE MEXICO.
 PRIMERO. Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno" del Estado de México.
 SEGUNDO. Esta ley entrará en vigor al día siguiente de su publicación en el Periódico Oficial "Gaceta del Gobierno" del Estado de México.
 TERCERO. El Consejo Estatal de Mejora Regulatoria y la Comisión Estatal de Mejora Regulatoria se integrarán e instalarán en un término de sesenta días naturales contados a partir de la entrada en vigor de esta Ley;
