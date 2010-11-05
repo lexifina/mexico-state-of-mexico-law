@@ -9,4 +9,7 @@ VI. Coordinar campañas permanentes en materia de protección civil;
 VII. Promover ante las autoridades educativas la adopción de programas en materia de protección civil en las instituciones de educación en todos sus niveles y grados;
 VIII. Constituirse en sesión permanente en los casos de riesgo o desastre para formular opiniones y recomendaciones sobre las acciones que deban tomarse;
 IX. Coadyuvar en la vigilancia de la aplicación de los recursos que se destinen a los programas y acciones de protección civil;
-X. Las demás que se prevean en la reglamentación de este Libro.
+(REFORMADA, G.G. 4 DE NOVIEMBRE DE 2010)
+X. Convocar, coordinar y convenir con los Ayuntamientos del Estado y la Secretaría del Medio Ambiente la integración de un Programa para atender las emergencias y contingencias provocadas por desastres y fenómenos perturbadores de origen natural, cuyo objetivo principal es la protección de la vida y la salud de la población afectada, apoyando el restablecimiento de los servicios públicos;
+(ADICIONADA, G.G. 4 DE NOVIEMBRE DE 2010)
+XI. Las demás que se prevean en la reglamentación de este Libro.

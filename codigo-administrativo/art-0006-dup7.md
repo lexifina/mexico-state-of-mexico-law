@@ -9,6 +9,8 @@ VI. Promover la creación de fondos para las acciones de protección civil;
 VII. Solicitar el apoyo del Gobierno Federal para el auxilio y recuperación en los casos de emergencia o desastre cuando la capacidad operativa y financiera del Estado sea superada;
 (REFORMADA, G.G. 3 DE SEPTIEMBRE DE 2010)
 VIII. Aplicar los recursos estatales y federales a las acciones de prevención, auxilio y de recuperación;
+(ADICIONADA, G.G. 4 DE NOVIEMBRE DE 2010)
+XIII BIS. Coordinar las acciones con las dependencias del Estado y de los municipios, para atender las emergencias y contingencias provocadas por fenómenos perturbadores de origen natural y apoyar el restablecimiento de servicios públicos, mediante el fondo estatal de atención a los desastres y siniestros ambientales.
 IX. Informar al sistema nacional de protección civil de la ocurrencia de riesgos y desastres en el territorio del Estado para la concertación y coordinación de acciones;
 X. Apoyar la creación, desarrollo y consolidación de los consejos municipales de protección civil, grupos voluntarios y grupos de ayuda mutua;
 (REFORMADA, G.G. 3 DE SEPTIEMBRE DE 2010)
