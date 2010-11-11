@@ -1,3 +1,8 @@
 (REFORMADO [N. DE E. ADICIONADO], G.G. 6 DE AGOSTO DE 2009)
-Artículo 4.8.- Podrán ser consideradas como zonas de Interés Turístico aquellas que a juicio de la Secretaría constituyan un importante destino turístico por sus características histórico-culturales o naturales. Los Municipios, por su parte, podrán presentar ante la Secretaría, proyectos de declaratoria de sus respectivos territorios.
-En todos los casos, la selección de las zonas de Interés Turístico deberá considerar los criterios de sustentabilidad en el Artículo 4.1 segundo párrafo del presente Libro.
+Artículo 4.7.- El Consejo Consultivo Estatal de Turismo Sustentable es el órgano colegiado, interinstitucional y plural de consulta, asesoría y opinión técnica de la Secretaría y cuyas atribuciones quedarán establecidas en el Reglamento respectivo el cual será realizado por la Secretaria.
+(REFORMADO [N. DE E. ADICIONADO], G.G. 6 DE AGOSTO DE 2009)
+TITULO SEGUNDO
+Planeación del Turismo Sustentable
+(REFORMADO [N. DE E. ADICIONADO], G.G. 6 DE AGOSTO DE 2009)
+CAPITULO UNICO
+De las Zonas de Interes Turístico

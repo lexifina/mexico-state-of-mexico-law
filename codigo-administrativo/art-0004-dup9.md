@@ -1,8 +1,3 @@
-(REFORMADO [N. DE E. ADICIONADO], G.G. 6 DE AGOSTO DE 2009)
-Artículo 4.9.- La Secretaría, en uso de sus facultades, formulará los proyectos de decretos para las declaratorias de Zonas de Interés Turístico, en coordinación con entidades municipales, estatales y federales vinculadas al desarrollo sustentable, para aprobación del Gobernador del Estado.
-(REFORMADO [N. DE E. ADICIONADO], G.G. 6 DE AGOSTO DE 2009)
-TITULO TERCERO
-Promoción y Fomento del Turismo Sustentable
-(REFORMADO [N. DE E. ADICIONADO], G.G. 6 DE AGOSTO DE 2009)
-CAPITULO PRIMERO
-De la Promoción Turística
+(REFORMADO, G.G. 10 DE NOVIEMBRE DE 2010)
+Artículo 4.8.- Podrán ser consideradas como Zonas de Interés Turístico, aquellas que a juicio de la Secretaría constituyan un importante destino turístico por sus características histórico-culturales o naturales.
+En todos los casos, la selección de las Zonas de Interés Turístico deberán considerar los criterios de sustentabilidad que se establecen en el Artículo 4.3 fracción X del presente Libro.
