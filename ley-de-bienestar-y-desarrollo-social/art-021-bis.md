@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 20 DE DICIEMBRE DE 2010)
+Artículo 21 bis.- Los programas de desarrollo social que sean evaluados positivamente y que se justifique su continuidad, de acuerdo al Sistema Estatal de Indicadores de Desarrollo Social y Humano a que se refiere el artículo 25 quinquies de esta Ley, deberán contar con un presupuesto para su permanencia en el año fiscal siguiente, el cual no podrá ser inferior, en términos reales, al asignado en el año fiscal anterior.

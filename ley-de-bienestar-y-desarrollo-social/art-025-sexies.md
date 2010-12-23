@@ -1,2 +1,2 @@
-(ADICIONADO, G.G. 7 DE SEPTIEMBRE DE 2010)
-Artículo 25 sexies.- Los indicadores a los que se refiere el artículo anterior serán instrumentos públicos que permitan planear, diseñar, ejecutar y evaluar el impacto de la política social en el Estado y municipios, los cuales tendrán carácter obligatorio para las dependencias y organismos del Gobierno del Estado y los municipios, en términos de la Ley de Planeación del Estado de México y Municipios.
+(REFORMADO, G.G. 20 DE DICIEMBRE DE 2010)
+Artículo 25 sexies.- El Sistema Estatal de Indicadores de Desarrollo Social y Humano será un instrumento público que, entre otros objetivos, permita planear, diseñar, ejecutar y, evaluar el impacto de la política de desarrollo social en el Estado y municipios, y tendrá carácter obligatorio para las dependencias y organismos del Gobierno del Estado y los municipios, en términos de la Ley de Planeación del Estado de México y Municipios.
