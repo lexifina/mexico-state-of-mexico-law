@@ -1,2 +1,5 @@
-(ADICIONADO, G.G. 5 DE ENERO DE 2006)
-Artículo 15.8.- La Secretaría General de Gobierno, es la dependencia del Poder Ejecutivo encargada de ordenar la organización, administración, edición, publicación y circulación del Periódico Oficial del Gobierno del Estado de México.
+(ADICIONADO, G.G. 24 DE DICIEMBRE DE 2010)
+Artículo 15.7 Bis.- El Periódico Oficial del Gobierno del Estado de México, deberá proveerse con recursos tecnológicos y humanos adecuados, así como materiales necesarios para la oportuna elaboración, impresión y distribución en cantidad suficiente para que la sociedad este enterada en tiempo y forma de las disposiciones que nos rigen.
+(ADICIONADO CON LOS ARTICULOS QUE LO INTEGRAN, G.G. 5 DE ENERO DE 2006)
+CAPITULO II
+De la dirección del periódico oficial
