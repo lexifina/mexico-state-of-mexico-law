@@ -1,13 +1,15 @@
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DE LA PRESENTE TARIFA, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
-(REFORMADA, G.G. 10 DE DICIEMBRE DE 2009)
+(REFORMADO EN SU
+MONTO, G.G. 21 DE
+DICIEMBRE DE 2010)
 TIPO DE VIVIENDAMONTO DE APORTACIÓN
 POR VIVIENDA
-DE INTERÉS SOCIAL$571
-POPULAR$854
-MEDIA$9,559
-RESIDENCIA$15,891
+DE INTERÉS SOCIAL$598
+POPULAR$895
+MEDIA$10,017
+RESIDENCIA$16,654
 RESIDENCIAL ALTO
-Y CAMPESTRE$27,110
+Y CAMPESTRE$28,412
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (REFORMADO PRIMER PARRAFO, G.G. 10 DE DICIEMBRE DE 2009)
 Artículo 216-F.- Estas Aportaciones para Obras de Impacto Vial deberán pagarse en efectivo, dentro de los diecisiete días siguientes al inicio de la vigencia de la primera licencia o primer permiso municipal de construcción que se expida con relación a la obra objeto del dictamen, salvo que cualquiera de dichos documentos se hubiesen notificado o entregado en fecha posterior, caso en el cual, se tomará esta última fecha para el cómputo del plazo para el pago, salvo que el inicio de la construcción, modificación o ampliación se realice en fecha posterior, caso en el cual se estará a lo establecido en el segundo párrafo de este artículo, debiendo enterarlas mediante declaración en la forma oficial aprobada; en especie, conforme al artículo 26 A de este ordenamiento legal o en obra para infraestructura vial, o bien convenirse el pago en efectivo ya sea diferido o en parcialidades, con otorgamiento de la garantía del interés fiscal conjuntamente con la solicitud de autorización, mismas que se deberán presentar dentro del plazo citado.

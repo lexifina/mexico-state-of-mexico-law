@@ -48,7 +48,9 @@ C). Para remolques.$273
 D). Para motocicletas, motoneta, trimoto y cuadrimoto.$131
 (ACTUALIZADA EN SUS CUOTAS Y TARIFAS, G.G. 1 DE ENERO DE 2010)
 VI. Por la expedición del permiso para transportar carga en vehículo particular:
-A). Por ciento ochenta días.$660
+(REFORMADO, G.G. 21 DE DICIEMBRE DE 2010)
+A). Por sesenta días y hasta por dos ocasiones
+en el ejercicio fiscal de que se trate$660
 B). Para motocicletas, motonetas, trimoto y cuadrimoto,
 por cada 30 días.$100
 (ACTUALIZADA EN SUS CUOTAS Y TARIFAS, G.G. 1 DE ENERO DE 2010)

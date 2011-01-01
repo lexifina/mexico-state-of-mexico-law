@@ -146,12 +146,17 @@ de bahías de ascenso y descenso.$1,731
 7. Por la realización de estudios técnicos para el establecimiento
 de cobertizos.$2,885
 8. (DEROGADO, G.G. 30 DE DICIEMBRE DE 2003) (REPUBLICADO, G.G. 1 DE ENERO DE 2009) (REPUBLICADO, G.G. 1 DE ENERO DE 2010)
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE CODIGO.
+(REFORMADO, G.G. 21 DE DICIEMBRE DE 2010)
 9. Por la realización de estudios técnicos y económicos
+a solicitud de los particulares o de las autoridades
 para el otorgamiento de concesiones y permisos en todas
 sus modalidades, por unidad vehicular.$1,426
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE CODIGO.
+(REFORMADO, G.G. 21 DE DICIEMBRE DE 2010)
 10. Por la realización de estudios técnicos y económicos,
 para la autorización o modificación de ruta o derrotero,
-enlace, enrolamiento, sitios, bases o lanzaderas.$3,568
+enlace y enrolamiento.$3,568
 11. (DEROGADO, G.G. 10 DE DICIEMBRE DE 2009) (REPUBLICADO, G.G. 1 DE ENERO DE 2010)
 12. (DEROGADO, G.G. 30 DE DICIEMBRE DE 2003) (REPUBLICADO, G.G. 1 DE ENERO DE 2009) (REPUBLICADO, G.G. 1 DE ENERO DE 2010)
 (ACTUALIZADO EN SUS CUOTAS Y TARIFAS, G.G. 1 DE ENERO DE 2010)
@@ -165,11 +170,8 @@ e). Pick up, panel, van y vagoneta.$346
 d). Vehículo de cuatro puertas sin incluir la del portaequipaje,
 con un máximo de cinco asientos y un mínimo de cuatro,
 incluido el del operador.$231
-(ACTUALIZADO EN SUS CUOTAS Y TARIFAS, G.G. 1 DE ENERO DE 2010)
-H). Por estudios técnicos y económicos a solicitud de los particulares por el otorgamiento de permisos referidos a:
-1. Permisos para vehículos de transporte de pasaje
-especializado escolar, personal de empresa y turismo
-y el servicio de arrastre o salvamento.$713
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE CODIGO.
+H). (DEROGADO, G.G. 21 DE DICIEMBRE DE 2010)
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (REFORMADO PRIMER PARRAFO, G.G. 10 DE DICIEMBRE DE 2009)
 V. Por la cesión de derechos o cambio de titular del permiso de carga en general:
@@ -231,25 +233,34 @@ D). Los servicios conexos, por el establecimiento de:
 4. (DEROGADO, G.G. 30 DE DICIEMBRE DE 2003) (REPUBLICADO, G.G. 1 DE ENERO DE 2009) (REPUBLICADO, G.G. 1 DE ENERO DE 2010)
 (ACTUALIZADO EN SUS CUOTAS Y TARIFAS, G.G. 1 DE ENERO DE 2010)
 E). El permiso para la instalación de anuncios publicitarios:$2,885
-En la prorroga o cambio de la temporalidad de vigencia de permisos para servicios de arrastre y de salvamento, depósito de vehículos y servicio de transporte especializado, que en términos del Reglamento de Transporte Público y Servicios Conexos del Estado de México, opten por la certificación de calidad respecto de dichos servicios y los bienes afectos a los mismos, acreditándolo debidamente ante la autoridad de transporte, se encontrarán exentos del pago que se contempla en esta fracción.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE CODIGO.
+(REFORMADO, G.G. 21 DE DICIEMBRE DE 2010)
+En la prorroga o cambio de la temporalidad de vigencia de permisos para servicios de arrastre y traslado y servicio de transporte especializado, que en términos del Reglamento de Transporte Público y Servicios Conexos del Estado de México, opten por la certificación de calidad respecto de dichos servicios y los bienes afectos a los mismos, acreditándolo debidamente ante la autoridad de transporte, se encontrarán exentos del pago que se contempla en esta fracción.
 Se exceptúan de lo anterior, los permisos para servicio con vehículos de propulsión no mecánica.
 (ACTUALIZADA EN SUS CUOTAS Y TARIFAS, G.G. 1 DE ENERO DE 2010)
 VII. Por la expedición de autorizaciones o modificaciones complementarias de las concesiones y permisos que correspondan, respecto de:
-A). Autorización de ruta o área geográfica de operación del
-servicio público de transporte en las modalidades de colectivo,
-mixto, individual de automóvil de alquiler de sitio, de alquiler
-de radio servicio y de alquiler sin base tipo intraurbano o
-suburbano, de carga, especializado de carga, de arrastre
-y de salvamento, por cada vehículo.$1,764
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE CODIGO.
+(REFORMADO, G.G. 21 DE DICIEMBRE DE 2010)
+A). Autorización de ruta o área geográfica de
+operación del servicio público de transporte en
+las modalidades de colectivo, mixto, de arrastre
+y de salvamento, y de arrastre y traslado, por
+cada vehículo.$1,764
 B). Modificación de rutas o área geográfica de operación del servicio público de transporte en las modalidades referidas en el inciso que antecede, por cada vehículo:
 1. De enrolamiento.$1,258
 2. Por la fusión de dos rutas como resultado de un enlace.$1,258
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE CODIGO.
+(REFORMADO, G.G. 21 DE DICIEMBRE DE 2010)
 3. De su derrotero por cambios de sentido de la circulación
-vehicular.$142
+vehicular, y/o en su recorrido original$142
 4. La reducción de su longitud por reubicarse su origen o
 destino, reduciendo el derrotero.$142
 5. De frecuencia de la ruta o derrotero.$1,258
-6. Por el cambio de base en los lugares de origen o destino.$1,764
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE CODIGO.
+(REFORMADO, G.G. 21 DE DICIEMBRE DE 2010)
+6. Por el cambio de base en los lugares de origen
+o destino y alargamiento en la longitud del
+derrotero.$1,764
 C). Autorización de las tarifas a que se sujetará la operación
 del servicio público de transporte en las modalidades referidas
 en los incisos A) y B) anteriores, por cada vehículo.$203
@@ -326,7 +337,13 @@ B). (DEROGADO, G.G. 30 DE DICIEMBRE DE 2003) (REPUBLICADO, G.G. 1 DE ENERO DE 20
 (ACTUALIZADA EN SUS CUOTAS Y TARIFAS, G.G. 1 DE ENERO DE 2010)
 XII. Expedición de permiso de transporte público en otras
 Modalidades$713
-XIII. (DEROGADA, G.G. 30 DE DICIEMBRE DE 2003) (REPUBLICADA, G.G. 1 DE ENERO DE 2009) (REPUBLICADA, G.G. 1 DE ENERO DE 2010)
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCION, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE CODIGO.
+(REFORMADA [N. DE E. ADICIONADA], G.G. 21 DE DICIEMBRE DE 2010)
+XIII. Por la expedición de constancia:
+A). De registro de licencia o permiso para
+conducir vehículos automotores.$51.
+B). De registro de tarjeta de identificación
+personal para operadores de transporte público.$51.
 XIV. Expedición de autorización o su refrendo anual para prestar el servicio público de autotransporte colectivo de pasajeros en rutas fijas dentro del territorio del Estado, a concesionarios del Gobierno del Distrito Federal; personas físicas o personas jurídicas colectivas, unidades o empresas económicas:
 (ACTUALIZADO EN SUS CUOTAS Y TARIFAS, G.G. 1 DE ENERO DE 2010)
 A). Autorización.$9,313
