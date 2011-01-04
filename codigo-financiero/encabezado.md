@@ -1,4 +1,5 @@
 CODIGO FINANCIERO DEL ESTADO DE MEXICO Y MUNICIPIOS
+ULTIMA ACTUALIZACION POR ACUERDO EN QUE SE DAN A CONOCER LAS CUOTAS Y TARIFAS PARA EL EJERCICIO FISCAL DE 2011: 1 DE ENERO DE 2011.
 Código publicado en la Gaceta del Gobierno del Estado de México, el martes 9 de marzo de 1999.
 CESAR CAMACHO QUIROZ, Gobernador del Estado Libre y Soberano de México, a sus habitantes, sabed:
 Que la Legislatura del Estado, ha tenido a bien aprobar lo siguiente:
