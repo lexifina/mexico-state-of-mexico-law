@@ -5,7 +5,7 @@ Quedan comprendidos dentro de la obra pública:
 I. El mantenimiento, restauración, desmantelamiento o remoción de bienes muebles incorporados o adheridos a un inmueble;
 II. Los proyectos integrales o comúnmente denominados llave en mano, en los cuales el contratista se obliga desde el diseño de la obra hasta su terminación total, incluyéndose, cuando se requiera, la transferencia de tecnología;
 III. Los trabajos de exploración, localización y perforación; mejoramiento del suelo y/o subsuelo; desmontes y extracción y aquellos similares que tengan por objeto la explotación y desarrollo de los recursos naturales que se encuentran en el suelo y/o subsuelo;
-IV. Los trabajos de infraestructura agropecuaria e hidroagrícola:
+IV. Los trabajos de infraestructura agropecuaria e hidroagrícola;
 V. La instalación, montaje, colocación y/o aplicación, incluyendo las pruebas de operación de bienes muebles que deban incorporarse, adherirse o destinarse a un inmueble, siempre que dichos muebles sean proporcionados por la convocante al contratista o bien, cuando su adquisición esté incluida en los trabajos que se contraten y su precio sea menor al de estos últimos;
 (REFORMADA, G.G. 21 DE AGOSTO DE 2006)
 VI. Los demás que tengan por objeto principal alguno de los conceptos a que se refiere el párrafo primero de este artículo, excluyéndose expresamente los trabajos regulados por el Libro Décimo Sexto de este Código.
