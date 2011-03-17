@@ -17,7 +17,8 @@ N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCION, VEASE TRAN
 (REFORMADA, G.G. 12 DE MAYO DE 2010)
 XIV. Promover y favorecer la sana alimentación y la activación física, la educación para la salud, sexual, civismo, ética, fomento al respeto a la mujer, ambiental, las bellas artes y el deporte, así como la enseñanza de un idioma extranjero, preferentemente el inglés, en todos los tipos y niveles educativos;
 XV. Promover la incorporación de los estudiantes de las instituciones públicas y privadas a los servicios de atención médica;
-XVI. Propiciar, en coordinación con las instituciones del sector salud y asistenciales, la integración de los niños en edad escolar, condición vulnerable e infortunio familiar a los servicios de educación básica;
+(REFORMADA, G.G. 16 DE MARZO DE 2011)
+XVI. Propiciar, en coordinación con las instituciones del sector salud y asistenciales, la orientación para la prevención y detección temprana de enfermedades; así como la integración de los niños en edad escolar, condición vulnerable e infortunio familiar a los servicios de educación básica;
 XVII. Promover la utilización de los medios de comunicación para acrecentar la educación y la cultura en la entidad;
 XVIII. Establecer políticas para el magisterio orientadas a la obtención de mejores condiciones académicas, profesionales, sociales, incluida la vivienda digna, culturales y económicas, de conformidad con lo dispuesto por la Ley General de Educación;
 XIX. Operar los sistemas de créditos y equivalencias que faciliten el tránsito de educandos entre las diferentes instituciones y planteles del sistema educativo estatal, de acuerdo a las disposiciones legales aplicables;
