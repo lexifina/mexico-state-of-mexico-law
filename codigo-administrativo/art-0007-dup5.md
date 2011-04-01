@@ -1,5 +1,17 @@
-Artículo 7.5.- Para efectos de este Libro se entiende por infraestructura vial al conjunto de vías jerarquizadas que facilitan la comunicación entre las diferentes áreas de la actividad económica y se clasifica en:
-I. Infraestructura vial primaria, aquella que está integrada por carreteras, pasos vehiculares, avenidas, calzadas y calles que comunican a dos o más municipios de la entidad, permitiendo los viajes de largo recorrido y aquellas que por sus características de ubicación, operación y vocación de servicio permitan la integración de la red vial primaria, así como las que comuniquen a instalaciones estratégicas estatales;
-II. Infraestructura vial local, aquella que está integrada por pasos vehiculares, avenidas, calzadas, calles y cerradas que permiten la comunicación al interior del municipio y la integración con la red vial primaria.
-La infraestructura vial primaria estará a cargo del Estado y la infraestructura vial local, de los municipios.
-La infraestructura vial podrá ser libre de peaje, y de cuota.
+(REFORMADO, G.G. 31 DE MARZO DE 2011)
+Artículo 7.5.- El transporte que se realiza en la infraestructura vial se clasifica en:
+l. De pasajeros, que puede ser:
+a) Colectivo, que es el que se ofrece al público en general, de manera colectiva, uniforme y permanente;
+b) Masivo o de alta capacidad, que es aquel que se presta en vías específicas o confinadas y/o con equipo vehicular capaz de transportar a más de cien personas a la vez y con tecnologías para su control y operación;
+c) Individual, que es el que se presta a uno o más pasajeros en vehículos denominados taxis;
+d) Especializado, que es el que comprende al de personal, al escolar, y al de turismo.
+II. De carga, que se refiere al porte de mercancías que se presta a terceros;
+III. Mixto;
+IV. Particular:
+a) El destino para transporte de pasajeros de uso propio no considerado en las fracciones anteriores;
+b) De carga particular, que es el destinado exclusivamente al servicio particular de carga de un establecimiento o empresa que constituya un instrumento de trabajo, y que no preste servicios a terceros.
+V. El destinado para prestar un servicio a la población por parte de organismos y dependencias federales, estatales o municipales y que no esté considerado en las fracciones anteriores.
+En la normatividad reglamentaria respectiva podrán establecerse otras modalidades que esta clase de servicios requieran.
+(REFORMADO, G.G. 31 DE MARZO DE 2011)
+CAPITULO SEGUNDO
+De los vehículos

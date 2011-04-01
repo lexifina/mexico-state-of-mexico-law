@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 31 DE MARZO DE 2011)
+Artículo 17.9.- Tratándose de servicios para infraestructura vial que la Secretaría determine que se presten bajo la modalidad de proyectos para prestación de servicios, las disposiciones de este Libro no serán aplicables en cuanto a la forma de contratación y la regulación del propio contrato, siendo aplicables las disposiciones del Libro Décimo Sexto de este Código, por lo que no se requerirá que el particular cuente con título de concesión.

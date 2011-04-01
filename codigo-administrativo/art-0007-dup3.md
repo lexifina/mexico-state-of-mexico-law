@@ -1,4 +1,5 @@
-(REFORMADO, P.O. 11 DE DICIEMBRE DE 2002)
-Artículo 7.3.- Se considera de utilidad pública e interés general, la construcción, conservación, operación, explotación, rehabilitación y mantenimiento de las comunicaciones de jurisdicción local, así como la prestación del servicio público de transporte.
+(REFORMADO, G.G. 31 DE MARZO DE 2011)
+Artículo 7.3.- Se considera de utilidad pública e interés general la prestación del servicio público de transporte.
+(REFORMADO, G.G. 31 DE MARZO DE 2011)
 CAPITULO SEGUNDO
 De las autoridades y sus atribuciones

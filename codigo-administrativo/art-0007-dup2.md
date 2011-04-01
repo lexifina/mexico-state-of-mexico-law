@@ -1,4 +1,2 @@
-Artículo 7.2.- Las disposiciones de este Libro tienen como finalidad:
-(REFORMADA, P.O. 11 DE DICIEMBRE DE 2002)
-I. Que se cuente con las comunicaciones necesarias y seguras para la integración del Estado y los municipios al desarrollo estatal y nacional.
-II. Que se cuente con transporte seguro, eficiente y de calidad.
+(REFORMADO, G.G. 31 DE MARZO DE 2011)
+Artículo 7.2.- Las disposiciones de este Libro tienen como finalidad que se cuente con transporte público seguro, eficiente y de calidad.

@@ -1,12 +1,2 @@
-Artículo 7.8.- Las concesiones a que se refiere este Título se otorgarán mediante concurso público a sociedades mercantiles constituidas conforme a las leyes mexicanas, en los términos que se establezcan en el presente Libro y los reglamentos respectivos, de conformidad con el procedimiento siguiente:
-(REFORMADA, P.O. 11 DE DICIEMBRE DE 2002)
-I. La Secretaría de Comunicaciones, de oficio o a petición de parte interesada, previo estudio, podrá expedir convocatoria pública para que, en el plazo que se establezca en la reglamentación de este Libro, se presenten propuestas en sobre cerrado, que será abierto en día prefijado y en presencia de los participantes;
-II. La convocatoria se publicará simultáneamente en la Gaceta del Gobierno, en un periódico de amplia circulación nacional y en otro de amplia circulación estatal, así como en los medios electrónicos de difusión;
-(REFORMADA, P.O. 11 DE DICIEMBRE DE 2002)
-III. Las bases del concurso incluirán como mínimo las características técnicas de la construcción de la infraestructura vial o del sistema de transporte masivo, el anteproyecto técnico, plazo de la concesión, aforos estimados, condiciones financieras básicas, características de la operación y tarifas iniciales.
-(REFORMADA, P.O. 11 DE DICIEMBRE DE 2002)
-IV. Podrán participar uno o varios interesados que demuestren su solvencia económica, así como su capacidad legal, técnica, administrativa y financiera, y cumplan con los demás requisitos que establezcan las bases que expida la Secretaría de Comunicaciones;
-V. A partir del acto de apertura de propuestas y durante el plazo en que las mismas se estudien y homologuen, se informará a todos los interesados de aquellas que se desechen y las causas principales que motivaren tal determinación;
-(REFORMADA, P.O. 11 DE DICIEMBRE DE 2002)
-VI. La Secretaría de Comunicaciones, con base en el análisis comparativo de las propuestas admitidas, emitirá su fallo, el cual será dado a conocer a todos los participantes. La propuesta ganadora estará a disposición de los interesados durante diez días hábiles a partir de que se haya dado a conocer el fallo correspondiente, para que manifiesten lo que a su derecho convenga;
-VII. No se otorgará la concesión cuando ninguna de las propuestas presentadas cumpla con las bases del concurso o por caso fortuito o fuerza mayor. En este caso, se declarará desierto el concurso y se procederá a expedir una nueva convocatoria.
+(REFORMADO, G.G. 31 DE MARZO DE 2011)
+Artículo 7.8.- Corresponde a la Secretaría de Finanzas matricular los vehículos destinados al transporte de uso particular, expidiendo las placas de matriculación, calcomanías, tarjetas de circulación y demás elementos de identificación que se estimen necesarios.

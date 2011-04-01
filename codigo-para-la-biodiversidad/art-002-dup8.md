@@ -40,4 +40,7 @@ XXXVI. Organizar el Sistema Estatal de Atención a la Denuncia Ciudadana Ambient
 XXXVII. Fomentar la incorporación en los distintos niveles educativos programas de contenido ecológico y de educación ambiental, de investigación científica y tecnológica pudiendo crear institutos de estudios ambientales y organismos necesarios para su cumplimiento;
 XXXVIII. Imponer las sanciones correspondientes por infracciones a este Libro en el ámbito de su competencia;
 XXXIX. Hacer cumplir el presente Libro, su Reglamento y demás ordenamientos aplicables; y
-XL. Las demás que conforme a este Libro y otras disposiciones legales aplicables le correspondan.
+(ADICIONADA, P.O. 31 DE MARZO DE 2011)
+XL. Determinar el uso restringido de la infraestructura vial; y
+(REFORMADA, P.O. 31 DE MARZO DE 2011)
+XLI. Las demás que conforme a este libro y otras disposiciones aplicables le correspondan.

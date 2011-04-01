@@ -1,3 +1,3 @@
-(REFORMADO PRIMER PARRAFO, P.O. 11 DE DICIEMBRE DE 2002)
-Artículo 7.6.- La Secretaría de Comunicaciones emitirá el dictamen de incorporación e impacto vial, tratándose de las autorizaciones de impacto regional a que se refiere el Libro Quinto de este Código.
-La reglamentación determinará los casos en que no será exigible este dictamen.
+(REFORMADO, G.G. 31 DE MARZO DE 2011)
+Artículo 7.6.- La Secretaría de Transporte expedirá las normas técnicas relativas a las características de los equipos, sistemas, dispositivos y accesorios de seguridad con que deberán contar los vehículos de su competencia que transiten por la infraestructura vial, así como sobre los demás conceptos que regula el presente Libro y podrá, así mismo, expedir al respecto disposiciones de carácter general cuando lo estime procedente.
+Con la finalidad de garantizar la seguridad de los pasajeros, los vehículos de transporte de pasajeros colectivo, de alta capacidad o masivo, individual y mixto, deberá contar con sistemas moderadores de velocidad, denominados gobernadores de velocidad.

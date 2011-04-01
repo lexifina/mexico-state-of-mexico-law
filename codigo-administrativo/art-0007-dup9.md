@@ -1,3 +1,2 @@
-Artículo 7.9.- Las concesiones se otorgarán hasta por un plazo de treinta años y podrán ser prorrogadas hasta por un plazo equivalente al establecido originalmente, atendiendo al cumplimiento de las obligaciones inherentes a la concesión respectiva.
-(REFORMADO, P.O. 11 DE DICIEMBRE DE 2002)
-La Secretaría de Comunicaciones contestará en definitiva la solicitud de prórroga, dentro de un plazo de sesenta días hábiles contados a partir de la fecha de presentación de la misma debidamente requisitada y establecerá las nuevas condiciones de la concesión, para lo cual deberá tomar en cuenta la inversión, los costos futuros de ampliación y mejoramiento, y las demás proyecciones financieras y operativas que considere la rentabilidad de la concesión.
+(REFORMADO, G.G. 31 DE MARZO DE 2011)
+Artículo 7.9.- En tanto se expiden las placas y documentos a que se refieren los artículos anteriores, la Secretaría de Finanzas podrá otorgar permisos provisionales para circular como vehículo particular.

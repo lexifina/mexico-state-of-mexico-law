@@ -34,4 +34,6 @@ XXX. Ordenar las visitas domiciliarias de inspección ambiental que consideren p
 XXXI. Formular y aplicar el Programa de Ordenamiento Ecológico de (sic) Territorio Municipal;
 XXXII. Atender los demás asuntos que en materia de preservación del equilibrio ecológico y protección al ambiente les conceda este Libro u otros ordenamientos en concordancia con él y que no estén otorgados expresamente a la Federación o a las autoridades estatales;
 XXXIII. Crear el Consejo Municipal de Protección a la Biodiversidad y Desarrollo Sostenible; y
-XXXIV. Las demás que establezcan otras disposiciones aplicables.
+(ADICIONADA, P.O. 31 DE MARZO DE 2011)
+XXXIV. Solicitar a la Secretaría que determine el uso restringido de la infraestructura vial local; y
+XXXV. Las demás que establezcan otras disposiciones aplicables.
