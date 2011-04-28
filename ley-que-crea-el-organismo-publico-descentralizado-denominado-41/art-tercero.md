@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO.- El Ayuntamiento de Tultepec, proveerá lo conducente para la instalación del Consejo, así como transferir los recursos humanos, materiales y financieros requeridos para la operación y funcionamiento del Instituto.
