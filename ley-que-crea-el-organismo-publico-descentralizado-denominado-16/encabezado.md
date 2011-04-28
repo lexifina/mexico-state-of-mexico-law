@@ -1,0 +1,8 @@
+LEY QUE CREA EL ORGANISMO PUBLICO DESCENTRALIZADO DENOMINADO INSTITUTO MUNICIPAL DE CULTURA FISICA Y DEPORTE DE JALTENCO, MEXICO
+Ley publicada en la Sección Tercera de la Gaceta del Estado de México, el miércoles 27 de abril de 2011.
+ENRIQUE PEÑA NIETO, Gobernador Constitucional del Estado Libre y Soberano de México, a sus habitantes sabed:
+Que la Legislatura del Estado, ha tenido a bien aprobar lo siguiente:
+DECRETO NÚMERO 287
+LA H. "LVII" LEGISLATURA DEL ESTADO DE MÉXICO
+DECRETA:
+LEY QUE CREA El ORGANISMO PÚBLICO DESCENTRALIZADO DENOMINADO INSTITUTO MUNICIPAL DE CULTURA FÍSICA Y DEPORTE DE JALTENCO, MÉXICO.
