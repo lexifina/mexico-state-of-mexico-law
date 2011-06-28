@@ -1,0 +1,1 @@
+Artículo 9.46.- Las jaulas para ropa ubicadas sobre la azotea serán de malla ciclónica o de un material similar, y se localizarán en el extremo opuesto a la fachada principal; la malla podrá quedar aparente o del mismo color de la edificación.

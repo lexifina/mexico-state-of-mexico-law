@@ -1,0 +1,3 @@
+CAPÍTULO OCTAVO
+DE LA TRANSPARENCIA Y ACCESO A LA INFORMACIÓN PÚBLICA MUNICIPAL
+Artículo 7.72.- El ejercicio del derecho de acceso a la información pública municipal y la protección de datos personales que se encuentren en posesión de los sujetos obligados del Municipio, se regirán por la Constitución Federal, la Constitución Estatal, la Ley de Transparencia y Acceso a la Información Pública del Estado de México y Municipios, el Reglamento de la Ley de Transparencia y Acceso a la Información Pública del Estado de México y Municipios, el Bando Municipal, el presente capítulo y demás disposiciones aplicables.

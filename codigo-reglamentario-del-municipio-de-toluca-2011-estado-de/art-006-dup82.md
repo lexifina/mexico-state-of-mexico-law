@@ -1,0 +1,2 @@
+Artículo 6.82.- Los titulares de los derechos de uso en perpetuidad podrán modificar la cláusula relativa a la designación de beneficiarios, mediante formulación expresa hecha ante la Dirección General de Servicios Públicos y Medio Ambiente y la administración del panteón.
+Cuando en una perpetuidad no exista familiar del titular, en términos de este capítulo, las fosas o criptas volverán al dominio pleno del Ayuntamiento, previa tramitación del procedimiento administrativo común que regula el Código de Procedimientos Administrativos.

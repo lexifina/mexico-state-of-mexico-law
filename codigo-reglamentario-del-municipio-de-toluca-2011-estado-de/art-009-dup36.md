@@ -1,0 +1,1 @@
+Artículo 9.36.- Los vierteaguas de ventanas, las jambas, dinteles y protecciones que colinden con la vía pública, no deberán sobresalir más de 5.0 centímetros del límite de ésta, ni implicar algún riesgo para el peatón.

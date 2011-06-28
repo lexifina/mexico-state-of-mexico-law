@@ -1,0 +1,1 @@
+Artículo 2.10.- Serán extraordinarias las sesiones que se celebren cuando algún asunto lo requiera, para ello bastará la convocatoria del Presidente Municipal o la solicitud de la mayoría de los miembros del Ayuntamiento.

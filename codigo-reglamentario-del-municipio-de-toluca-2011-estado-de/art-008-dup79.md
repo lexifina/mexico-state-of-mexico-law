@@ -1,0 +1,1 @@
+Artículo 8.79.- Tratándose de compañías de ópera, ballet, conciertos y audiciones puramente musicales, una vez que comience la función, serán cerradas las puertas de las salas, debiendo esperar el público retrasado el intermedio para entrar al salón.

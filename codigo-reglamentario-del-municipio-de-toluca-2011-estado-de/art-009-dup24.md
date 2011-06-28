@@ -1,0 +1,1 @@
+Artículo 9.24.- Cuando por la realización de obras de construcción se utilice la vía pública, el propietario de las mismas, una vez terminadas o al vencerse la vigencia del permiso, estará obligado a retirar de la vía pública los materiales, las instalaciones y objetos utilizados en ellas. En caso de no hacerlo, lo hará la dependencia correspondiente con cargo al propietario.

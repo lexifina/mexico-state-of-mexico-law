@@ -1,0 +1,1 @@
+Artículo 6.84.- En los panteones las zonas de inhumación podrán ser en fosas individuales, lotes familiares con gavetas o criptas sobrepuestas, nichos y fosa común para indigentes o desconocidos. La asignación de fosas se hará por orden cronológico, siguiendo sucesivamente la nomenclatura del plano aprobado de fosas, quedando prohibido quebrantar el orden establecido.

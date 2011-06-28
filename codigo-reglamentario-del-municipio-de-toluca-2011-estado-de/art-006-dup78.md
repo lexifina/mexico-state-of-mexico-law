@@ -1,0 +1,4 @@
+Artículo 6.78.- En los panteones de nueva creación y en ampliaciones de los actuales, se utilizarán proyectos ecológicos que permitan la preservación del medio ambiente, serán totalmente jardinados, quedando prohibida la colocación o construcción de monumentos, tejabanes, capillas o barandales.
+El proyecto ecológico no permitirá la autorización de monumentos funerarios por encima del nivel del terreno natural y sólo la utilización de placas en sentido horizontal, lo que permitirá conservar el paisaje ecológicamente visual y más limpio.
+El tamaño de la placa horizontal será de 90 por 60 centímetros; si se desea, se colocará una jardinera empotrada en el ángulo inferior derecho, así como el señalamiento de guarniciones.
+El arreglo de los jardines y la plantación de árboles, arbustos y plantas florales en las zonas comunes se sujetarán al proyecto general aprobado.

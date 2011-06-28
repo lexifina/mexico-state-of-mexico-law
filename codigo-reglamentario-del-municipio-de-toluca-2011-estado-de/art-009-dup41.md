@@ -1,0 +1,1 @@
+Artículo 9.41.- Si se requiere ubicar la tubería de gas sobre la fachada de la edificación, ésta deberá quedar integrada al muro, pintándola del mismo color, adicionando algún elemento arquitectónico que la oculte.

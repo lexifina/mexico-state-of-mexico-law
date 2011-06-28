@@ -1,0 +1,1 @@
+Artículo 8.38.- Cuando por alguna de las causas previstas en este capítulo, el Ayuntamiento recupere locales comerciales en los mercados, podrá otorgarlos en arrendamiento a nuevos locatarios bajo el procedimiento y selección de candidatos que defina la Dirección de Regulación del Comercio.

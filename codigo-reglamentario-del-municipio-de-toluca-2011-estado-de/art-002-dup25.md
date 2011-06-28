@@ -1,0 +1,1 @@
+Artículo 2.25.- Las propuestas o dictámenes que se sometan a la consideración del Ayuntamiento podrán ser aprobados en sus términos o con las modificaciones necesarias a juicio de la mayoría de los ediles presentes.

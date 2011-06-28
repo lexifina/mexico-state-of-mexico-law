@@ -1,0 +1,1 @@
+Artículo 6.2.- Los servicios públicos de suministro de agua potable, drenaje, alcantarillado y tratamiento y disposición de aguas residuales, estarán a cargo del Municipio, quien los ejercerá por medio del Organismo Público Descentralizado por Servicio de Carácter Municipal denominado Agua y Saneamiento de Toluca, mismo que en lo sucesivo se denominará como el Organismo.

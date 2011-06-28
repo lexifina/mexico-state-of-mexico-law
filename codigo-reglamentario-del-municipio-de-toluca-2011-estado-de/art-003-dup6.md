@@ -1,0 +1,1 @@
+Artículo 3.6.- Los titulares de las dependencias municipales podrán delegar a sus subalternos cualesquiera de sus facultades, salvo aquéllas que la Ley Orgánica Municipal, el Bando Municipal y otros ordenamientos dispongan que deban ser ejercidas por ellos.

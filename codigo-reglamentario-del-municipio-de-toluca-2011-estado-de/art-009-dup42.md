@@ -1,0 +1,2 @@
+Artículo 9.42.- Cuando los techos sean visibles desde la vía pública, se les colocará un acabado final que podrá ser de teja o un recubrimiento que armonice con los colores y textura de los muros.
+En las edificaciones destinadas a industrias, bodegas y otros usos, donde se utilicen techos de lámina y que se ubiquen en una zona habitacional o corredor urbano determinados por el Plan Municipal de Desarrollo Urbano, no deberán dejarse visibles los techos desde la vía pública, se emplearán pretiles para ocultarlos hasta la altura de la cumbrera.

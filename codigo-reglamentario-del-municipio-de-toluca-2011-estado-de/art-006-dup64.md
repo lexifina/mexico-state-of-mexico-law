@@ -1,0 +1,1 @@
+Artículo 6.64.- Los propietarios o poseedores de estiércol y desperdicio de establos, caballerizas y similares, deberán transportarlos en vehículos cerrados, debiendo recabar para tal efecto un permiso de la autoridad municipal, en el cual se indicará la ruta, horario y lugar de disposición final.

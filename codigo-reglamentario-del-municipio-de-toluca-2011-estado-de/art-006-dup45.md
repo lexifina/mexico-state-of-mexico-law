@@ -1,0 +1,1 @@
+Artículo 6.45.- Aquellos aspectos no previstos en este ordenamiento, relativos a las restricciones técnicas de proyectos y operación, serán resueltos conforme al contenido de los contratos, ordenamientos legales y demás disposiciones en la materia.

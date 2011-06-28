@@ -1,0 +1,1 @@
+Artículo 8.5.- La falta de revalidación de la licencia municipal por más de dos años provocará su caducidad, esto sin liberar de los adeudos fiscales al titular de la misma y al arrendatario del local, en términos del Código Financiero del Estado de México y Municipios.

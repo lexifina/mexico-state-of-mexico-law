@@ -1,0 +1,1 @@
+Artículo 4.38.- En el caso en que el servidor público que deba recibir aún no haya sido designado, el Presidente Municipal, el Director General o el Jefe de Unidad respectivo, nombrará al que intervendrá en la recepción, quien lo hará como encargado del despacho, comunicando a la Contraloría Municipal tal designación.

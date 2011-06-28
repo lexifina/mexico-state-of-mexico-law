@@ -1,0 +1,1 @@
+Artículo 6.96.- Para poder solicitar los servicios en los panteones del Municipio, los interesados deberán contar con la documentación legal necesaria; en caso de que no cumpla con todos los requisitos, se suspenderá la inhumación o cremación hasta reunir los requisitos correspondientes.

@@ -1,0 +1,1 @@
+Artículo 4.15.- Las sanciones disciplinarias a los agentes de tránsito, se aplicarán por el Director de Tránsito y Vialidad, en términos de la Ley de Seguridad Pública Preventiva del Estado. El procedimiento administrativo para la remoción del cargo de los integrantes de los cuerpos de tránsito y vialidad, se realizará conforme a la ley de la materia.

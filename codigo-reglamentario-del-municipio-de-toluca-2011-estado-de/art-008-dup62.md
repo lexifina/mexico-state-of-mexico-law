@@ -1,0 +1,1 @@
+Artículo 8.62.- El titular del permiso, gerente, administrador o encargado de cada establecimiento, será responsable de las anomalías que se susciten y que originen infracción por violaciones al presente capítulo, durante cualquier función o evento.

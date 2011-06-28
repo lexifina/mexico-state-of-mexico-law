@@ -1,0 +1,1 @@
+Artículo 8.39.- Para la selección de candidatos a obtener en arrendamiento un local recuperado, se seguirá el procedimiento de asignación, en el cual participen los solicitantes que hayan cubierto los requisitos previstos en este capítulo.

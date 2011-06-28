@@ -1,0 +1,1 @@
+Artículo 9.69.- La superficie de ventilación mínima para cualquier edificación será la calculada sobre la tercera parte de la superficie del piso de la habitación y no será menor al 5 por ciento del área del local.

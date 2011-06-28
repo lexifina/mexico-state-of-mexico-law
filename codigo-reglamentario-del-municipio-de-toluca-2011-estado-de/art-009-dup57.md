@@ -1,0 +1,1 @@
+Artículo 9.57.- Los vanos de entrada o salida en edificaciones para vivienda unifamiliar tendrán 0.90 metros de ancho y 2.10 metros de alto como mínimo; los interiores y de servicio, serán como mínimo de 0.80 metros de ancho y 2.10 metros de alto.

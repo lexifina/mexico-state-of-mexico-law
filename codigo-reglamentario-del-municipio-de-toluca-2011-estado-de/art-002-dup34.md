@@ -1,0 +1,1 @@
+Artículo 2.34.- Las comisiones formularán por escrito sus dictámenes, que contendrán los antecedentes, considerandos y cuyas partes resolutivas concluirán con proposiciones claras y precisas, que permitan orientar la consecución de acuerdos y resoluciones.

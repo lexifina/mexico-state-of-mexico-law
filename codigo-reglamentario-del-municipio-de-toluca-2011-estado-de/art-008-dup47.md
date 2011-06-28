@@ -1,0 +1,1 @@
+Artículo 8.47.- Los puestos establecidos en los tianguis guardarán un orden y se ajustarán al espacio y diseño autorizado, debiendo reunir condiciones mínimas de seguridad, higiene y estética en su funcionamiento y presentación.

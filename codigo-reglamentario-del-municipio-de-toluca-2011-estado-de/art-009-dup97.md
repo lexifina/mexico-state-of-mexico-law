@@ -1,0 +1,2 @@
+Artículo 9.97.- Toda construcción deberá contar con servicios de abastecimiento de agua potable y disposición de aguas residuales. Para el otorgamiento de los servicios, se solicitará un dictamen de factibilidad al Organismo Agua y Saneamiento de Toluca.
+Se adoptarán las dotaciones para usos domésticos y no domésticos que determine el Organismo Agua y Saneamiento de Toluca, las cuales estarán en función de la disponibilidad de agua potable en todas las localidades del Municipio.

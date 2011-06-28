@@ -1,0 +1,2 @@
+Artículo 6.88.- La fosa destinada a la inhumación de un cadáver deberá estar preparada previamente a la hora fijada para el sepelio, bajo la responsabilidad del encargado del panteón. A su vez, el titular de los derechos deberá cumplir también en tiempo y forma con los requisitos que señale la normatividad del caso.
+No se podrán realizar exhumaciones antes del término señalado en este ordenamiento, excepto mediante permiso de la autoridad sanitaria, por orden judicial o del Ministerio Público.

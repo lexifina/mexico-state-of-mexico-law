@@ -1,0 +1,1 @@
+Artículo 1.5.- El Presidente Municipal autorizará los manuales de organización y de procedimientos de la Administración Pública Municipal centralizada, que sean necesarios para su debido funcionamiento.

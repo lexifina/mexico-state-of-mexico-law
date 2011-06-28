@@ -1,0 +1,1 @@
+Artículo 9.80.- Los accesos y salidas de edificaciones destinadas a centros de reunión tendrán como mínimo 1.20 metros de ancho y 2.10 metros de alto; los interiores deberán ser de 0.90 metros de ancho y 2.10 metros de alto como mínimo.

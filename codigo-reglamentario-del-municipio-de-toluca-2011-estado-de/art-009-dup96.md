@@ -1,0 +1,1 @@
+Artículo 9.96.- Las áreas de donación de conjuntos urbanos, subdivisiones, fusiones y renotificaciones (sic), así como las áreas comunes de condominios, contarán con árboles y arbustos diseñados de tal forma que no interfieran con las actividades ahí realizadas.

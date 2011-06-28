@@ -1,0 +1,2 @@
+Artículo 4.2.- Los servidores públicos municipales deberán registrar su asistencia mediante lectores manuales, tarjetas, listas o cualquier otro sistema que disponga la Dirección General de Tesorería y Administración.
+Se exceptúa del control de asistencia a los servidores públicos que en forma expresa hayan sido autorizados por los titulares de las dependencias, en razón de la naturaleza del servicio a su cargo.

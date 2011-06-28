@@ -1,0 +1,1 @@
+Artículo 9.87.- En cualquier estacionamiento donde los vehículos se ubiquen sobre un nivel superior a los 2.10 metros sobre el nivel de banqueta, se deberá evitar que los vehículos estacionados sean visibles desde la vía pública, por medio del uso de cortinas de vegetación o cualquier otro elemento arquitectónico.

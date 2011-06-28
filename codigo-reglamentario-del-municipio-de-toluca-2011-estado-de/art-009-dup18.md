@@ -1,0 +1,1 @@
+Artículo 9.18.- Los medidores de agua potable deberán ubicarse dentro del predio en un lugar visible. Las características físicas del medidor quedarán establecidas por el Organismo de Agua y Saneamiento de Toluca.

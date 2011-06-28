@@ -1,0 +1,1 @@
+Artículo 6.44.- Los proyectos de alumbrado público realizados por particulares que tengan que ser recibidos por el Municipio, deberán apegarse a las normas técnicas y contener la documentación necesaria, previo a la autorización de las autoridades estatales y municipales en materia de desarrollo urbano, a efecto de dar el visto bueno para su entrega-recepción.

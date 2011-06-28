@@ -1,0 +1,1 @@
+Artículo 6.91.- Los nichos para restos áridos o cremados tendrán como dimensiones mínimas 50 centímetros de alto por 50 centímetros de ancho y 50 centímetros de profundidad, y deberán construirse de acuerdo con las especificaciones que señalen la autoridad municipal y los requisitos que determine la autoridad sanitaria.

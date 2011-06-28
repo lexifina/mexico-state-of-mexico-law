@@ -1,0 +1,1 @@
+Artículo 9.34.- En las industrias y bodegas localizadas en corredores urbanos o en zonas habitacionales, según lo establecido en el Plan Municipal de Desarrollo Urbano, no se podrá utilizar lámina de cualquier tipo en sus muros, emplearán un material que permita algún aplanado y pintura con las tonalidades predominantes en la zona.

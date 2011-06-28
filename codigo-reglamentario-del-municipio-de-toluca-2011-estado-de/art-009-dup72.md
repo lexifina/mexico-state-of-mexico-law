@@ -1,0 +1,1 @@
+Artículo 9.72.- En edificios de equipamiento, industria o servicios determinados por el Plan Municipal de Desarrollo Urbano, se debe destinar un espacio sanitario para personas con discapacidades, las medidas para el espacio del excusado de este tipo serán de 1.70 por 1.70 metros y deberán colocarse pasamanos en los costados.

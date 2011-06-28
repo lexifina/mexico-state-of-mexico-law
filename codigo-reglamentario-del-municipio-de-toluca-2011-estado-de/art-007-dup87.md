@@ -1,0 +1,1 @@
+Artículo 7.87.- Los derechos de autor de los sistemas automatizados de información y bases de datos que desarrollen las dependencias y organismos auxiliares deben registrarse ante la autoridad competente, de acuerdo con lo que establezcan las instancias normativas en materia de derechos de autor y de propiedad intelectual, en su caso.

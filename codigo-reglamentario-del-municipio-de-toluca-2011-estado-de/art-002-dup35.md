@@ -1,0 +1,2 @@
+Artículo 2.35.- El funcionamiento de las comisiones se sujetará, en lo conducente, a las disposiciones que establece este capítulo sobre sesiones, debates y votaciones del Cabildo.
+Salvo normas en contrario, las propias disposiciones se observarán en el funcionamiento de las demás comisiones, comités o consejos previstos en las leyes federales, estatales y municipales, el Bando Municipal y el presente Código Reglamentario.

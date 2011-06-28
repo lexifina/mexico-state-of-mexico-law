@@ -1,0 +1,1 @@
+Artículo 9.19.- Las características físicas de los medidores de energía eléctrica estarán determinadas por la Comisión Federal de Electricidad o por la instancia encargada de suministrar el servicio. Se deberán ubicar a una altura de 1.60 metros sobre el nivel de banqueta, medidos a partir del lecho bajo del medidor y estarán remetidos en el muro, dentro de un nicho.

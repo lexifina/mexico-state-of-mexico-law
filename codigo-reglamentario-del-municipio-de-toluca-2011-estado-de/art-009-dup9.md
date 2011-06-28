@@ -1,0 +1,1 @@
+Artículo 9.9.- El perito responsable de obra deberá entregar al propietario o poseedor de la obra, al término de ésta, la bitácora de la misma y los planos de obra terminada, de los cuales deberá conservar una copia por un periodo no menor de cinco años.

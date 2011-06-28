@@ -1,0 +1,1 @@
+Artículo 4.26.- En cada organismo auxiliar quedará constituida una Comisión Mixta de Seguridad e Higiene, cuya integración y atribuciones serán similares a las señaladas en la presente sección, sin que los representantes del Ayuntamiento puedan ser miembros.

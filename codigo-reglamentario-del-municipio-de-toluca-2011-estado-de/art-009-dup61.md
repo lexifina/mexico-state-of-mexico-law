@@ -1,0 +1,1 @@
+Artículo 9.61.- En las edificaciones que tengan más de dos niveles y que no sean destinadas a vivienda unifamiliar, existirán escaleras de emergencia de 1.20 metros de ancho mínimo y serán de un material incombustible. Las escaleras de emergencia estarán fuera de la edificación.

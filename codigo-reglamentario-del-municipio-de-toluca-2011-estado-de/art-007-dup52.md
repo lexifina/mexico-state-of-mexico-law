@@ -1,0 +1,1 @@
+Artículo 7.52.- Las actividades que podrán realizarse en las instalaciones municipales serán preferentemente de carácter económico o cultural, conforme al permiso otorgado por la Dirección General de Desarrollo Económico y Regulación del Comercio, previo visto bueno de la dependencia municipal competente. Se dará preferencia a las actividades que tengan un fin no lucrativo.

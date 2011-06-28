@@ -1,0 +1,1 @@
+Artículo 9.39.- Las aguas pluviales que se canalicen por medio de gárgolas o canaletas, no se descargarán sobre la vía pública, deberán depositarse directamente sobre el terreno objeto de la construcción.

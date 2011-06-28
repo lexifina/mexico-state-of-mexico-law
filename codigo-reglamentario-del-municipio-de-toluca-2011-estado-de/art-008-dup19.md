@@ -1,0 +1,1 @@
+Artículo 8.19.- En los casos en que la autoridad lo estime procedente, podrá autorizar licencias de funcionamiento de establecimientos en las que se señale un giro principal y otros complementarios, siempre y cuando sean compatibles y se reúnan los requisitos que establezcan las disposiciones legales.

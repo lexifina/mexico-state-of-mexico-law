@@ -1,0 +1,2 @@
+Artículo 9.65.- Tratándose de escaleras, los escalones tendrán una huella de 0.25 metros como mínimo y un peralte de 0.18 metros como máximo; todas las huellas y peraltes deberán ser uniformes, el número máximo de peraltes entre descansos será de 13.
+En caso de colocar escalones para personas de la tercera edad en los accesos de los edificios de uso público, éstos tendrán una huella de 0.65 metros como mínimo y un peralte de 0.075 metros como máximo.

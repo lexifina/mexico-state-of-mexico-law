@@ -1,0 +1,1 @@
+Artículo 9.95.- En los usos, edificaciones o predios donde sea imprescindible el uso de malla u otro material similar, que no requieran visibilidad hacia el interior del predio, se colocará un cerco vivo de árboles o arbustos sobre la malla o bien arbustos como los especificados en este capítulo.

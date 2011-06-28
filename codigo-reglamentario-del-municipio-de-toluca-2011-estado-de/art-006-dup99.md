@@ -1,0 +1,3 @@
+Artículo 6.99.- Los cadáveres o restos humanos deberán inhumarse, incinerarse o embalsamarse entre las 12 y 48 horas siguientes a la muerte, salvo autorización específica del Instituto de Salud del Estado, por disposición del Ministerio Público o de la autoridad judicial.
+Asimismo, los cadáveres conservados mediante refrigeración deberán ser inhumados o cremados inmediatamente después de que se extraigan de la cámara o gaveta de refrigeración.
+Los gastos que se originen por la refrigeración para la conservación de un cadáver o restos humanos en algún panteón, serán a cargo del custodio, de acuerdo con las tarifas autorizadas.

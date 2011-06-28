@@ -1,0 +1,1 @@
+Artículo 7.42.- Los interesados que hayan iniciado sus gestiones de manera directa ante las dependencias municipales u organismos auxiliares, podrán optar entre continuar con el trámite iniciado o solicitar la intervención del Comité.

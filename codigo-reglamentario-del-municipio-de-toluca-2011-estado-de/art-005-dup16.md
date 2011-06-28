@@ -1,0 +1,1 @@
+Artículo 5.16.- Para la organización de las festividades cívicas, los delegados o subdelegados deberán coordinarse con las autoridades escolares y con las sociedades de padres de familia de las escuelas de su comunidad.

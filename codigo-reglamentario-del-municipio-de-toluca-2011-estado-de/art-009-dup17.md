@@ -1,0 +1,1 @@
+Artículo 9.17.- Queda prohibida la colocación de anuncios espectaculares en camellones. En caso de ser necesaria la instalación de señalamientos viales sobre los mismos, éstos se deberán ubicar de tal manera que no obstaculicen la visibilidad de los conductores, especialmente en lugares sin semáforo o en retornos.

@@ -1,0 +1,1 @@
+Artículo 6.87.- Cada panteón deberá destinar el cinco por ciento del total de las fosas para fosa común, debiendo estar ubicada esta área en la parte final del mismo. La fosa común será destinada para depositar cadáveres de personas desconocidas, previa autorización del Agente del Ministerio Público y del Oficial del Registro Civil.

@@ -1,0 +1,1 @@
+Artículo 4.19.- Las sanciones disciplinarias a los integrantes del cuerpo de bomberos, se aplicarán por el Director de Bomberos y Protección Civil, conforme a la Ley de Seguridad Pública Preventiva del Estado. Tratándose de la remoción en el cargo, el procedimiento administrativo será tramitado y resuelto por el Director General de Seguridad Pública y Gobernación.

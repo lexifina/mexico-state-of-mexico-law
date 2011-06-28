@@ -1,0 +1,1 @@
+Artículo 9.74.- En los edificios de más de 1000 metros cuadrados se podrán tener sanitarios en pisos separados para hombres y mujeres, pero no deberán subir o bajar más de un nivel para llegar a ellos.

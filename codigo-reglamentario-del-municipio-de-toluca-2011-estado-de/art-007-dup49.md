@@ -1,0 +1,1 @@
+Artículo 7.49.- Previa autorización del Presidente Municipal, podrán utilizar las instalaciones de la Unidad Deportiva, en forma gratuita, los deportistas de alto rendimiento o personas que necesiten rehabilitación de salud, siempre que no cuenten con recursos económicos suficientes.

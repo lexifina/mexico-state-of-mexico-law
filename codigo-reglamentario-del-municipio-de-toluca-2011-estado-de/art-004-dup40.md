@@ -1,0 +1,1 @@
+Artículo 4.40.- La revisión y observaciones al acta y anexos señalados en este capítulo deberán formularse ante la Contraloría Municipal por los servidores públicos entrantes, en el plazo señalado por la ley de la materia. Para tal efecto, el servidor público saliente podrá ser requerido dentro de este término para las aclaraciones que se le soliciten.

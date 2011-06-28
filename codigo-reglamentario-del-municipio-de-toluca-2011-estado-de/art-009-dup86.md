@@ -1,0 +1,1 @@
+Artículo 9.86.- En los conjuntos habitacionales mayores de 60 viviendas, se deberá separar el drenaje pluvial del sanitario. El agua de lluvia se infiltrará al terreno o se almacenará para su posterior utilización.

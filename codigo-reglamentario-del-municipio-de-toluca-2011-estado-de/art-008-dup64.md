@@ -1,0 +1,1 @@
+Artículo 8.64.- Los boletos deberán elaborarse debidamente foliados, de tal manera que garanticen el interés fiscal del Municipio, de la empresa y el público en general con los precios de cada localidad, lugar, fecha y horario del evento. Al finalizar el evento deberán ser entregados en su totalidad al interventor de espectáculo designado por la Tesorería Municipal.

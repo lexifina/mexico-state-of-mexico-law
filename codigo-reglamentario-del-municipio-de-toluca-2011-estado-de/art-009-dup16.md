@@ -1,0 +1,1 @@
+Artículo 9.16.- Las rampas destinadas al acceso de vehículos en las edificaciones, no ocuparán el total de la banqueta o el espacio destinado para ella. Se respetarán 0.90 metros de circulación a lo largo del límite del predio.

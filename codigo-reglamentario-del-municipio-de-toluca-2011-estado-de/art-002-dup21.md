@@ -1,0 +1,1 @@
+Artículo 2.21.- El integrante del Ayuntamiento que haga uso de la palabra, sea para informar o debatir, tendrá libertad para expresar sus ideas sobre el tema en comento, sin que puedan ser reconvenidos por ello; debiendo abstenerse de proferir ofensa alguna.

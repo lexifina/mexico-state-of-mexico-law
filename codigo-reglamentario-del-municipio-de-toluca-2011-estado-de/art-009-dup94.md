@@ -1,0 +1,1 @@
+Artículo 9.94.- Para la disminución de vientos dominantes y ruidos en edificaciones y lugares abiertos, se emplearán árboles de copa frondosa, como pueden ser el junípero, el álamo blanco, el trueno, el ciprés Arizona y el ciprés italiano.

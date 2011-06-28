@@ -1,0 +1,1 @@
+Artículo 2.14.- Los integrantes del Ayuntamiento podrán solicitar tratar un asunto general, para lo cual al momento de registrarlo en la sesión del Cabildo, deberán indicar el tema correspondiente, en caso contrario, no se tomará en cuenta su participación.

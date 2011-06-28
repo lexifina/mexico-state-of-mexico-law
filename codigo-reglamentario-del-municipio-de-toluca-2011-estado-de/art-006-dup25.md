@@ -1,0 +1,1 @@
+Artículo 6.25.- La distribución de agua potable en carros tanque en zonas donde se suspenda temporalmente el servicio de agua potable o para la atención de emergencias, contingencias o desastres urbanos, será realizada por el Organismo, sin costo para el usuario.

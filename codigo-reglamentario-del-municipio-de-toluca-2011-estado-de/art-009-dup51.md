@@ -1,0 +1,1 @@
+Artículo 9.51.- Las edificaciones y los usos existentes con estacionamiento localizado parcial o totalmente en otro predio, se permitirán cuando el recorrido entre los accesos de ambos no exceda de 200 metros y los cajones de estacionamiento sean de uso exclusivo de dicha edificación.

@@ -1,0 +1,1 @@
+Artículo 9.55.- La separación entre muros colindantes de edificios deberá ser de cinco centímetros mínimo o la obtenida en el cálculo estructural según lo establecido en este capítulo, además deberá ser cubierta por el segundo colindante en construir, obstruyendo en su totalidad el paso de agua y residuos sólidos mediante tapajuntas o cejas que cubran ambos muros.

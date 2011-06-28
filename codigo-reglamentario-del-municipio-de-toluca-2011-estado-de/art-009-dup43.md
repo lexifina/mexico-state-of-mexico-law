@@ -1,0 +1,1 @@
+Artículo 9.43.- El tiro metálico de las chimeneas deberá recubrirse con un material que permita recibir un aplanado, el cual se pintará con un color similar al de la edificación. No podrá sobresalir del límite de la vía pública. Si por decisión de diseño se requiere un tiro metálico, éste será aprobado por la autoridad municipal.

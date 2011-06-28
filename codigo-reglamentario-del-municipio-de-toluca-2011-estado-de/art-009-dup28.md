@@ -1,0 +1,1 @@
+Artículo 9.28.- Los accesos de las edificaciones que tiendan a la acumulación de vehículos sobre la vía pública, deberán ser diseñados de tal manera que el estacionamiento momentáneo se ubique dentro del predio particular y no sobre la vía pública.

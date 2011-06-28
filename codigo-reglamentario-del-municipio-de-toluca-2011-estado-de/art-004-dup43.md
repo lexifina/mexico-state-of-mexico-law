@@ -1,0 +1,1 @@
+Artículo 4.43.- Los servidores públicos municipales deberán presentar la manifestación de bienes ante la Secretaría de la Contraloría del Poder Ejecutivo del Estado, en términos de las disposiciones legales.

@@ -1,0 +1,4 @@
+Artículo 6.17.- Para la celebración del contrato de prestación de servicios de agua potable y drenaje o de agua en bloque, se requiere:
+I. Que previamente el Organismo haya formulado dictamen técnico que determine la procedencia de la prestación de los servicios objeto de la contratación;
+II. Que los interesados acrediten el pago de los derechos de conexión a las redes de agua potable y drenaje, así como, en su caso, el costo del equipo e instalaciones para la medición del consumo de agua potable; y
+III. En los casos de prestación de servicios de agua en bloque, que los interesados presenten las autorizaciones y licencias correspondientes, conforme a las disposiciones jurídicas aplicables, cuando el agua vaya a ser aprovechada en la construcción de conjuntos habitacionales, industriales o de servicios o como materia prima fundamental.

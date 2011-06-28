@@ -1,0 +1,1 @@
+Artículo 9.4.- Para el otorgamiento de la licencia de uso especifico de suelo de cualquier tipo de local comercial, industrial o de servicios, se deberá contar con el visto bueno de la Dirección General de Desarrollo Económico y Regulación del Comercio.

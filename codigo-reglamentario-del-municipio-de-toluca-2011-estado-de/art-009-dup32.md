@@ -1,0 +1,1 @@
+Artículo 9.32.- Se prohíbe que cualquier edificación ubicada en las zonas urbanas, determinada por el Plan Municipal de Desarrollo Urbano, permanezca sin un acabado final sobre el material utilizado para la construcción de los muros, cuando éste no tenga las características de color y textura para ser considerado como un material aparente.

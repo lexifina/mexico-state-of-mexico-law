@@ -1,0 +1,1 @@
+Artículo 6.34.- El aprovechamiento o reuso de aguas residuales provenientes del alcantarillado, previamente a su descarga en cuerpos receptores nacionales, por parte de los particulares, requiere permiso del Organismo y el pago de los derechos correspondientes.

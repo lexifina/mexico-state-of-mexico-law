@@ -1,0 +1,1 @@
+Artículo 8.72.- En todos aquellos lugares donde se prohíba por este y demás ordenamientos, la entrada a los menores de edad, deberán contar con un letrero alusivo en la entrada y en caso de considerarlo necesario, exigir documento que acredite la mayoría de edad.

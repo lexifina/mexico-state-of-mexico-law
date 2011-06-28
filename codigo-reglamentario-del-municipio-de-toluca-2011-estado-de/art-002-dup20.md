@@ -1,0 +1,1 @@
+Artículo 2.20.- Las comisiones del Ayuntamiento por conducto de su Presidente participarán cuantas veces sea necesario en los debates de los asuntos de su competencia, para aclarar o ampliar la información en que sustenten sus dictámenes y a falta de éste, lo hará el Secretario correspondiente.

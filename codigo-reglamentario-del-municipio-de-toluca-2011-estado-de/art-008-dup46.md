@@ -1,0 +1,1 @@
+Artículo 8.46.- Concluida la actividad comercial, el área de tianguis deberá quedar libre de residuos sólidos, por lo que los comerciantes serán responsables de la limpieza del espacio que les corresponde y del área circundante, debiendo colocar dichos residuos, debidamente separados en orgánicos e inorgánicos, en los depósitos ubicados por la autoridad municipal.

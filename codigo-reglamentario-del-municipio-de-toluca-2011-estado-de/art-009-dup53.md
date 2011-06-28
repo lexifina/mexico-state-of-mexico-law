@@ -1,0 +1,1 @@
+Artículo 9.53.- Las rampas para automóviles en estacionamientos tendrán una pendiente máxima del 15 por ciento, un ancho mínimo de 2.50 metros en rectas, 3.50 metros de ancho mínimo en curvas y un radio de giro de 7.50 metros, además de piso antiderrapante.

@@ -1,0 +1,1 @@
+Artículo 9.59.- La distancia máxima desde cualquier punto interior de una edificación a la salida más próxima que se dirija hacia la vía pública, áreas verdes o patios, no será mayor a 30 metros, excepto en las edificaciones destinadas a vivienda, oficinas, comercio e industria, donde no se rebasarán los 40 metros.

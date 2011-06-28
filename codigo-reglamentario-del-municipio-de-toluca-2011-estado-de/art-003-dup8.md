@@ -1,0 +1,2 @@
+Artículo 3.8.- El Presidente Municipal podrá contar con las Secretarías Particular, Técnica de la Presidencia y Privada, así como con servicios de asesoría y de apoyo técnico, conforme al presupuesto de egresos del Municipio.
+Para el despacho de los asuntos de la Presidencia Municipal, su titular también podrá constituir comités permanentes o transitorios, integrados con titulares de las dependencias administrativas o de los organismos auxiliares que determine, según la materia o el tema de que se trate.

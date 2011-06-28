@@ -1,0 +1,1 @@
+Artículo 5.2.- El Municipio cuenta con 24 delegaciones y 32 subdelegaciones, enumeradas en el Bando Municipal, que comprenderán los límites de la extensión reconocida por el Ayuntamiento, el cual contará con un plano que especifique esos límites.

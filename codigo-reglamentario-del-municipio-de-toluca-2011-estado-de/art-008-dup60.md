@@ -1,0 +1,1 @@
+Artículo 8.60.- Ningún espectáculo o diversión que se realice en salones, teatros, en la calle, plaza, local abierto o cerrado, podrán llevar a cabo publicidad, venta de boletos o abrir al público sin el permiso previo y por escrito de la Dirección de Regulación del Comercio, para la realización de los eventos.

@@ -1,0 +1,1 @@
+Artículo 9.40.- Se prohíbe que las tuberías de agua potable, agua pluvial, drenaje sanitario, de extracción de humos o de cualquier otro tipo de instalación, queden expuestas sobre las fachadas de la edificación, deberán quedar integradas a los muros o al interior de la edificación.

@@ -1,0 +1,1 @@
+Artículo 2.16.- Los titulares de las dependencias administrativas y de los organismos auxiliares, cuando se discuta algún asunto de su competencia, deberán comparecer ante el Ayuntamiento por acuerdo de éste, así como cuando exista solicitud del Presidente Municipal o de la mayoría de los integrantes de alguna de las comisiones.

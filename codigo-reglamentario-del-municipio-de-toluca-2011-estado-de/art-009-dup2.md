@@ -1,0 +1,1 @@
+Artículo 9.2.- Se requiere de licencia municipal de construcción para toda aquella edificación que se realice o se pretenda realizar dentro del Municipio, que tendrá una vigencia de 365 días naturales. La licencia de construcción se solicitará ante la ventanilla de la Dirección de Desarrollo Urbano.

@@ -1,0 +1,1 @@
+Artículo 3.13.- La Contraloría Municipal, para el cumplimiento de sus atribuciones, se auxiliará de las Subdirecciones de Responsabilidades y Situación Patrimonial, de Previsión y Control Administrativo, y de Auditoría Financiera.

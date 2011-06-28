@@ -1,0 +1,1 @@
+Artículo 5.10.- Los delegados y subdelegados entrantes recibirán de los delegados y subdelegados salientes, en presencia del representante del Contralor Municipal, los bienes que correspondan a la delegación o subdelegación, elaborándose el acta de entrega-recepción.

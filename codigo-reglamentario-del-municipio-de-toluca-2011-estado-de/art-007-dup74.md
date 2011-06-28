@@ -1,0 +1,1 @@
+Artículo 7.74.- El Comité de Información de la Administración Pública Municipal, será integrado por el Presidente Municipal, quien lo presidirá, el Contralor Municipal y el Jefe de la Unidad de Información, Planeación, Programación y Evaluación, que es titular de la Unidad de Información en materia de transparencia y acceso a la información pública municipal.

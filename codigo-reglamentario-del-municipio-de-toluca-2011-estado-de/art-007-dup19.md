@@ -1,0 +1,1 @@
+Artículo 7.19.- Todo médico veterinario que preste sus servicios profesionales en forma particular y que vacune a cualquier animal expedirá el certificado de vacunación antirrábica correspondiente, el cual deberá contener los datos profesionales del propio médico veterinario.

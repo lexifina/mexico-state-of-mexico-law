@@ -1,0 +1,1 @@
+Artículo 9.27.- Cuando una edificación con estacionamiento de más de cinco cajones tenga frente a más de una calle, los accesos y las salidas se ubicarán en la vialidad de menor circulación. Cuando el acceso y la salida se localicen sobre la misma calle, de acuerdo al sentido de ésta, primero se ubicará el acceso y después la salida.

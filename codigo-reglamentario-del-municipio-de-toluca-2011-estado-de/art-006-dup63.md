@@ -1,0 +1,1 @@
+Artículo 6.63.- Todo vehículo que no sea del servicio público de limpia, que transporte residuos sólidos urbanos y de manejo especial, será inscrito en el padrón que para tal efecto lleve la autoridad municipal competente, donde se fijarán las condiciones del servicio.

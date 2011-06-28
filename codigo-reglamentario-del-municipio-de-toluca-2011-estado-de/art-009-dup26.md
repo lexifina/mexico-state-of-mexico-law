@@ -1,0 +1,1 @@
+Artículo 9.26.- Cuando un inmueble o una edificación se localicen en una esquina, los accesos y salidas vehiculares se ubicarán en el punto más lejano posible a la intersección de las vialidades. El perito responsable presentará un estudio para mitigar los efectos negativos, cuando no se pueda cumplir esta disposición.

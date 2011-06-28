@@ -1,0 +1,1 @@
+Artículo 6.32.- Se prohíbe descargar o depositar en el alcantarillado residuos sólidos urbanos, los provenientes del tratamiento de aguas residuales y demás desechos que contaminen las aguas residuales, así como materiales, sustancias o residuos considerados como peligrosos en las normas oficiales mexicanas.

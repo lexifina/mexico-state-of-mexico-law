@@ -1,0 +1,2 @@
+Artículo 7.89.- Los titulares de las dependencias y organismos auxiliares deberán acreditar a un responsable de su página electrónica ante la Unidad de Información el cual deberá cubrir el perfil para atender y validar las responsabilidades a las que se refiere este capítulo.
+La información que pretenda incorporarse al portal de la administración pública municipal deberá ser validada por el titular del área que la generó.

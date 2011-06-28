@@ -1,0 +1,1 @@
+Artículo 9.90.- Los estacionamientos contarán con un área techada o marquesina, para el resguardo de personas o como área de espera, para la entrega de vehículos, tendrá 7.50 metros cuadrados de área como mínimo y uno de sus lados no será menor a 0.60 metros; su piso estará por lo menos 0.15 metros sobre el nivel de la superficie de rodamiento de vehículos.

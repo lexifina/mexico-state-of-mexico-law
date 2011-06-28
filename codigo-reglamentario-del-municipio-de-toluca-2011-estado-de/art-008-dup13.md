@@ -1,0 +1,1 @@
+Artículo 8.13.- En caso de que las condiciones bajo las que se otorgó la licencia de funcionamiento hayan variado, el titular lo informará y deberá solicitar la ampliación o cambio de giro, conforme a este ordenamiento.

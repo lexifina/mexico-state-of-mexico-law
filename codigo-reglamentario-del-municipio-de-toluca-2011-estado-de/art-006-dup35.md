@@ -1,0 +1,1 @@
+Artículo 6.35.- El Organismo solamente podrá otorgar permisos para el aprovechamiento o reuso de aguas residuales provenientes del alcantarillado municipal para riego agrícola y otros usos productivos o de servicios, previo su tratamiento conforme a los parámetros y procedimientos establecidos en las normas oficiales mexicanas correspondientes.

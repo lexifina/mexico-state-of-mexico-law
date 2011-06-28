@@ -1,0 +1,2 @@
+Artículo 9.67.- Todas las rampas peatonales que en su longitud sean mayores o iguales a 5.0 metros o suban más de 0.50 metros, tendrán una pendiente máxima del 8 por ciento, y deberán contar con un pasamanos en por lo menos uno de sus lados.
+Las rampas que midan menos de 5.0 metros de longitud y que suban 0.50 metros o menos, podrán tener una pendiente de hasta 12 por ciento, el material empleado en cualquier caso para el piso será antiderrapante y deberán contar con un pasamanos en por lo menos uno de sus lados.

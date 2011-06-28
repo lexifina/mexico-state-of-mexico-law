@@ -1,0 +1,1 @@
+Artículo 7.97.- Para la administración de los documentos municipales existirán el Archivo Administrativo dependiente de la Dirección General de Tesorería y Administración y el Archivo Histórico coordinado por la Secretaría del Ayuntamiento. En cada dependencia municipal y organismo auxiliar existirá un archivo de trámite.

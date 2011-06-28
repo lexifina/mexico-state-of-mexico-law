@@ -1,0 +1,3 @@
+Artículo 9.77.- Los edificios de cuatro niveles o más deberán contar con un ducto para alojar las instalaciones necesarias.
+Los ductos verticales destinados a instalaciones de cualquier tipo deberán tener entre los paramentos interiores un ancho mínimo de 0.90 metros, además estarán ventilados de manera natural; no se comunicarán con cubos de escaleras, elevadores, ni con circulaciones de salidas de emergencia.
+Asimismo, los ductos en edificios deberán ser registrables en cada uno de sus niveles con puertas de servicio, de 0.60 metros de ancho mínimo y 1.20 metros de alto como máximo. Deberán tener cerraduras que impidan la apertura accidental y serán abatibles hacia el exterior del ducto.

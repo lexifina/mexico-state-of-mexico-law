@@ -1,0 +1,1 @@
+Artículo 8.77.- Los músicos ambulantes, cirqueros, prestidigitadores, faquires, mimos, payasos y cualquier persona que realice actividad semejante en la vía pública con objeto de divertir a la gente, deberá obtener el permiso correspondiente expedido por la Dirección de Regulación del Comercio.

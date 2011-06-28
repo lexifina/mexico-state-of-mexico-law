@@ -1,0 +1,1 @@
+Artículo 4.42.- En cada organismo auxiliar existirá una Contraloría Interna, que ejercerá en lo conducente las atribuciones previstas en la Ley de Responsabilidades de los Servidores Públicos del Estado y Municipios, la Ley Orgánica Municipal y este Código Reglamentario Municipal.

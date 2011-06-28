@@ -1,0 +1,2 @@
+Artículo 6.22.- Sin perjuicio de lo dispuesto en otras disposiciones jurídicas, quienes soliciten licencias de uso especifico de suelo y de construcción, o modificaciones a las mismas, deberán obtener previamente constancia de servicios otorgada por el Organismo.
+En caso de no presentar la constancia de servicios vigente otorgada por el Organismo, la autoridad competente negará la licencia o autorización respectiva.

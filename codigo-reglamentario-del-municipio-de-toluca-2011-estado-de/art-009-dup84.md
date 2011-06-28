@@ -1,0 +1,1 @@
+Artículo 9.84.- En caso de existir butacas en planta alta, será necesario tener como mínimo una escalera por cada lado de la sala donde se coloquen éstas. Asimismo, se deberán tomar en cuenta los requerimientos de salidas de emergencia establecidos en este capítulo.

@@ -1,0 +1,1 @@
+Artículo 7.67.- En los organismos auxiliares, los comités internos de obra pública se formarán de un Presidente, un Secretario Ejecutivo y los vocales necesarios, de manera similar a las disposiciones anteriores.

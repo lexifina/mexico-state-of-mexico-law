@@ -1,0 +1,1 @@
+Artículo 8.53.- Para llevar a cabo la expedición de permisos en tianguis, únicamente se hará con base en los padrones oficiales de comerciantes, previamente autorizados por la autoridad municipal competente. Asimismo, sólo serán considerados dichos padrones para efecto de posteriores revalidaciones.

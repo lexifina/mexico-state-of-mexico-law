@@ -1,0 +1,1 @@
+Artículo 7.75.- El titular de la Unidad de Información será designado por el Comité de Información de la Administración Pública Municipal, quien ejercerá las atribuciones señaladas en la ley de la materia.

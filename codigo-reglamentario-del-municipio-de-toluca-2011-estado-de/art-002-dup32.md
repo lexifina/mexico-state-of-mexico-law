@@ -1,0 +1,1 @@
+Artículo 2.32.- Cuando por su importancia o por su naturaleza un asunto deba ser turnado a dos o más comisiones, éstas actuarán como Comisiones Unidas. En estos casos las sesiones serán convocadas por el integrante del Ayuntamiento que presida la sesión o por la mayoría de los integrantes de esa comisión.

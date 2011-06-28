@@ -1,0 +1,1 @@
+Artículo 9.38.- Las dimensiones de los nichos que alberguen medidores de gas, agua, luz u otra instalación, excederán en 2.0 centímetros como mínimo las de los elementos que alberguen, en cada lado. Las carátulas deberán ser totalmente visibles, en caso de colocar protecciones, éstas permitirán la visibilidad al interior.

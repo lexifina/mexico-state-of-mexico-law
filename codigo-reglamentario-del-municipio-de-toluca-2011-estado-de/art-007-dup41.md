@@ -1,0 +1,5 @@
+Artículo 7.41.-El Comité realizará las siguientes acciones:
+I. Integrar y entregar los expedientes a las dependencias municipales u organismos auxiliares, conforme al desarrollo de los procedimientos que se hayan establecido en las primeras o en los segundos, encargándose de resolver sobre la procedencia del trámite de las solicitudes que presenten los interesados;
+II. Recabar la respuesta o resolución de las dependencias municipales u organismos auxiliares en tiempo y forma, sobre la factibilidad de las solicitudes de instalación, operación o ampliación de empresas;
+III. Establecer los plazos de respuesta a las solicitudes de los interesados que deban cumplir las dependencias municipales u organismos auxiliares, los que en todo caso no podrán exceder de diez días hábiles, siempre que los expedientes se encuentren debidamente integrados y los particulares hayan cumplido con los requisitos legales; y
+IV. Dar a conocer a los empresarios solicitantes la respuesta emitida a sus solicitudes por las dependencias municipales u organismos auxiliares.

@@ -1,0 +1,3 @@
+SECCIÓN SEGUNDA
+DEL CUERPO DE AGENTES DE TRÁNSITO MUNICIPAL
+Artículo 4.14.- Los integrantes del cuerpo de agentes de tránsito y vialidad, se regirán por la Constitución Federal, la Constitución Estatal, la Ley de Seguridad Pública Preventiva del Estado de México en lo que respecta al cuerpo de seguridad pública municipal, la Ley Orgánica Municipal, el Libro Octavo del Código Administrativo, la Ley de Responsabilidades de los Servidores Públicos del Estado de México y Municipios, el Reglamento de Tránsito del Estado de México, el Bando Municipal, las secciones primera y segunda del presente capítulo y demás disposiciones aplicables.

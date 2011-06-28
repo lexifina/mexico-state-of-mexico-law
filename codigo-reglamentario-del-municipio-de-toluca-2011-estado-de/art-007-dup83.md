@@ -1,0 +1,1 @@
+Artículo 7.83.- Las dependencias y organismos auxiliares que generen catálogos o padrones que sean utilizados por otras áreas de la administración pública, deben rediseñarlos, difundirlos y estandarizar su uso en concordancia con la arquitectura institucional que diseñó la Unidad de Información.

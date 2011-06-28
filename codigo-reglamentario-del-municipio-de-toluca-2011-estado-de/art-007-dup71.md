@@ -1,0 +1,1 @@
+Artículo 7.71.- En los organismos auxiliares, los comités de adquisiciones, enajenaciones, arrendamientos y servicios se formarán de un Presidente, un Secretario Ejecutivo y como vocales los titulares de las áreas financiera, de control interno, y jurídico de la dependencia o unidad administrativa interesada en el acto.

@@ -1,0 +1,1 @@
+Artículo 9.5.- No se expedirá la licencia de construcción en lotes resultantes de subdivisiones, fusiones, lotificaciones o conjuntos urbanos que no hayan sido autorizados por la autoridad competente.

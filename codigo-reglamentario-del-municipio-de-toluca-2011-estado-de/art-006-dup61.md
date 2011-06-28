@@ -1,0 +1,1 @@
+Artículo 6.61.- Las industrias, talleres, comercios, restaurantes, oficinas, centros de espectáculos, prestadores de servicios o similares, deberán transportar por cuenta propia sus residuos sólidos, debidamente separados en orgánicos e inorgánicos, a los centros de acopio municipales y mantener limpia la banqueta frente a su establecimiento.

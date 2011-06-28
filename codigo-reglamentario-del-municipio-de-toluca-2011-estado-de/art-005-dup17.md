@@ -1,0 +1,1 @@
+Artículo 5.17.- Toda celebración festiva, religiosa, cívica o deportiva que se realice en la vía pública requiere permiso de las dependencias municipales competentes; el delegado o subdelegado es autoridad corresponsable de verificar que se cumpla en sus términos el permiso.

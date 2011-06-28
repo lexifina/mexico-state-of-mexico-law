@@ -1,0 +1,1 @@
+Artículo 9.73.- El acceso a cualquier sanitario de uso público deberá estar ventilado, de manera que no exista contacto visual directo o por medio de espejos desde el exterior hacia regaderas, excusados o mingitorios.

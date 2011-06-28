@@ -1,0 +1,1 @@
+Artículo 9.31.- Los muros de colindancia contarán con un aplanado o con un recubrimiento aparente, similar o igual al de las fachadas principales y deberán ser pintados con un color acorde a estas últimas.

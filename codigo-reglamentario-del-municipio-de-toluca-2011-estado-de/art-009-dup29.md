@@ -1,0 +1,1 @@
+Artículo 9.29.- Cualquier salida vehicular de estacionamientos que desemboque a la vía pública mediante una rampa, deberá tener mínimo 5.0 metros de separación entre el límite de la vía pública y la parte última de la rampa.

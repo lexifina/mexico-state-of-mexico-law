@@ -1,0 +1,5 @@
+Artículo 3.3.- El nombramiento del Secretario del Ayuntamiento, Contralor Municipal, Directores Generales, Jefes de Unidad y servidores públicos que señale la Ley Orgánica Municipal, lo aprobará el Ayuntamiento a propuesta del Presidente Municipal, quien podrá removerlos libremente por causa justificada cuando la remoción no esté determinada en algún otro ordenamiento legal.
+Los servidores públicos en sus ausencias temporales hasta por quince días, que sean justificadas, serán suplidos por el director de área o por quien tenga el nivel jerárquico inmediato inferior, que ellos designen, será con el carácter de encargado del despacho y con la aprobación del Presidente Municipal.
+Las ausencias temporales justificadas que excedan de quince días naturales, pero no de sesenta, serán aprobadas por el Cabildo.
+El Presidente Municipal designará al encargado del despacho quien deberá reunir los mismos requisitos exigidos para ser titular.
+Ninguna dependencia podrá tener un encargado de despacho por más de sesenta días naturales.
