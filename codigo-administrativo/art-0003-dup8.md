@@ -2,7 +2,8 @@
 Artículo 3.8.- Son atribuciones de la Secretaría de Educación:
 I. Fortalecer la educación pública;
 II. Prestar los servicios de educación inicial básica, - incluyendo la indígena -, la especial, la normal y demás para la formación de maestros;
-III. Promover la educación especial para que las personas con capacidades diferentes alcancen un mayor desarrollo de la personalidad y se favorezca su integración social;
+(REFORMADA, G.G. 1 DE SEPTIEMBRE DE 2011)
+III. Promover la educación especial para que las personas con discapacidad alcancen un mayor desarrollo de la personalidad y se favorezca su integración social;
 IV. Establecer las bases conforme a las cuales la Secretaría, en coordinación con la autoridad educativa federal y la Secretaría General de Gobierno, se presten servicios educativos a las personas internas en los centros de prevención y readaptación social del Estado, para dar cumplimiento a lo dispuesto por la Ley de Ejecución de Penas Privativas y Restrictivas de la Libertad;
 V. Desarrollar innovaciones educativas para mejorar la calidad de la educación;
 VI. Establecer programas y promover acciones de capacitación y difusión dirigidas a los padres de familia y tutores, para que orienten y guíen adecuadamente la educación de sus hijos o pupilos, así como para fortalecer la integración familiar;
