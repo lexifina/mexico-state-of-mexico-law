@@ -1,2 +1,3 @@
-Artículo 8.47.- La anotación perjudicará a cualquier adquirente del inmueble o derecho real a que se refiere la anotación, cuya adquisición sea posterior a la fecha de aquélla, y dará preferencia para el cobro del crédito sobre cualquier otro de fecha posterior a la anotación.
-Anotaciones judiciales o administrativas
+(REFORMADO, G.G. 18 DE AGOSTO DE 2011)
+Artículo 8.51.- Los padres administradores de los bienes de sus hijos, los tutores y cualesquiera otros administradores, aunque estén habilitados para recibir pagos y dar recibos, sólo pueden consentir la cancelación del registro hecho a favor de sus representados, en el caso de pago o por sentencia judicial.
+Procedencia de las cancelaciones

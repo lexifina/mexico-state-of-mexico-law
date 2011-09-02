@@ -1,5 +1,3 @@
-(REFORMADO, G.G. 3 DE DICIEMBRE DE 2007)
-Artículo 8.64.- El Reglamento establecerá los sistemas y procesos conforme a los cuales deben llevarse las inscripciones y anotaciones. El contenido de los asientos de inscripción y las anotaciones, así como los efectos, cancelación, requisitos y calificación de dichas inscripciones y anotaciones y los demás actos y procedimientos registrales del Registro Público de la Propiedad se regularán conforme a lo previsto en el presente Código y el Reglamento.
-Las inscripciones, registros, anotaciones y asientos a que se refiere este Libro Octavo se practicarán en folios que podrán evidenciarse en forma impresa, documental, magnética, informática, electrónica o cibernética conforme a lo previsto en este Código y el Reglamento. Las anotaciones que se realicen al margen de los asientos o inscripciones correspondientes se harán constar conforme a lo previsto en el mencionado Reglamento.
-La operación del Registro Público de la Propiedad podrá llevarse a cabo mediante un sistema informático, el cual utilice formas precodificadas para la realización de trámites registrales, de acuerdo con las disposiciones que al efecto se establezcan.
-El Reglamento regulará los sistemas y procesos informáticos para la captación, desarrollo, recuperación, almacenamiento, explotación, custodia, seguridad, consulta, reproducción, verificación, administración y transmisión de la información contenida tanto en libros como en la base de datos respectiva.
+(REFORMADO, G.G. 18 DE AGOSTO DE 2011)
+Artículo 8.68.- Dictada la resolución de inmatriculación de un inmueble, se ordenará su inscripción, previo pago de los derechos por este concepto.
+Oposición a la inmatriculación administrativa

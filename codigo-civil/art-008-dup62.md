@@ -1,2 +1,3 @@
-Artículo 8.58.- El que tenga título fehaciente que abarque cuando menos un período ininterrumpido de cinco años inmediatamente anteriores a su promoción, podrá inmatricular su predio mediante resolución judicial, siempre y cuando se satisfagan los requisitos que señala el Código de Procedimientos Civiles.
-Inmatriculación de inmuebles que carezcan de antecedentes registrales
+(REFORMADO, G.G. 18 DE AGOSTO DE 2011)
+Artículo 8.62.- Transcurridos cinco años desde la inscripción de posesión, sin que en el Registro aparezca algún asiento que la contradiga, tiene derecho el poseedor, a que el Juez declare que se ha convertido en propietario en virtud de la prescripción y ordene se haga en el Registro la inscripción de dominio.
+Derechos inmatriculables mediante información posesoria

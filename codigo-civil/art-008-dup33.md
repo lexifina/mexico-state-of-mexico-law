@@ -1,3 +1,3 @@
-(REFORMADO, G.G. 3 DE DICIEMBRE DE 2007)
-Artículo 8.30.- Cuando se trate de errores de concepto o materiales, los asientos practicados en el Registro Público de la Propiedad podrán rectificarse con la presentación del título, debiendo acreditar el interesado su interés jurídico.
-De la reposición y restauración de documentos
+(REFORMADO, G.G. 18 DE AGOSTO DE 2011)
+Artículo 8.33.- Hecho el registro, serán devueltos los documentos al que los presentó, con los datos de la inscripción, fecha, firma y sello.
+Impugnación contra la calificación registral. Recurso de Inconformidad o juicio

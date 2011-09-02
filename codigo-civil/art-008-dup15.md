@@ -1,2 +1,4 @@
-Artículo 8.12.- La preferencia entre derechos reales sobre una misma finca o derechos, se determinará por la prioridad de su inscripción en el Registro.
-Derecho real anterior a la anotación
+(REFORMADO, G.G. 18 DE AGOSTO DE 2011)
+Artículo 8.15.- No obstante lo dispuesto en el artículo anterior, los actos o contratos que se otorguen o celebren por personas que en el Registro aparezcan con derecho para ello, no se invalidarán en cuanto a tercero de buena fe una vez inscritos, aunque después se anule o resuelva el derecho de su otorgante o de titulares anteriores, en virtud de título no inscrito, aún siendo válido o por causas que no resulten claramente del mismo Registro. Lo dispuesto en este artículo no se aplicará al último adquirente cuya adquisición se haya efectuado en violación a disposiciones prohibitivas o de orden público. En cuanto a adquirentes a título gratuito, gozarán de la misma protección registral que la que tuviere su causante o transferente.
+La buena fe se presume siempre; quien alegue lo contrario tiene la carga de la prueba.
+Presunción de existencia del derecho inscrito

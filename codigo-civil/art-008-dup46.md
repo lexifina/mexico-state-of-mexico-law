@@ -1,2 +1,10 @@
-Artículo 8.42.- Cancelado un asiento se presume extinguido el derecho a que dicho asiento se refiere.
-Consentimiento de representantes legales para cancelar
+(REFORMADO, G.G. 18 DE AGOSTO DE 2011)
+Artículo 8.46.- Podrá pedirse y deberá ordenarse en su caso la cancelación total cuando:
+I. Se extinga por completo el bien objeto de la inscripción;
+II. Se extinga por declaración judicial o disposición de la ley el derecho inscrito o anotado;
+III. Se declare la nulidad o falsedad del hecho, acto jurídico o título en cuya virtud se haya hecho la inscripción o anotación;
+IV. Se declare judicialmente la nulidad o falsedad del asiento;
+V. Sea vendido judicialmente el inmueble que reporte gravamen, cuando así proceda conforme al artículo 7.603; y
+VI. Tratándose de cédula hipotecaria o de embargo, hayan transcurrido dos años desde la fecha del asiento, sin que se ordene su prórroga.
+Tratándose de cancelaciones de hipotecas, se considerarán accesorias a las mismas y en consecuencia deberán cancelarse simultáneamente de oficio, aún cuando no hayan sido mencionadas expresamente en el instrumento correspondiente, los asientos que contengan cédulas hipotecarias, reestructuras, ampliaciones o modificaciones a las mismas.
+Cancelación parcial

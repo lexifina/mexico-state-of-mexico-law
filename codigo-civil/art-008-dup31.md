@@ -1,2 +1,3 @@
-Artículo 8.28.- Se entenderá que se comete error material cuando se inscriban unas palabras por otras, se omita la expresión de alguna circunstancia, se equivoquen los nombres o las cantidades al copiarlas del título, sin cambiar por eso el sentido general de la inscripción ni el de ninguno de los conceptos.
-Error de concepto
+(REFORMADO, G.G. 18 DE AGOSTO DE 2011)
+Artículo 8.31.- Los Registradores deberán inscribir o anotar, según corresponda, los documentos que se presenten al Registro para inscripción o anotación, dentro de un plazo máximo de diez días hábiles siguientes al de su presentación, salvo aquellas a las que este Código o la Ley Registral establezcan un plazo menor.
+Calificación Extrínseca

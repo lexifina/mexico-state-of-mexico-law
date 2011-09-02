@@ -1,7 +1,3 @@
-Artículo 8.65.- Se inscribirán en el Registro de operaciones sobre bienes muebles:
-I. Los contratos de compra venta a plazos de bienes muebles sujetos a condición resolutoria;
-II. Los contratos de compra venta de bienes muebles por los cuales el vendedor se reserva la propiedad de los mismos;
-III. Los contratos de prenda, cuyo registro exige este Código.
-TITULO QUINTO
-Del registro de personas jurídicas colectivas
-Actos jurídicos sobre personas jurídicas colectivas
+(REFORMADO, G.G. 18 DE AGOSTO DE 2011)
+Artículo 8.71.- La información contenida en libros u otros documentos servirá de base para la conformación del folio, el cual se integrará con el total de las anotaciones y registros existentes, vinculando el tracto sucesivo. La información será validada por la autoridad registral, asignando el folio respectivo y formará parte de la base de datos que al efecto opere el Instituto de la Función Registral del Estado de México.
+Las bases para la extracción y captura de información para integrar el folio se precisarán en el Reglamento.

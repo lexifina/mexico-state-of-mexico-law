@@ -1,3 +1,3 @@
-Artículo 8.24.- Inscrito o anotado un título no podrá inscribirse o anotarse otro de igual o anterior fecha que refiriéndose al mismo bien o derecho real, se le oponga o sea incompatible.
-Si sólo se hubiere extendido el asiento de presentación, tampoco podrá inscribirse o anotarse otro título de la clase antes expresada mientras el asiento esté vigente.
-Calificación registral
+(REFORMADO, G.G. 18 DE AGOSTO DE 2011)
+Artículo 8.27.- Si el aviso definitivo se da durante la vigencia del aviso preventivo, surtirá efectos desde la presentación de éste, en caso contrario desde la presentación del aviso definitivo.
+Momento en que surte efectos la inscripción definitiva

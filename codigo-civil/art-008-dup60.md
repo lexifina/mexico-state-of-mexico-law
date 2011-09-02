@@ -1,2 +1,9 @@
-Artículo 8.56.- Transcurridos cinco años desde la inscripción de posesión, sin que en el Registro aparezca algún asiento que la contradiga, tiene derecho el poseedor, a que el Juez declare que se ha convertido en propietario en virtud de la prescripción y ordene se haga en el Registro la inscripción de dominio.
-Derechos inmatriculables mediante información posesoria
+(REFORMADO, G.G. 18 DE AGOSTO DE 2011)
+Artículo 8.60.- La inmatriculación se verifica mediante:
+I. Información de dominio;
+II. Información posesoria;
+III. Resolución judicial que la ordene y que se haya dictado como consecuencia de la presentación de título fehaciente que abarque, sin interrupción, un período por lo menos de cinco años;
+IV. La inscripción del decreto publicado en la Gaceta del Gobierno del Estado que convierta en bien de dominio privado un inmueble que no tenga tal carácter, o del título o títulos que se expidan con fundamento en aquel decreto;
+V. Resolución administrativa que la ordene y que se haya dictado como consecuencia de la presentación de la solicitud del interesado; y
+VI. La inscripción de los títulos de solares urbanos expedidos por el Registro Agrario Nacional o de los documentos que conviertan un bien ejidal a propiedad privada.
+Información posesoria

@@ -1,2 +1,3 @@
-Artículo 8.16.- Cuando vaya a otorgarse una escritura en la que se declare, reconozca, adquiera, transmita, modifique, limite o extinga la propiedad o posesión de bienes inmuebles o cualquier derecho real sobre los mismos o que sin serlo sea inscribible, el notario deberá solicitar al Registro, certificado sobre la existencia o inexistencia de gravámenes.
-Requisitos de la solicitud de certificado de gravámenes
+(REFORMADO, G.G. 18 DE AGOSTO DE 2011)
+Artículo 8.19.- La preferencia entre derechos reales sobre un mismo inmueble o derechos, se determinará por la prioridad de su inscripción en el Registro.
+Derecho real anterior a la anotación

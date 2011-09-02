@@ -1,6 +1,5 @@
-Artículo 8.5.- Sólo se registrarán:
-I. Los testimonios de instrumentos notariales u otros documentos auténticos;
-II. Las resoluciones y providencias judiciales que así lo determinen;
-III. Los documentos privados que impliquen actos u operaciones jurídicas reputados válidos bajo esa forma con arreglo a la ley, siempre y cuando se hayan ratificado sus firmas judicialmente o ante notario público;
-IV. Los planes de desarrollo urbano, previstos en la ley.
-Quiénes pueden solicitar el registro
+(REFORMADO, G.G. 18 DE AGOSTO DE 2011)
+Artículo 8.7.- La Ley Registral establecerá el sistema conforme al cual deberán llevarse los Folios Electrónicos del Registro Público y practicarse los Asientos Registrales.
+El Registro Público deberá operar con un sistema informático, mediante el cual se realice la captura, almacenamiento, custodia, seguridad, consulta, reproducción, verificación, administración y transmisión de la información contenida en el Acervo Registral.
+La primera inscripción de cada inmueble será de dominio o de posesión.
+Valor probatorio de la información contenida en el sistema

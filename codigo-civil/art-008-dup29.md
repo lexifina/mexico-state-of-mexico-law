@@ -1,9 +1,3 @@
-(REFORMADO, G.G. 3 DE DICIEMBRE DE 2007)
-Artículo 8.26.- La calificación hecha por el registrador podrá recurrirse ante el Director General del Instituto de la Función Registral del Estado de México. Si éste confirma la calificación, el perjudicado por ella podrá reclamarla en juicio contencioso administrativo.
-Para efectos de lo dispuesto en el párrafo anterior, el titular del derecho inscrito, sus causahabientes, apoderados, representantes legales o el Fedatario Público que haya autorizado el documento, así como las autoridades, federales, estatales y municipales, cuando así lo establezca la normatividad aplicable podrán interponer ante el Director General del Instituto de la Función Registral del Estado de México un recurso de inconformidad o juicio ante el Tribunal de lo Contencioso Administrativo del Estado contra la resolución del registrador que niegue la inscripción, anotación o cancelación de un documento.
-Para los efectos de los procedimientos ante el Director General del Instituto de la Función Registral del Estado de México y del juicio contencioso administrativo antes mencionados, se estará a lo dispuesto en el Código de Procedimientos Administrativos del Estado de México, el Reglamento, la Ley que Crea el Organismo Público Descentralizado Denominado Instituto de la Función Registral del Estado de México y en los demás ordenamientos legales que resulten aplicables.
-Las resoluciones del Instituto de la Función Registral del Estado de México relativas a las calificaciones registrales, podrán notificarse por estrados en sitio abierto de las oficinas de dicho Instituto o por cualquier medio electrónico disponible previa conformidad o solicitud por escrito del promovente y surtirán efectos al día siguiente de su publicación o de su recepción, según sea el caso.
-Si la autoridad ordena que se registre el título rechazado, la inscripción surtirá sus efectos desde que por primera vez se presentó el título.
-CAPITULO IV
-De la rectificación de asientos
-Rectificación de asientos por error
+(REFORMADO, G.G. 18 DE AGOSTO DE 2011)
+Artículo 8.29.- Para inscribir o anotar cualquier título, deberá constar previamente inscrito el derecho de la persona que otorgó aquél o de la que vaya a resultar perjudicada por la inscripción o anotación, a no ser que se trate de una inmatriculación judicial.
+Títulos incompatibles

@@ -1,2 +1,3 @@
-Artículo 8.10- No podrá ejercitarse acción contradictoria del dominio de inmuebles, de derechos reales sobre los mismos o de otros derechos inscritos o anotados en favor de persona o entidad determinada sin que previamente o a la vez, se entable demanda de nulidad o cancelación de la inscripción en que conste dicho dominio o derechos.
-Sobreseimiento al procedimiento
+(REFORMADO, G.G. 18 DE AGOSTO DE 2011)
+Artículo 8.13.- Los documentos que conforme a las leyes sean registrables y no se registren, sólo producirán efectos entre las partes y no en perjuicio de tercero.
+La inscripción no produce convalidación

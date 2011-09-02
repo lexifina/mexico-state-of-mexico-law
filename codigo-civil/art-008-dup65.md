@@ -1,4 +1,6 @@
-(REFORMADO PRIMER PARRAFO, G.G. 3 DE DICIEMBRE DE 2007)
-Artículo 8.61.- Una vez realizada la inmatriculación, sólo podrá rectificarse por el Director General del Instituto de la Función Registral del Estado de México cuando se hubieren cometido errores mecanográficos, ortográficos o de otra índole que no afecten sus datos esenciales, sin cambiar por eso el sentido general de la inscripción ni el de ninguno de los conceptos. Tratándose de un error de concepto, sólo podrá rectificarse o cancelarse por determinación judicial.
-Se entenderá que se comete error de concepto cuando al expresar en la inmatriculación alguno de los contenidos del título, se altere o varíe su sentido.
-Inscripción de la inmatriculación administrativa
+(REFORMADO, G.G. 18 DE AGOSTO DE 2011)
+Artículo 8.65.- Para la inmatriculación de inmuebles que carezcan de antecedentes registrales los que tengan interés legítimo podrán ocurrir ante el Registro Público a solicitarla, debiendo acompañar a su promoción:
+l. Certificado del Registro Público de la Propiedad que acredite que el bien de que se trata no está inscrito; y
+II. Comprobante del pago del impuesto predial al corriente a nombre de quién se promueve.
+Las personas que soliciten la inmatriculación de inmuebles, deberán cumplir los requisitos y sujetarse al procedimiento que establezca el reglamento respectivo.
+La inmatriculación en relación a terceros

@@ -1,5 +1,6 @@
-Artículo 8.66.- En el registro de las personas jurídicas colectivas se inscribirán:
-I. Los instrumentos por los que se constituyan, reformen o disuelvan las sociedades y asociaciones civiles y sus estatutos;
-II. Los instrumentos por los que se constituyan reformen o disuelvan las sociedades y asociaciones extranjeras de carácter civil;
-III. Las Instituciones de asistencia privada.
-Disposiciones aplicables al registro de inmuebles
+(REFORMADO, G.G. 18 DE AGOSTO DE 2011)
+Artículo 8.72.- La información e imágenes contenidas en la base de datos de los sistemas informáticos con los que opere el Registro Público de la Propiedad, tendrán la misma validez y exactitud jurídica que las contenidas en los libros o en el archivo histórico, así como el carácter probatorio para los efectos correspondientes.
+(REFORMADA SU DENOMINACION, G.G. 18 DE AGOSTO DE 2011)
+TITULO CUARTO
+Del Registro de Personas Jurídicas Colectivas
+Actos jurídicos sobre personas jurídicas colectivas
