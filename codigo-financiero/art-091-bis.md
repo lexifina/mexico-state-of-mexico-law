@@ -3,8 +3,8 @@ Artículo 91 Bis.- Por los servicios de control vehicular prestados por la Secre
 TARIFA
 CONCEPTO
 I. Por la expedición inicial de placas, tarjeta de circulación y calcomanía:
-A). Para vehículos de servicio particular y capacidades
-diferentes.$499
+(REFORMADO, G.G. 1 DE SEPTIEMBRE DE 2011)
+A). Para vehículos de servicio particular y discapacitados.$499
 B). Para vehículos particulares de carga comercial.$1,053
 C). Para remolques:
 1. Con capacidad de carga de hasta 1,000 Kgs.$1,303
@@ -19,7 +19,8 @@ Para efectos del presente inciso, se entenderá por auto antiguo, a aquel vehíc
 F). (DEROGADO, G.G. 18 DE DICIEMBRE DE 2008) (REPUBLICADO, G.G. 1 DE ENERO DE 2011)
 Los derechos previstos en esta fracción se pagarán previamente a la prestación de los servicios o en su caso, dentro de los días considerados dentro del permiso provisional autorizado.
 II. Por refrendo anual:
-A). Para vehículos de uso particular y capacidades diferentes.$332
+(REFORMADO, G.G. 1 DE SEPTIEMBRE DE 2011)
+A). Para vehículos de uso particular y discapacitados.$332
 B). Para vehículos particulares de carga comercial. $945
 C). Para remolques:
 l. Con capacidad de carga de hasta 1,000 Kgs. $1,316
@@ -61,14 +62,15 @@ A). Por la expedición inicial de placas y tarjeta de circulación.$1,407
 B). Refrendo anual.$878
 C). Baja.$332
 IX. Por otros servicios relativos al transporte particular y comercial, se pagarán los siguientes derechos:
-A.) Por la práctica de revista a vehículos particulares de carga.$361
+A.) Por la práctica de revista a vehículos particulares de carga. $361
 Los derechos previstos en este inciso, se pagarán anualmente de manera simultánea con el Impuesto sobre Tenencia o Uso de Vehículos o el Impuesto sobre Tenencia o Uso de Vehículos Automotores, según corresponda, mediante declaración, dentro de los tres primeros meses de cada año.
 B). Por la reposición del tarjetón de revista anual.$155
 C). Por los servicios de certificación de extravío, mutilación
 o deterioro de documentos que amparen la circulación del
 vehículo.$51
 X. Por el canje de placas, tarjeta de circulación y calcomanía:
-A). Para vehículos de uso particular y capacidades diferentes.$447
+(REFORMADO, G.G. 1 DE SEPTIEMBRE DE 2011)
+A). Para vehículos de uso particular y discapacitados.$447
 B). Para vehículos destinados a carga mercantil.$773
 C). Para remolques:
 1. Con capacidad de carga de hasta 1,000 Kgs.$928

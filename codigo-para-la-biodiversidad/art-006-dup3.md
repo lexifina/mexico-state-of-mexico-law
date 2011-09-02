@@ -2,7 +2,8 @@ Artículo 6.3. Son objeto de tutela y protección de este Libro todos los animal
 I. Los de compañía;
 II. Los abandonados y callejeros;
 III. los deportivos;
-IV. Los guías, de utilidad para las actividades con personas con incapacidades diferentes;
+(REFORMADA, G.G. 1 DE SEPTIEMBRE DE 2011)
+IV. Los guías, de utilidad para las actividades con personas discapacitadas;
 V. los que se utilizan para la práctica de la animaloterapia en cualquiera, de sus formas;
 VI. Los que se utilizan para exhibición y para espectáculos;
 VII. Los de producción y abasto;
