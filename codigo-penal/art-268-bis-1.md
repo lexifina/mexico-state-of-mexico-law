@@ -1,7 +1,8 @@
 (ADICIONADO, G.G. 28 DE DICIEMBRE DE 2007)
 Artículo 268 BIS 1.- A quien cometa el delito de trata de personas se le impondrá:
 I. De seis a doce años de prisión y de quinientos a mil quinientos días multa;
-Il. De nueve a dieciocho años de prisión y de quinientos a dos mil días multa, si el sujeto activo se valiese de la función pública que tuviere o hubiese ostentado sin tener. Además, se impondrá la destitución del empleo, cargo o comisión públicos e inhabilitación para desempeñar otro hasta por veinticinco años;
+(REFORMADA, G.G. 2 DE SEPTIEMBRE DE 2011)
+II. De nueve a dieciocho años de prisión y de quinientos a dos mil días multa, si el sujeto activo se valiese de la función pública que tuviere o hubiese ostentado sin tener. Además, se impondrá la destitución del empleo, cargo o comisión públicos e inhabilitación para desempeñar otro de doce a veinte años; y
 III. Las penas que resulten de las fracciones I y II de este artículo se incrementarán hasta una mitad;
 a) Si el delito es cometido en contra de una persona menor de dieciocho años de edad;
 b) Si el delito es cometido en contra de una persona mayor de sesenta años de edad;
