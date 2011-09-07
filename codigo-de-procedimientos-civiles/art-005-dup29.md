@@ -1,5 +1,4 @@
-Artículo 5.30.- En los juzgados en donde se ventilen este tipo de controversias, habrá un Ministerio Público adscrito.
-Cuando se involucren derechos relacionados con menores o incapaces, se dará intervención al Ministerio Público adscrito desde el auto admisorio, con la finalidad de que intervenga y formule pedimentos tendentes a garantizar los derechos de aquellos.
+Artículo 5.68.- De encontrar apegado a derecho el convenio y de estar garantizados los derechos de los menores o incapaces, el juez dictará resolución.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-De los juicios especiales y procedimientos no contenciosos
+Derechos de tercero

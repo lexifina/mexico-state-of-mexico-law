@@ -1,5 +1,6 @@
-Articulo 5.55.- Si no comparece alguna de las partes, no se logrará la conciliación o subsisten puntos litigiosos, el juez resolverá, en su caso, sobre las excepciones procesales y la cosa juzgada, con el fin de depurar el proceso y ordenará el desahogo de algún medio de prueba, si así lo estima pertinente.
-La excepción de falta de personalidad del actor o en la objeción que se haga a la del represente al demandado, de declararse fundadas, si fuera subsanable la causa, se otorgará un plazo de diez días para tal efecto, de no hacerlo, si se trata del actor se sobreseerá la controversia; y del demandado, se seguirá en rebeldía.
+Artículo 5.13.- Las resoluciones judiciales dictadas en las audiencias, se tendrán por notificadas a quienes estén presentes.
+A los inasistentes, se notificará conforme a las reglas generales de las notificaciones.
+La notificación personal que ordene el juzgador, contendrá un extracto sucinto del acto procesal respectivo.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Admisión de medios de prueba
+Tercerías en el procedimiento oral

@@ -1,7 +1,5 @@
-Artículo 5.76.- la apelación procede en contra de:
-I. las resoluciones que ponen fin a la controversia;
-II. El auto interlocutorio que resuelva sobre incompetencia; y
-III. Las resoluciones interlocutorias y definitivas.
+Articulo 5.34.- La declaración de parte podrá recibirse con independencia de la confesional.
+Si se admiten la confesional y declaración de parte, ésta se desahogará al concluir aquélla.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Apelación de la sentencia que concede alimentos
+Opinión de menores

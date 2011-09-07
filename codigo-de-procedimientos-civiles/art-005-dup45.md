@@ -1,4 +1,5 @@
-Artículo 5.46.- En el auto que tenga por contestada la demanda o reconvención, en su caso, se citará a las partes a la audiencia inicial a verificarse dentro de los cinco días siguientes.
+Artículo 5.4.- El juzgador velará durante el proceso por el respeto al derecho a la intimidad de las partes y especialmente de los niños, niñas y adolescentes.
+Con ese objetivo podrá prohibir la difusión de datos e imágenes referidos al proceso o a las partes; o disponer, mediante resolución fundada, que todas o algunas de las actuaciones del procedimiento se realicen en forma reservada.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Apercibimiento para el caso de inasistencia
+Suspensión de la audiencia

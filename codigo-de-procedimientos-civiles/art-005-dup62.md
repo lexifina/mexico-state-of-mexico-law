@@ -1,6 +1,4 @@
-Artículo 5.63.- Los incidentes se formularán con ofrecimiento de pruebas durante la audiencia y previa vista a la contraria, se resolverán en la propia audiencia.
-Sólo será admisible la documental y presuncional, salvo que el juez estime el desahogo de algún otro medio de prueba para mejor proveer.
-El incidente de nulidad no suspende la citación para sentencia.
+Artículo 5.21.- El juez decretará los recesos que estime pertinentes para el mejor desarrollo de la audiencia, con la precisión de su duración; las partes quedarán obligadas a asistir a la hora señalada para la continuación y serán apercibidas que de no comparecer, se les tendrá por renunciado su derecho a estar presentes.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Recepción de pruebas después de la audiencia principal
+Retraso de la audiencia

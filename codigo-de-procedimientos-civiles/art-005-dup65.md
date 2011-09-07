@@ -1,5 +1,4 @@
-Artículo 5.66.- De la solicitud del divorcio por mutuo consentimiento y del convenio, se dará vista al Ministerio Público cuando estén involucrados derechos de menores o incapaces.
-El Ministerio Público adscrito desahogará la vista en la propia audiencia.
+Artículo 5.24.- La conservación de la video y audiograbación o de cualquier otro medio apto estimado por el juez que integren el expediente, se hará por duplicado el que se depositará en el área de seguridad del juzgado; cuando se dañe el soporte material del registro y se afecte su contenido; el juez ordenará reemplazarlo.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Análisis del convenio
+Prohibición para grabar audiencias

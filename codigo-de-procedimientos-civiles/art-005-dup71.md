@@ -1,5 +1,5 @@
-Artículo 5.72.- La solicitud de suspensión de la audiencia no constituye perdón tácito en relación a los hechos del divorcio necesario.
-Sólo la sentencia que decrete el divorcio por mutuo consentimiento constituirá la extinción de las pretensiones relacionadas con la controversia del orden familiar.
+Artículo 5.30.- En los juzgados en donde se ventilen este tipo de controversias, habrá un Ministerio Público adscrito.
+Cuando se involucren derechos relacionados con menores o incapaces, se dará intervención al Ministerio Público adscrito desde el auto admisorio, con la finalidad de que intervenga y formule pedimentos tendentes a garantizar los derechos de aquellos.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Aplicación supletoria
+De los juicios especiales y procedimientos no contenciosos

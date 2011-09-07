@@ -1,5 +1,8 @@
-Artículo 5.57.- El desahogo de las pruebas fuera del local del juzgado pero dentro de su ámbito de competencia territorial, se realizará en los días, horas y lugares que señale el juez, pero antes de la audiencia principal, para lo cual, dictará las medidas conducentes.
-En el auto en que se admitan medios de prueba, se dejará a disposición del oferente el oficio o exhorto respectivo para que realice los trámites necesarios a fin de exhibirlo debidamente diligenciado hasta la fecha de la audiencia principal, con el apercibimiento de la deserción de la prueba.
+Artículo 5.15.- Dos o más controversias deben acumularse cuando la decisión de cada una exige la comprobación, la constitución, o la modificación de relaciones jurídicas que derivan en todo o en parte del mismo hecho, de manera que éste tiene necesariamente que comprobarse en todo caso, o tienden, en todo o en parte, al mismo efecto; o cuando en dos o más juicios deba resolverse totalmente o parcialmente una misma controversia.
+La acumulación procederá en cualquier etapa del proceso hasta la fase de alegatos.
+La acumulación se hará a favor del que prevenga en el conocimiento de los juicios.
+Los asuntos conexos se acumularán a instancia de parte o de manera oficiosa, a fin de evitar sentencias contradictorias.
+En la acumulación de juicios orales a ordinarios o viceversa, una vez concluida la fase de alegatos, se remitirán al que, por razón de prevención, le corresponda el conocimiento y decisión del asunto para que en una misma sentencia se resuelvan ambos.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Revisión de las medidas provisionales
+Interés superior del menor

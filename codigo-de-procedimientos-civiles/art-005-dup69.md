@@ -1,6 +1,5 @@
-Artículo 5.70.- la sentencia que declare la disolución del vínculo matrimonial es irrecurrible.
-Se procederá inmediatamente a su ejecución en el mismo expediente.
-El juez podrá dictar las medidas necesarias para su ejecución.
+Artículo 5.28.- La facultad de las partes para realizar determinados actos procesales en las audiencias, producirá su preclusión de no hacerse valer en la fase correspondiente.
+El juez determinará el inicio y la conclusión de cada una de las etapas de las audiencias, precluyendo los derechos procesales que debieron ejercitarse en las anteriores.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Levantamiento de la suspensión de la audiencia
+Protesta de decir verdad

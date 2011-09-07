@@ -1,4 +1,10 @@
-Artículo 5.22.- En caso de que una audiencia en distinto proceso, se prolongue y llegue la hora señalada para la verificación de otra, las personas citadas deberán permanecer en el juzgado hasta que se termine aquella, acorde al orden de audiencias a verificarse. El secretario fijará diariamente en la lista, las audiencias a realizarse, con la mención del número de expediente, si se trata de la audiencia inicial o principal y el nombre de las partes.
+Artículo 5.61.- La audiencia principal se desarrollará de la siguiente manera:
+I. Abierta la audiencia, el secretario hará saber su objeto, llamará a las partes, peritos, testigos y demás personas que intervendrán, y precisará quiénes permanecerán en el recinto.
+II. Se recibirán los medios de prueba, de preferencia, en el orden que fueron ofrecidos.
+III. Desahogadas las probanzas, se formularán alegatos, por un tiempo prudente a juicio del juez, sin derecho a réplica.
+IV. El juez dictará la sentencia que contendrá los motivos y fundamentos del fallo; su lectura podrá efectuarse de manera resumida.
+De no dictar la sentencia en la audiencia, por la complejidad del asunto, se citará a las partes para oírla dentro de un plazo de diez días.
+De la sentencia quedará constancia íntegra por escrito; una copia, se pondrá a disposición de las partes en la secretaría respectiva.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Copia del registro de la audiencia
+Causas de suspensión de la audiencia

@@ -1,5 +1,6 @@
-Artículo 5.65.- En los asuntos relacionados con divorcio necesario, desde la etapa conciliatoria hasta la de alegatos, las partes de común acuerdo, podrán solicitar la suspensión de la audiencia, siempre que expresen su voluntad de disolver su vínculo matrimonial por mutuo consentimiento, al efecto, exhibirán o elaborarán en ese acto, el convenio a que se refiere el artículo 4.102 del Código Civil del Estado.
-Para ello, deberán estar agregadas las copias certificadas de las actas de matrimonio y de nacimiento de los menores hijos, en su caso.
+Artículo 5.23.- Cuando fuera de audiencia se solicite copia de las (sic) video o audiograbaciones, con conocimiento de la contraria se obsequiarán; para tal efecto se acompañarán a la solicitud los discos compactos necesarios.
+Cuando la petición se realice en la audiencia, con conocimiento de la contraria, se autorizará.
+Queda prohibido a las partes, terceros y autoridades, la difusión por cualquier medio de las constancias, video o audiograbaciones de las controversias que regula este título; para lo cual, se estará a lo dispuesto por la Ley de Transparencia y Acceso a la Información Pública del Estado y al Reglamento del Poder Judicial en la materia.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Vista al Ministerio Público
+Conservación del registro de las audiencias

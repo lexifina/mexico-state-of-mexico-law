@@ -1,8 +1,9 @@
-Artículo 5.15.- Dos o más controversias deben acumularse cuando la decisión de cada una exige la comprobación, la constitución, o la modificación de relaciones jurídicas que derivan en todo o en parte del mismo hecho, de manera que éste tiene necesariamente que comprobarse en todo caso, o tienden, en todo o en parte, al mismo efecto; o cuando en dos o más juicios deba resolverse totalmente o parcialmente una misma controversia.
-La acumulación procederá en cualquier etapa del proceso hasta la fase de alegatos.
-La acumulación se hará a favor del que prevenga en el conocimiento de los juicios.
-Los asuntos conexos se acumularán a instancia de parte o de manera oficiosa, a fin de evitar sentencias contradictorias.
-En la acumulación de juicios orales a ordinarios o viceversa, una vez concluida la fase de alegatos, se remitirán al que, por razón de prevención, le corresponda el conocimiento y decisión del asunto para que en una misma sentencia se resuelvan ambos.
+Artículo 5.43.- En el auto admisorio de demanda, si el juez considera acreditada la obligación alimentaria, de oficio determinará el monto de la pensión alimenticia provisional y ordenará se realicen los descuentos correspondientes por la vía que considere más rápida.
+(ADICIONADO, G.G. 6 DE SEPTIEMBRE DE 2011)
+El Juez girará oficio al centro laboral del demandado, al Instituto de la Función Registral del Estado de México, a las instituciones de seguridad social o a la Secretaría de Hacienda y Crédito Público, para que informen sobre sueldos, prestaciones, ingresos y bienes declarados por el deudor alimentario.
+La orden de descuento de los alimentos o el informe solicitado, se atenderá de inmediato por el responsable de la fuente laboral o del área de recursos humanos, y dará respuesta dentro del término de tres días, con el apercibimiento que de no hacerlo se les aplicará una multa o arresto de hasta treinta y seis horas; sin perjuicio de la responsabilidad solidaria con el deudor alimentario.
+Cuando no se acredite la capacidad económica del deudor alimentario, en atención a las circunstancias especiales del caso, se fijará en salarios mínimos, sin que pueda ser inferior a uno.
+Fuera de los casos anteriores, se ordenará requerir al deudor alimentario sobre el pago inmediato de dicha pensión provisional, embargando, en su caso, bienes de su propiedad que garanticen su cumplimiento.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Interés superior del menor
+Medidas provisionales

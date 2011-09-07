@@ -1,4 +1,6 @@
-Artículo 5.79.- La Sala podrá ordenar la recepción o ampliación de pruebas, cuando se trate asuntos que afecten los derechos de menores o incapaces y en materia de alimentos a favor del acreedor alimentario.
+Artículo 5.37.- De existir imposiblidad (sic) para presentar a los testigos, el juez ordenará su citación personal con el apercibimiento que de no asistir se les impondrá una multa o arresto a juicio del juzgador y se ordenará su presentación a través de la policía ministerial.
+Sólo una vez se ordenará la presentación del testigo; de no lograrse, se declarará desierta.
+El juez cuidará la indivisibilidad de la prueba.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Reposición del procedimiento
+Reglas para la recepción de pruebas

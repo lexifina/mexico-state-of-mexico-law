@@ -1,4 +1,4 @@
-Artículo 5.59.- El juez señalará día y hora para la celebración de la audiencia principal dentro de los quince días siguientes, en la que recibirá las pruebas pendientes de desahogo, se formularán alegatos y, en su caso, dictará la resolución definitiva.
+Artículo 5.17.- Las partes podrán de común acuerdo, por una sola vez, solicitar la suspensión de la audiencia, para lo cual, el juez señalará nuevo día y hora para su celebración dentro de un plazo que no excederá de quince días hábiles.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Recepción de alegatos
+Registro de audiencias
