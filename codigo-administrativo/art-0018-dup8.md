@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 9 DE SEPTIEMBRE DE 2011)
+Artículo 18.8.- La Secretaría instaurará el Comité Consultivo Estatal de Normalización Técnica de la Construcción, como órgano técnico de carácter interinstitucional que tendrá por objeto elaborar, revisar y actualizar las Normas Técnicas, con el fin de que las construcciones satisfagan condiciones de seguridad, habitabilidad, calidad, higiene, funcionalidad, sustentabilidad e integración al contexto e imagen urbana.
