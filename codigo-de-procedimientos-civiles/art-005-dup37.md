@@ -1,7 +1,6 @@
-Artículo 5.76.- la apelación procede en contra de:
-I. las resoluciones que ponen fin a la controversia;
-II. El auto interlocutorio que resuelva sobre incompetencia; y
-III. Las resoluciones interlocutorias y definitivas.
+Artículo 5.37.- De existir imposiblidad (sic) para presentar a los testigos, el juez ordenará su citación personal con el apercibimiento que de no asistir se les impondrá una multa o arresto a juicio del juzgador y se ordenará su presentación a través de la policía ministerial.
+Sólo una vez se ordenará la presentación del testigo; de no lograrse, se declarará desierta.
+El juez cuidará la indivisibilidad de la prueba.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Apelación de la sentencia que concede alimentos
+Reglas para la recepción de pruebas

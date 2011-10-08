@@ -1,8 +1,6 @@
-Artículo 5.15.- Dos o más controversias deben acumularse cuando la decisión de cada una exige la comprobación, la constitución, o la modificación de relaciones jurídicas que derivan en todo o en parte del mismo hecho, de manera que éste tiene necesariamente que comprobarse en todo caso, o tienden, en todo o en parte, al mismo efecto; o cuando en dos o más juicios deba resolverse totalmente o parcialmente una misma controversia.
-La acumulación procederá en cualquier etapa del proceso hasta la fase de alegatos.
-La acumulación se hará a favor del que prevenga en el conocimiento de los juicios.
-Los asuntos conexos se acumularán a instancia de parte o de manera oficiosa, a fin de evitar sentencias contradictorias.
-En la acumulación de juicios orales a ordinarios o viceversa, una vez concluida la fase de alegatos, se remitirán al que, por razón de prevención, le corresponda el conocimiento y decisión del asunto para que en una misma sentencia se resuelvan ambos.
+Artículo 5.56.- El juez procederá a admitir los medios de prueba ofrecidos en la demanda, reconvención y contestación a éstas, y las relacionadas con la objeción de documentos y tendrá por desahogadas las que su naturaleza así lo permita; dictará las medidas necesarias para preparar el desahogo de las restantes en la audiencia principal o fuera de ésta.
+Cuando se advierta la falta de algún requisito en el ofrecimiento de una prueba, el juez requerirá a la oferente para que lo subsane en ese acto, de no hacerlo en sus términos, la inadmitirá.
+En los asuntos donde se controviertan derechos de menores e incapaces o en materia de alimentos a favor del acreedor alimentario, el juez podrá ordenar el desahogo y práctica de cualquier medio probatorio.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Interés superior del menor
+Desahogo de pruebas fuera de audiencia

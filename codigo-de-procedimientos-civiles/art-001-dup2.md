@@ -1,2 +1,2 @@
-Artículo 1.1.- Corresponde a los Tribunales del Poder Judicial, la facultad de interpretar y aplicar las leyes en los asuntos del orden civil y familiar del fuero común, lo mismo que del orden federal, en los casos en que expresamente lo ordene la ley.
+Artículo 1.2.- La jurisdicción civil sólo se ejercerá mediante instancia de parte, pero mientras se mantenga en ejercicio, corresponde al Juez desarrollar el proceso de oficio, salvo los casos en que la ley exija la petición de parte.
 Normas genéricas de la jurisdicción

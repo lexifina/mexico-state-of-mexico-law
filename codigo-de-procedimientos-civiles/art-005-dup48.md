@@ -1,4 +1,4 @@
-Artículo 5.7.- El juez podrá ordenar el traslado del personal de actuaciones y terceros, al domicilio o lugar donde se encuentren las cosas o personas sobre las que se deba desahogar algún medio probatorio.
+Artículo 5.48.- La citación a la audiencia inicial se realizará mediante notificación personal a las partes.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Suplencia de la queja
+Trámite sumario

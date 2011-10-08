@@ -1,4 +1,4 @@
-Artículo 5.6.- En cualquier etapa del proceso, inclusive en segunda instancia hasta antes de dictar sentencia, las partes podrán conciliar sus intereses si la naturaleza del asunto lo permite, se someterá el convenio a la aprobación del juez o sala.
+Artículo 5.47.- El juez apercibirá a las partes, que para el caso de inasistencia a la audiencia inicial, se impondrá una multa de hasta cincuenta días de salario mínimo vigente en el área de residencia del juzgado, que se aplicará a favor del Fondo Auxiliar de la Administración de Justicia, excepto cuando el demandado no haya producido contestación ni cuando a su juicio se cause un perjuicio mayor.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Traslado del personal
+Citación personal para la audiencia inicial

@@ -1,10 +1,5 @@
-Artículo 5.75.- En audiencia, el recurso de revocación sólo procede en contra de:
-I. El auto que resuelva excepciones procesales;
-II. El que inadmita pruebas;
-III. El auto que declare o niegue tener por confesa a alguna de las partes; y
-IV. El que resuelva sobre la revisión de medidas provisionales.
-Los demás decretos y autos dictados en audiencia serán irrecurribles.
-La revocación sólo podrá plantearse en la audiencia y al momento de emitirse el auto o decreto. Interpuesta, el juez dará vista a la contraria, de estar presente, para que en el acto la desahogue y dictará resolución.
+Artículo 5.36.- La objeción de documentos será necesariamente al contestar la demanda, al reconvenir o al contestar ésta, o en su caso, en la fase de admisión y preparación de pruebas de la audiencia inicial, con el ofrecimiento de los medios de convicción que la acrediten; la de los exhibidos en audiencia, se hará en ésta.
+El juez proveerá lo conducente para recibir en la audiencia principal las probanzas admitidas.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-De la apelación
+Citación de testigos

@@ -1,4 +1,4 @@
-Artículo 5.68.- De encontrar apegado a derecho el convenio y de estar garantizados los derechos de los menores o incapaces, el juez dictará resolución.
+Artículo 5.29.- Al inicio de las audiencias, el juez tomará la protesta de ley a quienes vayan a declarar.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Derechos de tercero
+Ministerio Público adscrito

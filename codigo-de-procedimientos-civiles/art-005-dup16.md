@@ -1,4 +1,5 @@
-Artículo 5.44.- Cuando se controviertan derechos de menores o incapaces, el juez podrá dictar las medidas provisionales que estime pertinentes para salvaguardar los derechos de aquellos, ya sea a petición de parte o de oficio, con conocimiento de la posición de las partes sobre el particular.
+Artículo 5.16.- El interés superior de los menores y su derecho a ser escuchado, son principios rectores que el juez debe tener siempre como consideración primordial en la tramitación y resolución del asunto sometido a su conocimiento.
+Al resolver una controversia, el juez podrá dictar las medidas que estime pertinentes para salvaguardar el interés superior del menor, entre otras, ordenar terapia médica, psicológica o social a sus progenitores o quienes integren el grupo familiar.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Revisión de las medidas provisionales
+Suspensión de la audiencia

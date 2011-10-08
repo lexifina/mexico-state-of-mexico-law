@@ -1,5 +1,5 @@
-Artículo 5.16.- El interés superior de los menores y su derecho a ser escuchado, son principios rectores que el juez debe tener siempre como consideración primordial en la tramitación y resolución del asunto sometido a su conocimiento.
-Al resolver una controversia, el juez podrá dictar las medidas que estime pertinentes para salvaguardar el interés superior del menor, entre otras, ordenar terapia médica, psicológica o social a sus progenitores o quienes integren el grupo familiar.
+Artículo 5.57.- El desahogo de las pruebas fuera del local del juzgado pero dentro de su ámbito de competencia territorial, se realizará en los días, horas y lugares que señale el juez, pero antes de la audiencia principal, para lo cual, dictará las medidas conducentes.
+En el auto en que se admitan medios de prueba, se dejará a disposición del oferente el oficio o exhorto respectivo para que realice los trámites necesarios a fin de exhibirlo debidamente diligenciado hasta la fecha de la audiencia principal, con el apercibimiento de la deserción de la prueba.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Suspensión de la audiencia
+Revisión de las medidas provisionales

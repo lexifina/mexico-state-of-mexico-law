@@ -1,4 +1,4 @@
-Artículo 5.39.- Se tendrán por ciertos los hechos que pretendan acreditar las partes al ofrecer los medios de prueba: cuando su contraria impida u obstaculice de cualquier forma su desahogo, no presente a los menores que tenga bajo su custodia y cuando no exhiba algún documento o instrumento de acreditarse que los tiene a su disposición.
+Artículo 5.80.- Sólo podrá decretarse la reposición del procedimiento con reenvío al juzgado de origen, por ausencia de algún presupuesto procesal esencial o por una violación procesal manifiesta, cuando haya trascendido al resultado del fallo; o bien, cuando en suplencia de la queja de menores o incapaces y en materia de alimentos a favor del acreedor alimentario, estime necesario el desahogo de medios probatorios.
 T R A N S I T O R I O S
 PRIMERO.- Publíquese el presente decreto en el periódico oficial "Gaceta del Gobierno".
 SEGUNDO.- Este decreto entrará en vigor a los quince días naturales siguientes a su publicación en el periódico oficial "Gaceta del Gobierno".

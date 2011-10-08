@@ -1,5 +1,5 @@
-Artículo 5.4.- El juzgador velará durante el proceso por el respeto al derecho a la intimidad de las partes y especialmente de los niños, niñas y adolescentes.
-Con ese objetivo podrá prohibir la difusión de datos e imágenes referidos al proceso o a las partes; o disponer, mediante resolución fundada, que todas o algunas de las actuaciones del procedimiento se realicen en forma reservada.
+Artículo 5.45.- Las medidas provisionales serán revisadas de oficio y, en su caso, modificadas en la audiencia inicial en la que, inclusive, podrán dictarse otras.
+Las resoluciones provisionales dictadas en la audiencia inicial sólo podrán modificarse en sentencia definitiva.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Suspensión de la audiencia
+Fecha para la celebración de la audiencia inicial

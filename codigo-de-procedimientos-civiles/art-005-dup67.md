@@ -1,4 +1,4 @@
-Artículo 5.26.- A las video o audiograbaciones y cualquier otro registro determinado por el juez, se les asignará un número consecutivo, seguido de las iniciales JOF y el número de expediente.
+Artículo 5.67.- En la misma audiencia, el juez analizará el convenio y señalará a los cónyuges los puntos que no se apeguen a derecho o que considere inequitativos, para que los corrijan.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Acta de audiencia
+Aprobación del convenio

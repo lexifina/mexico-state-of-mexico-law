@@ -1,4 +1,7 @@
-Artículo 5.19.- El juez podrá limitar el tiempo en el uso excesivo de la palabra; asumirá en todo momento la dirección del proceso y aplicará las correcciones disciplinarias que estime pertinentes, incluso ordenar el retiro de la sala de audiencias.
+Artículo 5.60.- Si las pruebas admitidas, por su naturaleza, fueron desahogadas y el juez no considera la recepción de otra, se recibirán alegatos y, en su caso, dictará sentencia.
+(ADICIONADO CON LOS ARTICULOS QUE LO INTEGRAN, G.G. 19 DE FEBRERO DE 2009)
+CAPITULO VI
+De la Audiencia Principal
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Disciplina en la Sala de Audiencias
+Desarrollo de la audiencia principal

@@ -1,7 +1,4 @@
-Artículo 5.60.- Si las pruebas admitidas, por su naturaleza, fueron desahogadas y el juez no considera la recepción de otra, se recibirán alegatos y, en su caso, dictará sentencia.
-(ADICIONADO CON LOS ARTICULOS QUE LO INTEGRAN, G.G. 19 DE FEBRERO DE 2009)
-CAPITULO IV
-De la Demanda
+Artículo 5.11.- Las diligencias de desahogo de pruebas que deban verificarse fuera del juzgado pero dentro de su ámbito de competencia territorial, serán presididas por el juez; se registrarán conforme a lo dispuesto para las audiencias en el juzgado.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-De la demanda, reconvención y su contestación
+Nulidad de una actuación

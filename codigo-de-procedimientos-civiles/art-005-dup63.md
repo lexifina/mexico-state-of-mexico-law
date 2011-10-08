@@ -1,4 +1,6 @@
-Artículo 5.22.- En caso de que una audiencia en distinto proceso, se prolongue y llegue la hora señalada para la verificación de otra, las personas citadas deberán permanecer en el juzgado hasta que se termine aquella, acorde al orden de audiencias a verificarse. El secretario fijará diariamente en la lista, las audiencias a realizarse, con la mención del número de expediente, si se trata de la audiencia inicial o principal y el nombre de las partes.
+Artículo 5.63.- Los incidentes se formularán con ofrecimiento de pruebas durante la audiencia y previa vista a la contraria, se resolverán en la propia audiencia.
+Sólo será admisible la documental y presuncional, salvo que el juez estime el desahogo de algún otro medio de prueba para mejor proveer.
+El incidente de nulidad no suspende la citación para sentencia.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Copia del registro de la audiencia
+Recepción de pruebas después de la audiencia principal

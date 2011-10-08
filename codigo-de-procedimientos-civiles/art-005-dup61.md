@@ -1,7 +1,10 @@
-Artículo 5.20.- En cada audiencia el secretario de acuerdos hará saber a las partes, comparecientes y público asistente, el orden, decoro y. respeto que deberán observar así como los nombres de los servidores públicos jurisdiccionales y demás participantes.
-Corresponde al secretario verificar la identidad de los que intervendrán en las audiencias; hará constar la inasistencia de alguna de las partes.
-Si una parte o los terceros llegan al recinto oficial después de iniciada la audiencia, podrán incorporarse a partir de ese momento, sin embargo, tendrán por precluido el derecho para hacer valer las manifestaciones y demás actos referentes a las actuaciones ya celebradas.
-El Secretario hará constar el momento de su incorporación.
+Artículo 5.61.- La audiencia principal se desarrollará de la siguiente manera:
+I. Abierta la audiencia, el secretario hará saber su objeto, llamará a las partes, peritos, testigos y demás personas que intervendrán, y precisará quiénes permanecerán en el recinto.
+II. Se recibirán los medios de prueba, de preferencia, en el orden que fueron ofrecidos.
+III. Desahogadas las probanzas, se formularán alegatos, por un tiempo prudente a juicio del juez, sin derecho a réplica.
+IV. El juez dictará la sentencia que contendrá los motivos y fundamentos del fallo; su lectura podrá efectuarse de manera resumida.
+De no dictar la sentencia en la audiencia, por la complejidad del asunto, se citará a las partes para oírla dentro de un plazo de diez días.
+De la sentencia quedará constancia íntegra por escrito; una copia, se pondrá a disposición de las partes en la secretaría respectiva.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Recesos
+Causas de suspensión de la audiencia

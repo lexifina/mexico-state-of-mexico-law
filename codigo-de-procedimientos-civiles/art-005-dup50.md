@@ -1,4 +1,9 @@
-Artículo 5.9.- Salvo lo dispuesto en el presente título, las peticiones de las partes se formularán oralmente durante las audiencias.
+Artículo 5.50.- La audiencia inicial comprenderá:
+I. Enunciación de la litis;
+II. Fase conciliatoria;
+III. Fase de depuración procesal;
+IV. Admisión y preparación de pruebas; y
+V. Revisión de las medidas provisionales.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Determinaciones orales
+Inasistencia de las partes
