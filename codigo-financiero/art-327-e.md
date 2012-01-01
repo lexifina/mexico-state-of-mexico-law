@@ -1,8 +1,2 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
-(REFORMADO PRIMER PARRAFO, G.G. 10 DE DICIEMBRE DE 2009)
-Artículo 327-E.- El Titular del Ejecutivo por conducto de la Secretaría, enviará a la Legislatura o a la Diputación Permanente cuando aquella se encuentre en receso, informes preliminares mensuales del comportamiento de los ingresos y egresos y, trimestralmente en abril, julio y octubre el avance programático-presupuestal del Poder Ejecutivo. Los informes mensual y trimestral preliminares correspondientes al cierre del ejercicio, se presentarán en el mes de marzo del año siguiente. En todos los casos, los informes reflejarán las incidencias presupuestales y programáticas sucedidas en el periodo que se reporta.
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
-(REFORMADO, G.G. 10 DE DICIEMBRE DE 2009)
-Se adicionará a dichos informes un apartado especial sobre la reasignaciones realizadas, describiendo con precisión los montos, programas, proyectos, metas, unidades ejecutoras y capítulos afectados en cada una de las operaciones, así como otro apartado para informar de las asignaciones de recursos excedentes en términos de lo dispuesto por el artículo 317 Bis A de este Código.
-(REFORMADO, G.G. 22 DE DICIEMBRE DE 2004)
-El Poder Ejecutivo a través de la Secretaría, comparecerá en las reuniones trimestrales de análisis y evaluación de los informes presentados, que celebren el Organo Superior de Fiscalización de la Legislatura y las Comisiones Legislativas respectivas.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+Artículo 327-E.- (DEROGADO, G.G. 16 DE DICIEMBRE DE 2011)

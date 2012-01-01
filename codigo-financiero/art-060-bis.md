@@ -1,2 +1,2 @@
-(ADICIONADO, G.G. 29 DE DICIEMBRE DE 2000)
-Artículo 60 Bis.- Se encuentran obligados al pago de este impuesto, las personas que reciban en comisión, consignación o transmitan para su enajenación vehículos automotores de más de diez años modelo de fabricación o ejercicio automotriz, anteriores al año fiscal de que se trate.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+Artículo 60 Bis.- (DEROGADO, G.G. 16 DE DICIEMBRE DE 2011)

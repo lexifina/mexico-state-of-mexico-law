@@ -1,5 +1,5 @@
 G.G. 1 DE SEPTIEMBRE DE 2011.
-DECRETO No. 336, POR EL QUE SE REFORMA EL LIBRO QUINTO DEL CODIGO ADMINISTRATIVO DEL ESTADO DE MEXICO.
+DECRETO NÚMERO 336, POR EL QUE SE REFORMA EL LIBRO QUINTO DEL CÓDIGO ADMINISTRATIVO DEL ESTADO DE MÉXICO.
 PRIMERO.- Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
 SEGUNDO.- Este Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "Gaceta del Gobierno".
 TERCERO.- Se derogan las disposiciones jurídicas que se opongan a los preceptos del presente Decreto.

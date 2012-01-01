@@ -4,7 +4,9 @@ Artículo 26-A.- El pago en especie de un crédito fiscal vía dación en pago p
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE CODIGO.
 (REFORMADO, G.G. 21 DE DICIEMBRE DE 2010)
 Esta forma de pago podrá efectuarse a través de servicios, bienes muebles e inmuebles, y cuando se haga en forma parcial, el remanente del importe del crédito fiscal actualizado y sus accesorios deberá cubrirse en efectivo, enterándose en una sola exhibición o en la modalidad de pago a plazos ya sea diferido o en parcialidades, en términos del artículo 32 de éste ordenamiento.
-La resolución que se emita al efecto no constituirá instancia ni procederá recurso alguno en su contra.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(REFORMADO, G.G. 16 DE DICIEMBRE DE 2011)
+La resolución que se emita al efecto no constituirá instancia ni procederá medio de defensa en su contra.
 En el caso de los bienes inmuebles se estará al valor que resulte del avalúo practicado por el IGECEM o por especialista en valuación inmobiliaria registrado ante el propio Instituto. Tratándose de bienes muebles, se aceptarán siempre y cuando se puedan incorporar al patrimonio del Estado o al de los municipios, y su valuación se determine por perito designado por autoridad fiscal.
 Todos los gastos que se generen por virtud de la dación en pago se pagarán por el contribuyente, pudiendo, en su caso, incorporarse a la liquidación total del crédito.
 Tratándose de servicios, la autoridad fiscal determinará los términos, las condiciones, y el monto hasta por el cual podrá aceptarse el ofrecimiento del deudor de pagar el crédito mediante la dación en pago de servicios, conforme a las reglas que al efecto publique la autoridad fiscal.

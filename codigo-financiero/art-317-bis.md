@@ -1,8 +1,9 @@
-(REFORMADO, G.G. 26 DE DICIEMBRE DE 2007)
-Artículo 317 Bis.- Los traspasos presupuestarios externos serán aquellos que se realicen entre programas o capítulos de gasto, debiendo la unidad ejecutora solicitar autorización de la Secretaría, y en el caso de los municipios a la Tesorería, en términos de las disposiciones aplicables.
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
-(REFORMADO, G.G. 10 DE DICIEMBRE DE 2009)
-La solicitud deberá contener la justificación necesaria, así como el dictamen de reconducción y actualización correspondiente que deberá incluir los montos, programas y proyectos afectados, la descripción del ajuste en sus metas y objetivos, así como las unidades ejecutoras afectadas y los capítulos de gasto que comprenden.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(REFORMADO PRIMER PÁRRAFO, G.G. 16 DE DICIEMBRE DE 2011)
+Artículo 317 Bis.- Los traspasos presupuestarios externos serán aquellos que se realicen entre programas o capítulos de gasto, debiendo la unidad ejecutora solicitar autorización de la Secretaría, en términos de las disposiciones aplicables.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(REFORMADO, G.G. 16 DE DICIEMBRE DE 2011)
+La solicitud deberá contener la justificación necesaria, así como el dictamen de reconducción y actualización programática presupuestal, correspondiente que deberá incluir los montos, programas y proyectos afectados, la descripción del ajuste en sus metas y objetivos, así como las unidades ejecutoras afectadas y los capítulos de gasto que comprenden.
 Para el caso de las entidades públicas, adicionalmente a la solicitud de traspasos externos, deberán contar con la aprobación del órgano de gobierno y presentarla a la Secretaría.
 Los traspasos presupuestarios autorizados deberán informarse dentro de los primeros diez días del mes siguiente en el que se realicen para ser integrados al informe que el Poder Ejecutivo rinda al Poder Legislativo, el que invariablemente deberá contener montos, los programas, unidades ejecutoras y capítulos afectados por cada uno de los traspasos realizados.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
@@ -17,3 +18,6 @@ La Secretaría deberá informar a la Legislatura de aquellos traspasos externos 
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, G.G. 18 DE DICIEMBRE DE 2008)
 No se podrán realizar traspasos presupuestarios del gasto de inversión en obras y acciones a los capítulos de gasto corriente.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(ADICIONADO, G.G. 16 DE DICIEMBRE DE 2011)
+En el caso de los municipios, la tesorería autorizará los traspasos presupuestarios externos con la revisión de la Unidad de Información, Planeación, Programación y Evaluación, o bien de la Unidad Administrativa o los servidores públicos de los municipios que tengan encomendada esta responsabilidad.

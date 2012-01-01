@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, G.G. 10 DE NOVIEMBRE DE 2010)
+(REFORMADO PRIMER PÁRRAFO, G.G. 10 DE NOVIEMBRE DE 2010)
 Artículo 4.6.- Los Municipios, a través de los Ayuntamientos, tendrán las siguientes atribuciones:
 (REFORMADA, G.G. 10 DE NOVIEMBRE DE 2010)
 I. Elaborar conforme a los lineamientos establecidos, el Programa Municipal de Turismo y hacerlo del conocimiento de la Secretaría;

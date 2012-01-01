@@ -1,5 +1,7 @@
-(ADICIONADO, G.G. 26 DE DICIEMBRE DE 2007)
-Artículo 47-H.- En el informe a que se refiere la fracción IV del quinto párrafo del artículo 47 B, en relación a la fracción III del artículo 47 C ambos del Código, el Contador Público deberá manifestar bajo protesta de decir verdad lo siguiente:
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(REFORMADO PRIMER PÁRRAFO, G.G. 16 DE DICIEMBRE DE 2011)
+Artículo 47 H.- En el informe a que se refiere la fracción IV del artículo 47 B, en relación a la fracción III del artículo 47 C ambos del Código, el Contador Público deberá manifestar bajo protesta de decir verdad lo siguiente:
+(ADICIONADA, G.G. 26 DE DICIEMBRE DE 2007)
 I. Que se emite con estricto apego a lo dispuesto en este Código y de conformidad con las reglas de carácter general que al efecto expidan las autoridades fiscales, respecto de toda la información y documentación del contribuyente relacionada con la determinación y pago del Impuesto sobre Erogaciones por Remuneraciones al Trabajo Personal.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCION, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (REFORMADA, G.G. 18 DE DICIEMBRE DE 2008)
@@ -7,7 +9,9 @@ II. Que dentro de las pruebas llevadas a cabo en cumplimento a las normas de aud
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCION, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (REFORMADA, G.G. 18 DE DICIEMBRE DE 2008)
 III. Que se verificó el cálculo y el pago de la contribución revisada en el dictamen a cargo del contribuyente o retenedor, detallando cualquier diferencia determinada o pago omitido resultante del dictamen formulado y las causas de su origen, independientemente de su importancia relativa.
+(ADICIONADA, G.G. 26 DE DICIEMBRE DE 2007)
 IV. Que se revisaron en función de su naturaleza y mecánica de aplicación utilizada en la determinación del Impuesto sobre Erogaciones por Remuneraciones al Trabajo Personal, las declaraciones normales y complementarias presentadas por el contribuyente y con las cifras dictaminadas respecto del ejercicio fiscal revisado, comprobando su estricto apego a las disposiciones fiscales respectivas establecidas en este Código, señalando en su caso, el incumplimiento en que haya incurrido el contribuyente en cuanto al cálculo y la base de pago de la contribución revisada.
+(ADICIONADA, G.G. 26 DE DICIEMBRE DE 2007)
 V. Que se revisó la información relativa a la aplicación de compensaciones, devoluciones, bonificaciones, estímulos fiscales o exenciones efectuadas en su caso por el contribuyente y que éstas se aplicaron en estricto apego a las disposiciones fiscales respectivas.
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCION, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADA, G.G. 18 DE DICIEMBRE DE 2008)

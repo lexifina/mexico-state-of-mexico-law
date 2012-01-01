@@ -6,6 +6,6 @@ II. El Análisis Costo-Beneficio;
 III. El impacto que en las finanzas públicas tendrían las obligaciones de pago que pretendan establecerse en el Contrato; y
 IV. La congruencia del Proyecto con las directrices establecidas en el Plan Estatal de Desarrollo.
 En las autorizaciones, la Secretaría podrá requerir que la Unidad Contratante exija una inversión de capital mínima en el Proyecto por parte del Proveedor. Lo anterior, sin perjuicio de que la Secretaría estará facultada para emitir lineamientos de carácter general sobre los montos de inversión de capital mínimos que se requerirán para cada tipo de Proyecto.
-(ADICIONADO CON LOS ARTICULOS QUE LO INTEGRAN, G.G. 21 DE AGOSTO DE 2006)
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, G.G. 21 DE AGOSTO DE 2006)
 CAPITULO SEGUNDO
 Planeación, Programación y Presupuestación

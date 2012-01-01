@@ -1,26 +1,33 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DE LA PRESENTE TARIFA, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE TARIFA, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (REFORMADO EN SU
-MONTO, G.G. 21 DE
-DICIEMBRE DE 2010)
+TARIFA, G.G. 16 DE
+DICIEMBRE DE 2011)
 TIPO DE VIVIENDAMONTO DE APORTACIÓN
 POR VIVIENDA
-DE INTERÉS SOCIAL$598
-POPULAR$895
-MEDIA$10,017
-RESIDENCIA$16,654
+DE INTERÉS SOCIAL$627
+POPULAR$938
+MEDIA$10,498
+RESIDENCIA$17,453
 RESIDENCIAL ALTO
-Y CAMPESTRE$28,412
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE PARRAFO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
-(REFORMADO PRIMER PARRAFO, G.G. 10 DE DICIEMBRE DE 2009)
-Artículo 216-F.- Estas Aportaciones para Obras de Impacto Vial deberán pagarse en efectivo, dentro de los diecisiete días siguientes al inicio de la vigencia de la primera licencia o primer permiso municipal de construcción que se expida con relación a la obra objeto del dictamen, salvo que cualquiera de dichos documentos se hubiesen notificado o entregado en fecha posterior, caso en el cual, se tomará esta última fecha para el cómputo del plazo para el pago, salvo que el inicio de la construcción, modificación o ampliación se realice en fecha posterior, caso en el cual se estará a lo establecido en el segundo párrafo de este artículo, debiendo enterarlas mediante declaración en la forma oficial aprobada; en especie, conforme al artículo 26 A de este ordenamiento legal o en obra para infraestructura vial, o bien convenirse el pago en efectivo ya sea diferido o en parcialidades, con otorgamiento de la garantía del interés fiscal conjuntamente con la solicitud de autorización, mismas que se deberán presentar dentro del plazo citado.
-(REFORMADO, G.G. 18 DE DICIEMBRE DE 2008)
-Para el caso de no iniciar la obra de manera simultánea o inmediata a la entrega de la licencia o permiso, se tomará la fecha de inicio de la obra como el inicio del plazo de los 17 días para el pago de la aportación. La fecha de inicio no podrá ser superior a la conclusión de la vigencia de la licencia o permiso.
-(REFORMADO, G.G. 18 DE DICIEMBRE DE 2008)
-En todo caso, deberá de verificarse el inicio de la obra con el acta de inspección que levante la autoridad municipal, en éstos supuestos, el término para realizar el pago, contará a partir de la fecha de inicio de obra que se haga constar en dicha acta.
-(REFORMADO, G.G. 18 DE DICIEMBRE DE 2008)
-Las aportaciones de mejoras para obras de impacto vial, serán recibidas en obra para infraestructura vial cuando ésta se ubique en el territorio del municipio o municipios en que se hubiere dado el hecho generador, o bien, en depósito al fideicomiso de aportaciones para obras de impacto vial, de ser convenido previamente por la Secretaría de Comunicaciones y el municipio o municipios afectados.
-(REFORMADO, G.G. 18 DE DICIEMBRE DE 2008)
-Para el caso de que la Secretaría de Comunicaciones y el municipio o municipios involucrados, convengan el depósito del importe correspondiente a la aportación de mejoras, se procederá conforme señala el primer párrafo del presente artículo; si se conviene la recepción del importe a través de obra pública, la misma deberá ser realizada por el contribuyente en el territorio del municipio o municipios que de lugar a la causación de la aportación de mejoras para obras de impacto vial, en los términos que señale al efecto el Libro Séptimo del Código Administrativo del Estado de México, bajo la supervisión coordinada de la Secretaría de Comunicaciones y el municipio o municipios respectivos, debiéndose realizar la entrega a la dependencia, organismo descentralizado o municipio correspondiente.
+Y CAMPESTRE$29,775
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(REFORMADO PRIMER PÁRRAFO, G.G. 16 DE DICIEMBRE DE 2011)
+Artículo 216 F.- Estas Aportaciones para Obras de Impacto Vial, deberán pagarse en efectivo, debiendo enterarlas mediante declaración en la forma oficial aprobada, en cualquiera de los siguientes supuestos:
+I. Dentro de los 10 días posteriores al en que surta efectos la notificación del dictamen de incorporación e impacto vial.
+En el caso, en que la obra se haya iniciado en fecha anterior a la emisión del dictamen, con independencia de las sanciones aplicables, el pago de la aportación deberá realizarse en el plazo señalado en el párrafo anterior.
+II. En caso de que la obra se inicie después de los 10 días posteriores al en que surtió efectos la notificación del dictamen de incorporación e impacto vial, la aportación será pagada a más tardar el día del inicio de la obra; lo cual deberá hacerse constar en un acta de inspección o constancia que a petición del contribuyente emita la autoridad competente.
+De no existir el acta o constancia, el plazo para pago se considerará invariablemente conforme a la fracción I de este artículo.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(DEROGADO SEGUNDO PÁRRAFO, G.G. 16 DE DICIEMBRE DE 2011)
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(REFORMADO, G.G. 16 DE DICIEMBRE DE 2011)
+El pago de estas aportaciones, podrá hacerse en especie, conforme al artículo 26 A de este ordenamiento legal o en obra para infraestructura vial, o bien convenirse el pago en efectivo, ya sea diferido o en parcialidades, con otorgamiento de la garantía del interés fiscal conjuntamente con la solicitud de autorización.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(REFORMADO, G.G. 16 DE DICIEMBRE DE 2011)
+Las aportaciones de mejoras para obras de impacto vial, serán recibidas en obra para infraestructura vial cuando ésta se ubique en el territorio del municipio o municipios en que se hubiere dado el hecho generador, de ser convenido previamente por la Secretaría de Comunicaciones y el municipio o municipios afectados o bien, en depósito al fideicomiso de aportaciones para obras de impacto vial.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(REFORMADO, G.G. 16 DE DICIEMBRE DE 2011)
+Para el caso de que la Secretaría de Comunicaciones y el municipio o municipios involucrados, convengan el depósito del importe correspondiente a la aportación de mejoras, se procederá conforme señala el párrafo anterior del presente artículo; si se conviene la recepción del importe a través de obra pública, la misma deberá ser realizada por el contribuyente en el territorio del municipio o municipios que dé lugar a la causación de la aportación de mejoras para obras de impacto vial, en los términos que señale al efecto el Libro Séptimo del Código Administrativo del Estado de México, bajo la supervisión coordinada de la Secretaría de Comunicaciones y el municipio o municipios respectivos, debiéndose realizar la entrega a la dependencia, organismo descentralizado o municipio correspondiente.
 (REFORMADO, G.G. 18 DE DICIEMBRE DE 2008)
 En caso de que los ingresos generados por las aportaciones de mejoras para obras de impacto vial, se hayan pagado y no exista convenio para su destino, se depositarán en el fideicomiso en un plazo no mayor a diez días hábiles contados a partir de su recepción, informándose al municipio municipios correspondientes en el mismo plazo.
 (REFORMADO, G.G. 18 DE DICIEMBRE DE 2008)

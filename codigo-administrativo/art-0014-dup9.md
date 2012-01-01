@@ -5,6 +5,6 @@ II. Las unidades administrativas de los ayuntamientos, conforme a los convenios 
 III. Las organizaciones públicas y las privadas;
 IV. Las instituciones académicas públicas y privadas;
 V. Las personas cuya colaboración se requiera.
-(ADICIONADO CON LOS ARTICULOS QUE LO INTEGRAN, G.G. 22 DE AGOSTO DE 2005)
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, G.G. 22 DE AGOSTO DE 2005)
 CAPITULO SEGUNDO
 Del Sistema Estatal de Información e Investigación

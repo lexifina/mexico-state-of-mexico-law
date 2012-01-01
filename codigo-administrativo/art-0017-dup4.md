@@ -11,6 +11,6 @@ VI. Publicidad Exterior.- A toda forma de difusión de mensajes mediante el uso 
 VII. Secretaría.- A la Secretaría de Comunicaciones del Estado de México;
 VIII. Transporte Masivo o de Alta Capacidad.- Al que se presta en vías específicas y/o confinadas, con equipos electrónicos de recaudo y despacho centralizado, con rodamiento técnico especializado y/o con equipo vehicular capaz de transportar a más de cien personas a la vez; incluyendo los accesos, vestíbulos, líneas de conducción, andenes, trenes, autobuses de alta capacidad, equipos electromecánicos, vías, carril confinado, talleres, depósitos de vehículos, locales técnicos, sistemas electrónicos de recaudo y despacho y demás construcciones e instalaciones destinadas al servicio público de transporte de alta capacidad;
 IX. Zona de Seguridad.- Al predio lindante con el derecho de vía de anchura variable determinada en las normas técnicas que emita la Secretaría de Comunicaciones, cuya preservación y restricción de uso, son necesarios para evitar riesgos a los usuarios de la infraestructura vial.
-(ADICIONADO CON LOS ARTICULOS QUE LO INTEGRAN, G.G. 31 DE MARZO DE 2011)
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, G.G. 31 DE MARZO DE 2011)
 CAPITULO SEGUNDO
 De las autoridades y sus atribuciones

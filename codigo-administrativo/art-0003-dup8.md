@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, G.G. 6 DE MARZO DE 2010)
+(REFORMADO PRIMER PÁRRAFO, G.G. 6 DE MARZO DE 2010)
 Artículo 3.8.- Son atribuciones de la Secretaría de Educación:
 I. Fortalecer la educación pública;
 II. Prestar los servicios de educación inicial básica, - incluyendo la indígena -, la especial, la normal y demás para la formación de maestros;
@@ -14,7 +14,7 @@ X. Autorizar el establecimiento, extensión y desarrollo de instituciones de edu
 XI. Garantizar y velar, en coordinación con los municipios, por la seguridad de los escolares y de los establecimientos educativos;
 XII. Promover que las instituciones que forman parte del sistema educativo estatal formulen y ejecuten, de acuerdo con sus posibilidades, programas que promuevan el otorgamiento de recompensas y estímulos que permitan reconocer el trabajo y méritos de los educadores, así como para el otorgamiento de becas económicas y de exención, y estímulos a los estudiantes que así lo requieran, considerando su situación socioeconómica y desempeño académico;
 XIII. Impulsar el establecimiento de centros de desarrollo infantil y de educación para adultos, con el apoyo de los municipios y de los beneficiarios de los servicios;
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCION, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCIÓN, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
 (REFORMADA, G.G. 12 DE MAYO DE 2010)
 XIV. Promover y favorecer la sana alimentación y la activación física, la educación para la salud, sexual, civismo, ética, fomento al respeto a la mujer, ambiental, las bellas artes y el deporte, así como la enseñanza de un idioma extranjero, preferentemente el inglés, en todos los tipos y niveles educativos;
 XV. Promover la incorporación de los estudiantes de las instituciones públicas y privadas a los servicios de atención médica;

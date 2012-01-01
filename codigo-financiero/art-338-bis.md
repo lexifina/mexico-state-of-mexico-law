@@ -1,0 +1,4 @@
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(ADICIONADO, G.G. 16 DE DICIEMBRE DE 2011)
+Artículo 338 Bis.- Para la devolución de pagos efectuados en forma indebida, duplicados, y/o en demasía; las dependencias, entidades públicas, unidades administrativas, personas físicas o jurídicas colectivas, deberán presentar ante la Dirección General de Tesorería por conducto de la autoridad ejecutora el oficio original en el que se fundamente los motivos y la autorización respectiva del importe a reintegrar.
+La devolución del pago, se efectuará solamente al titular del mismo, quien deberá presentar además identificación oficial vigente; o bien, a su representante legal, quien deberá acreditarse como tal, única y exclusivamente mediante poder notarial, o resolución judicial, ya que no se realizarán devoluciones a beneficiarios que no acrediten su personalidad jurídica.

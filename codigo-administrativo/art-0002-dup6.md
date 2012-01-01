@@ -1,4 +1,4 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER ARTICULO SEGUNDO TRANSITORIO DEL DECRETO QUE MODIFICA EL CODIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
 (ADICIONADO, G.G. 6 DE OCTUBRE DE 2008)
 Artículo 2.5 Bis.- Corresponde al Instituto de Salud del Estado de México, sin perjuicio de los que dispongan su Reglamento y otros ordenamientos aplicables:
 l. Desarrollar investigación permanente y sistemática de los riesgos y daños para la salud de la población, originados por toda fuente de emisión contaminante al medio ambiente.

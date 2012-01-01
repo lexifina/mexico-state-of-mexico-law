@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, G.G. 21 DE AGOSTO DE 2006)
+(REFORMADO PRIMER PÁRRAFO, G.G. 21 DE AGOSTO DE 2006)
 Artículo 12.4.- Se considera obra pública todo trabajo que tenga por objeto principal construir, instalar, ampliar, adecuar, remodelar, restaurar, conservar, mantener, modificar o demoler bienes inmuebles propiedad del Estado, de sus dependencias y entidades y de los municipios y sus organismos con cargo a recursos públicos estatales o municipales.
 (ADICIONADO, G.G. 2 DE SEPTIEMBRE DE 2003)
 Quedan comprendidos dentro de la obra pública:

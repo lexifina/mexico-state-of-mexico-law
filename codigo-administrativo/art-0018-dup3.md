@@ -13,6 +13,6 @@ X. Cumplirán con las previsiones correspondientes a protección civil, ingenier
 XI. Las que se ubiquen en zonas de valor arqueológico, histórico, artístico y cultural, deberán sujetarse a las restricciones que señalen el Instituto Nacional de Antropología e Historia o el Instituto Nacional de Bellas Artes y Literatura según corresponda y cumplir con las normas que señalen los ordenamientos legales aplicables;
 XII. Las dedicadas a servicios de radiotelecomunicación o similares y anuncios publicitarios que requieran elementos estructurales, fomentarán su integración al contexto y se ajustarán a las disposiciones aplicables; y
 XIII. Procurarán la utilización de tecnologías a efecto de lograr un aprovechamiento sustentable de los recursos naturales y el cuidado de la biosfera.
-(ADICIONADO CON LOS ARTICULOS QUE LO INTEGRAN, G.G. 9 DE SEPTIEMBRE DE 2011)
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, G.G. 9 DE SEPTIEMBRE DE 2011)
 CAPITULO SEGUNDO
 De las autoridades

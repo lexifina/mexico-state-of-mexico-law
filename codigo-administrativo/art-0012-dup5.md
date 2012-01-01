@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, G.G. 21 DE AGOSTO DE 2006)
+(REFORMADO PRIMER PÁRRAFO, G.G. 21 DE AGOSTO DE 2006)
 Artículo 12.5.- Se consideran servicios relacionados con la obra pública, los trabajos que tengan por objeto concebir, diseñar y calcular los elementos que integran un proyecto de obra pública; las investigaciones, estudios, asesorías y consultorías que se vinculen con los actos que regula este Libro; la dirección y supervisión de la ejecución de las obras y los estudios que tengan por objeto principal rehabilitar, corregir o incrementar la eficiencia de las instalaciones con excepción de los trabajos regulados por el Libro Décimo Sexto de este Código.
 (ADICIONADO, G.G. 2 DE SEPTIEMBRE DE 2003)
 Quedan comprendidos dentro de los servicios relacionados con la obra pública:

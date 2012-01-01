@@ -1,5 +1,5 @@
 G.G. 6 DE SEPTIEMBRE DE 2010.
-DECRETO NUMERO 147, POR EL QUE SE ADICIONA UN TITULO DECIMO AL LIBRO PRIMERO DEL CODIGO ADMINISTRATIVO DEL ESTADO DE MEXICO, RECORRIENDOSE LOS ACTUALES DECIMO, DECIMO PRIMERO Y DECIMO SEGUNDO.
+DECRETO NÚMERO 147, POR EL QUE SE ADICIONA UN TITULO DECIMO AL LIBRO PRIMERO DEL CÓDIGO ADMINISTRATIVO DEL ESTADO DE MÉXICO, RECORRIÉNDOSE LOS ACTUALES DÉCIMO, DÉCIMO PRIMERO Y DÉCIMO SEGUNDO.
 PRIMERO.- Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
 SEGUNDO.- Este Decreto, entrará en vigor a los sesenta días naturales siguientes a su publicación en el Periódico Oficial "Gaceta del Gobierno".
 TERCERO.- El Titular del Poder Ejecutivo en un plazo de 90 días a partir de su publicación en el Periódico Oficial "Gaceta del Gobierno" emitirá los Reglamentos correspondientes para el cumplimiento de este Decreto.

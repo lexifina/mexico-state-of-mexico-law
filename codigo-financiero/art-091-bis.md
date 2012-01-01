@@ -19,8 +19,8 @@ Para efectos del presente inciso, se entenderá por auto antiguo, a aquel vehíc
 F). (DEROGADO, G.G. 18 DE DICIEMBRE DE 2008) (REPUBLICADO, G.G. 1 DE ENERO DE 2011)
 Los derechos previstos en esta fracción se pagarán previamente a la prestación de los servicios o en su caso, dentro de los días considerados dentro del permiso provisional autorizado.
 II. Por refrendo anual:
-(REFORMADO, G.G. 1 DE SEPTIEMBRE DE 2011)
-A). Para vehículos de uso particular y discapacitados.$332
+(REFORMADO, G.G. 1 DE SEPTIEMBRE DE 2011) (REFORMADO EN SU TARIFA, G.G. 16 DE DICIEMBRE DE 2011)
+A). Para vehículos de uso particular y discapacitados.$395
 B). Para vehículos particulares de carga comercial. $945
 C). Para remolques:
 l. Con capacidad de carga de hasta 1,000 Kgs. $1,316
