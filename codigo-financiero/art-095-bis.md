@@ -1,3 +1,3 @@
-(ACTUALIZADO EN SUS CUOTAS Y TARIFAS [N. DE E. ADICIONADO], G.G. 1 DE ENERO DE 2010)
+(ACTUALIZADO EN SUS CUOTAS Y TARIFAS, G.G. 1 DE ENERO DE 2012)
 Artículo 95 Bis.- La Comisión del Agua del Estado de México, para efectos de las solicitudes de retención y pagos de derechos y aprovechamientos por concepto de agua, a que se refieren los artículos 51 de la Ley de Coordinación Fiscal y 230 B de este ordenamiento, deberá entregar a la Comisión Nacional del Agua durante los primeros 10 días de cada mes, un informe sobre los volúmenes de agua suministrada a los municipios, incluyendo sus organismos operadores de agua.
 En caso de que la Comisión Nacional del Agua considere que existe alguna diferencia entre los volúmenes suministrados o adeudos informados, lo hará del conocimiento de la Comisión del Agua del Estado de México a fin de que en su caso se lleven al cabo los ajustes correspondientes.
