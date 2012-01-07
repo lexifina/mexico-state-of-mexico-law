@@ -1,0 +1,5 @@
+(ADICIONADO, G.G. 6 DE ENERO DE 2012)
+Artículo 166 ter.- La pena señalada en el artículo anterior se agravará en los siguientes términos:
+I. Si el delito es cometido por servidores públicos de Instituciones de Seguridad Pública u Órganos Jurisdiccionales del Estado de México, se aumentará la pena hasta una mitad más de la que corresponda. Además, se impondrá la destitución definitiva del empleo, cargo o comisión públicos e inhabilitación para desempeñar otro de 5 a 15 años;
+II. Tratándose de miembros de Instituciones Policiales de la Federación, del Distrito Federal o de otros (sic) Entidades Federativas, se aumentará la pena hasta una mitad más de la que corresponda. Además se impondrá inhabilitación para desempeñar igual o similar empleo, cargo o comisión de 5 a 15 años; y
+III. Si el delito fuera cometido por ex servidores públicos de Instituciones de Seguridad Pública u Órganos Jurisdiccionales de la Federación, del Distrito Federal, de los Estados o los Municipios, o de ex integrantes de las fuerzas armadas se aumentará la pena hasta una tercera parte más de la que corresponda.
