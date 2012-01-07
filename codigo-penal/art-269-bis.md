@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, G.G. 18 DE MARZO DE 2011)
+(REFORMADO PRIMER PÁRRAFO, G.G. 18 DE MARZO DE 2011)
 Artículo 269 BIS.- Comete el delito de acoso sexual, quien con fines de lujuria asedie reiteradamente a persona de cualquier sexo, aprovechándose de cualquier circunstancia que produzca desventaja, indefensión o riesgo inminente, para la víctima.
 (ADICIONADO, G.G. 18 DE MARZO DE 2011)
 También incurre en acoso, quien, con fines eróticos o sexuales, produzca, fije, grabe, o videograbe imágenes, voz o sonidos de un menor de edad, o bien, de cualquier persona, sin su consentimiento, en instalaciones o vehículos destinados al transporte público de pasajeros.

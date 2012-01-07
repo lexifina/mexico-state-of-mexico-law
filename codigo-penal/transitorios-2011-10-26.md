@@ -1,5 +1,5 @@
 G.G. 26 DE OCTUBRE DE 2011.
-DECRETO NUMERO 362 POR EL QUE SE REFORMA LA FRACCION II Y SE ADICIONA LA FRACCION IV RECORRIENDOSE EN SU ORDEN LA ACTUAL PARA PASAR A SER V DEL ARTICULO 132 DEL CODIGO PENAL DEL ESTADO DE MEXICO.
+DECRETO NÚMERO 362 POR EL QUE SE REFORMA LA FRACCIÓN II Y SE ADICIONA LA FRACCIÓN IV RECORRIÉNDOSE EN SU ORDEN LA ACTUAL PARA PASAR A SER V DEL ARTÍCULO 132 DEL CÓDIGO PENAL DEL ESTADO DE MÉXICO.
 ARTÍCULO PRIMERO.- Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
 ARTÍCULO SEGUNDO.- La presente Ley entrará en vigor a los noventa días hábiles siguientes a la publicación del presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
 ARTÍCULO TERCERO.- La Legislatura del Estado de México deberá destinar la partida presupuestal necesaria para la creación de la Defensoría para Víctimas y Ofendidos del Delito del Estado de México.

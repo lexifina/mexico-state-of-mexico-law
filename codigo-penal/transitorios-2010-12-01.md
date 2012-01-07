@@ -1,5 +1,5 @@
 G.G. 1 DE DICIEMBRE DE 2010.
-DECRETO NUMERO 232, POR EL QUE SE REFORMAN LOS ARTICULOS 62; 97 EN SUS PARRAFOS PRIMERO Y SEGUNDO. SE ADICIONAN UN CUARTO PARRAFO AL ARTICULO 97; LOS PARRAFOS TERCERO, CUARTO Y QUINTO AL ARTICULO 237 Y LOS PARRAFOS SEGUNDO, TERCERO Y CUARTO AL ARTICULO 309 DEL CODIGO PENAL DEL ESTADO DE MEXICO.
+DECRETO NÚMERO 232, POR EL QUE SE REFORMAN LOS ARTÍCULOS 62; 97 EN SUS PÁRRAFOS PRIMERO Y SEGUNDO. SE ADICIONAN UN CUARTO PÁRRAFO AL ARTÍCULO 97; LOS PÁRRAFOS TERCERO, CUARTO Y QUINTO AL ARTÍCULO 237 Y LOS PÁRRAFOS SEGUNDO, TERCERO Y CUARTO AL ARTÍCULO 309 DEL CÓDIGO PENAL DEL ESTADO DE MÉXICO.
 PRIMERO.- Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno" del Estado de México.
 SEGUNDO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "Gaceta del Gobierno" del Estado de México.
 TERCERO.- Los procesos penales por delitos respecto de los cuales el presente Decreto establece que el Ministerio Público se abstendrá de ejercer la acción penal, serán sobreseídos conforme a las disposiciones aplicables, sin perjuicio de que las partes hagan valer sus derechos a través de los Oficiales Mediadores-Conciliadores de los Municipios, o en la vía civil.

@@ -1,5 +1,5 @@
 G.G. 10 DE AGOSTO DE 2004.
-DECRETO NO. 55 QUE ADICIONA LA FRACCIÓN XI AL ARTICULO 136 DEL CODIGO PENAL PARA EL ESTADO DE MEXICO.
+DECRETO NO. 55 QUE ADICIONA LA FRACCIÓN XI AL ARTICULO 136 DEL CÓDIGO PENAL PARA EL ESTADO DE MÉXICO.
 PRIMERO.- Publíquese la presente Ley en el Periódico Oficial. "Gaceta del Gobierno".
 SEGUNDO.- La presente ley entrará en vigor a los noventa días siguientes de su publicación en el Periódico Oficial, "Gaceta del Gobierno".
 TERCERO.- Se abroga la Ley del Registro de Antecedentes Penales y Administrativos del Estado de México.
