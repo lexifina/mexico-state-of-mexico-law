@@ -1,4 +1,4 @@
-P.O. 27 DE FEBRERO DE 1995
+G.G. 27 DE FEBRERO DE 1995.
 PRIMERO.- Publíquese el presente decreto en la Gaceta del Gobierno.
 SEGUNDO.- Este decreto entrará en vigor el día 2 de marzo de 1995.
 TERCERO.- La Legislatura que resulte electa el segundo domingo de noviembre de 1996, iniciará su ejercicio constitucional el 5 de diciembre del mismo año y concluirá el 4 de septiembre de 2000.

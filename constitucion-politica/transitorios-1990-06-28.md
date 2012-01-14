@@ -1,2 +1,2 @@
-P.O. 28 DE JUNIO DE 1990
+G.G. 28 DE JUNIO DE 1990.
 ARTICULO UNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en la "Gaceta del Gobierno" del Estado.

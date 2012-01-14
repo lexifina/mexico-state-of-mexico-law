@@ -1,4 +1,4 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER ARTICULO SEGUNDO TRANSITORIO DEL DECRETO QUE MODIFICA LA CONSTITUCION.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO SEGUNDO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (REFORMADO, G.G. 30 DE SEPTIEMBRE DE 2009)
 Artículo 104-Bis.- El proceso penal será acusatorio, adversarial y oral. Se regirá por los principios de publicidad, contradicción, concentración, continuidad e inmediación, conforme a la ley respectiva.
 La imposición de las penas, su modificación y duración son propias y exclusivas del Poder Judicial del Estado.
