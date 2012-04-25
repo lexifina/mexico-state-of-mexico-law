@@ -20,6 +20,6 @@ El juez podrá interrogar al testigo, de no hacerlo, le permitirá que se retire
 IV. las partes deberán presentar en la audiencia principal los medios de convicción que ofrezcan, salvo que al ofrecerlos manifiesten, bajo protesta de decir verdad, la imposibilidad de hacerlo, en este caso, a petición de parte el juez acordará lo conducente.
 V. Las documentales supervenientes se ofrecerán y desahogarán a más tardar en la audiencia principal y para ser admitidas se manifestará bajo protesta de decir verdad que tienen tal carácter, ya sea por ser de fecha posterior a los escritos de fijación de la litis, o bien, por tener conocimiento de su existencia después de la audiencia inicial, las que se recibirán con vista a la contraria.
 VI. los peritos y testigos podrán retirarse del recinto previa autorización del juez.
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
 Oposición al desahogo de pruebas

@@ -1,4 +1,4 @@
-CODIGO DE PROCEDIMIENTOS CIVILES DEL ESTADO DE MEXICO
+CÓDIGO DE PROCEDIMIENTOS CIVILES DEL ESTADO DE MÉXICO
 Código publicado en el Gaceta del Gobierno del Estado de México, el lunes 1 de julio del 2002.
 PODER EJECUTIVO DEL ESTADO
 ARTURO MONTIEL ROJAS, Gobernador Constitucional del Estado Libre y Soberano de México, a sus habitantes sabed:

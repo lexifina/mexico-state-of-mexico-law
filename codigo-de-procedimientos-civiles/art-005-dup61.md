@@ -5,6 +5,6 @@ III. Desahogadas las probanzas, se formularán alegatos, por un tiempo prudente 
 IV. El juez dictará la sentencia que contendrá los motivos y fundamentos del fallo; su lectura podrá efectuarse de manera resumida.
 De no dictar la sentencia en la audiencia, por la complejidad del asunto, se citará a las partes para oírla dentro de un plazo de diez días.
 De la sentencia quedará constancia íntegra por escrito; una copia, se pondrá a disposición de las partes en la secretaría respectiva.
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
 Causas de suspensión de la audiencia
