@@ -12,6 +12,8 @@ b) Cuando menos el treinta y tres por ciento de los miembros de la Legislatura;
 c) El equivalente al treinta y tres por ciento de los integrantes de un Ayuntamiento del Estado;
 (REFORMADO, G.G. 29 DE MARZO DE 2011)
 d) La o el Presidente de la Comisión de Derechos Humanos del Estado de México, en materia de derechos humanos.
+(ADICIONADA, G.G. 3 DE MAYO DE 2012)
+IV. La Sala Constitucional conocerá de los recursos ordinarios en contra de resoluciones judiciales definitivas en donde se inapliquen normas en ejercicio del control difuso de la constitucionalidad o de la convencionalidad, en los términos que señale la ley.
 Las resoluciones dictadas en los procesos a que se refiere este artículo, que declaren la invalidez de disposiciones generales del Poder Ejecutivo, del Poder Legislativo o de los Municipios, tendrán efectos generales cuando sean aprobados cuando menos por cuatro votos de los integrantes de la Sala Constitucional.
 Las resoluciones que no fueren aprobadas por cuatro de cinco votos, tendrán efectos particulares.
 Contra la resolución emitida por la Sala Constitucional en primera instancia, podrá interponer el recurso de revisión, mismo que será resuelto por la propia Sala, y para su aprobación se requerirá de unanimidad de votos.
