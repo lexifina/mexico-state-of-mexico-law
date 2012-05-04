@@ -1,2 +1,1 @@
-Artículo 4.91.- El divorcio sólo puede ser demandado por el cónyuge que no haya dado causa a él, dentro de los seis meses siguientes al día en que tenga conocimiento de los hechos en que se funde la demanda, excepto en causas de tracto sucesivo.
-Caducidad de la acción de divorcio
+Artículo 4.91.- El divorcio podrá pedirse por uno de los cónyuges, con la sola manifestación de la voluntad de no querer continuar con el matrimonio, después de un año de haberse celebrado.

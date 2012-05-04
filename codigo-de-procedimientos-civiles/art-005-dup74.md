@@ -1,4 +1,4 @@
-Artículo 5.73.- Se aplicarán en lo conducente las disposiciones del divorcio por mutuo consentimiento.
+Artículo 5.73.- (DEROGADO, G.G. 3 DE MAYO DE 2012)
 (ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, G.G. 19 DE FEBRERO DE 2009)
 CAPITULO VIII
 De los Recursos

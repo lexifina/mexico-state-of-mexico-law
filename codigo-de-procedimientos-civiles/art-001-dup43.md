@@ -14,7 +14,8 @@ VIII. En los procedimientos no contenciosos, el del domicilio del que promueve, 
 IX. En los asuntos relativos a la tutela, el de la residencia de los menores o incapacitados, para la designación del tutor, y en los demás casos el del domicilio de éste;
 X. En lo relativo a suplir el consentimiento de quien ejerce la patria potestad, o impedimentos para contraer matrimonio, el del domicilio de los pretendientes;
 XI. Para lo relativo al matrimonio y cuestiones familiares, el del domicilio conyugal o familiar;
-XII. En los juicios de divorcio, el del último domicilio de los cónyuges, y en caso de abandono de hogar, el del domicilio del cónyuge abandonado;
+(REFORMADA, G.G. 3 DE MAYO DE 2012)
+XII. En los procedimientos de divorcio, el del último domicilio donde hicieron vida en común;
 XIII. En los casos de alimentos, el del domicilio del acreedor alimentario;
 (ADICIONADA, G.G. 16 DE ENERO DE 2007)
 XIV. En los procedimientos de violencia familiar, el del domicilio del receptor de violencia.
