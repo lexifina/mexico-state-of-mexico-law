@@ -1,3 +1,4 @@
-Artículo 3.9.- Tienen obligación de declarar el nacimiento, el padre y/o la madre o quien ejerza la patria potestad sobre el menor, dentro del primer año de ocurrido aquél.
+(REFORMADO PRIMER PÁRRAFO, G.G. 15 DE MAYO DE 2012)
+Artículo 3.9.- Tienen obligación de declarar el nacimiento, el padre y/o la madre o quien ejerza la patria potestad sobre el menor, dentro del primer año de ocurrido aquél, a reserva de las disposiciones contenidas en el artículo 3.4.
 Los médicos, parteras, matronas o quien hubiere asistido el parto, tienen la obligación de extender la constancia relativa al nacimiento, de acuerdo a la legislación respectiva.
 Contenido del acta de nacimiento
