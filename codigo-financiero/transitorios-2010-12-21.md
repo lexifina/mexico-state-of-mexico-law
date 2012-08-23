@@ -5,7 +5,7 @@ TERCERO.- Se ratifican las retenciones efectuadas al amparo de los artículos 23
 CUARTO.- Se reforma el artículo Tercero Transitorio del Decreto número 123 de la H. LVI Legislatura del Estado de México, publicado en el Periódico Oficial "Gaceta del Gobierno" de fecha 27 de marzo de 2008, reformado mediante Decreto número 233 de la H. "LVI" Legislatura del Estado de México, publicado en el Periódico Oficial "Gaceta del Gobierno" de fecha 18 de diciembre de 2008 y Decreto número 25 de la H. "LVII" legislatura del Estado de México, publicado en Periódico Oficial "Gaceta del Gobierno" de fecha 10 de diciembre de 2009, para quedar como sigue:
 TERCERO.-.
 EJERCICIO FISCALPORCENTAJE MÁXIMO
-DE RETENCiÓN DEL
+DE RETENCIÓN DEL
 FORTAMUN
 2008.
 2009...

@@ -1,6 +1,4 @@
 CÓDIGO FINANCIERO DEL ESTADO DE MÉXICO Y MUNICIPIOS
-ÚLTIMA ACTUALIZACIÓN POR ACUERDO EN QUE SE DAN A CONOCER LAS CUOTAS Y TARIFAS PARA EL EJERCICIO FISCAL DE 2012: 1 DE ENERO DE 2012.
-N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN LA GACETA DEL GOBIERNO EL 18 DE MAYO DE 2012.
 Código publicado en la Gaceta del Gobierno del Estado de México, el martes 9 de marzo de 1999.
 CESAR CAMACHO QUIROZ, Gobernador del Estado Libre y Soberano de México, a sus habitantes, sabed:
 Que la Legislatura del Estado, ha tenido a bien aprobar lo siguiente:
