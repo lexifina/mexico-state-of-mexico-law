@@ -1,0 +1,4 @@
+G.G. 24 DE AGOSTO DE 2012.
+DECRETO NÚMERO 493, POR EL QUE SE REFORMAN LOS ARTÍCULOS 200 Y 227 EN SU FRACCIÓN I Y SE ADICIONA AL TÍTULO TERCERO EL CAPÍTULO TERCERO BIS DENOMINADO "DE LA ACCIÓN POPULAR" AL CUAL SE ADICIONAN LOS ARTÍCULOS 284 A, 284 B, 284 C Y 284 D DEL CÓDIGO DE PROCEDIMIENTOS ADMINISTRATIVOS DEL ESTADO DE MÉXICO.
+PRIMERO.- Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
+SEGUNDO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "Gaceta del Gobierno".
