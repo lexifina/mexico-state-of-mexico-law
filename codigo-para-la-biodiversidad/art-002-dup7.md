@@ -19,4 +19,6 @@ V. Aprobar e instrumentar el ordenamiento ecológico del Territorio del Estado c
 VI. Celebrar convenios de coordinación con la Federación en las materias de este Libro para realizar actividades o ejercer facultades en bienes y zonas de jurisdicción federal de conformidad con las disposiciones aplicables, y celebrar acuerdos y convenios con Ayuntamientos sobre acciones de beneficio ambiental y ecológico;
 VII. Promover la concertación de acciones con los sectores social y privado en la materia del presente Libro;
 VIII. Imponer en el ámbito de su competencia a través de las dependencias y entidades que correspondan las sanciones administrativas que contempla este Libro; y
-IX. Las demás acciones que le confieran otras disposiciones aplicables.
+(ADICIONADA, G.G. 30 DE AGOSTO DE 2012)
+IX. Diseñar e implementar políticas públicas que coadyuven a disminuir los efectos del cambio climático; y
+X. Las demás acciones que le confieran otras disposiciones aplicables.

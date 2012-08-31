@@ -18,7 +18,8 @@ XIV. Prevenir y controlar la contaminación a la atmósfera en todo el territori
 XV. Establecer medidas y programas para el control y prevención de la contaminación por ruido, vibraciones, energía térmica, lumínica, radiaciones electromagnéticas y olores que puedan dañar a la biodiversidad, el equilibrio ecológico o al medio ambiente dentro del territorio del Estado;
 XVI. Coordinarse con las dependencias y entidades estatales o municipales para prever las acciones a realizar sobre contaminación de las aguas acorde a los lineamientos que en esta materia dicte la dependencia federal normativa;
 XVII. Regular los sistemas de recolección, transporte, almacenamiento, manejo, tratamiento y disposición final de los residuos sólidos urbanos o de manejo especial que no estén considerados como peligrosos estableciendo las normas técnicas estatales y criterios a que se deben sujetar, en el diseño, construcción y operación de las instalaciones destinadas a la disposición final de los residuos;
-XVIII. Expedir los criterios y normas técnicas estatales para la preservación, conservación, remediación y restauración de la calidad ambiental, observando los estándares establecidos por la autoridad federal para asegurar la calidad del ambiente;
+(REFORMADA, G.G. 30 DE AGOSTO DE 2012)
+XVIII. Expedir los criterios y normas técnicas estatales para la preservación, conservación, remediación y restauración de la calidad ambiental, incluyendo lo relativo a los efectos del cambio climático, observando los estándares establecidos por la autoridad federal para asegurar la calidad del ambiente;
 XIX. La emisión de recomendaciones a las autoridades competentes en materia ambiental con el propósito de promover y exigir el cumplimiento del presente Código;
 XX. Atender los asuntos que afecten la biodiversidad, el equilibrio ecológico o al medio ambiente en dos o más Municipios del Estado;
 XXI. Participar en emergencias y contingencias ambientales conforme a las políticas y programas de protección civil que al efecto se establezcan;
@@ -37,7 +38,8 @@ XXXIII. Apoyar a organismos sociales en la obtención y administración de recur
 XXXIV. Supervisar la adecuada conservación, preservación y aprovechamiento sostenible de los elementos y recursos naturales desde su extracción hasta su transformación en bienes ambientales, vigilando la utilización racional de los elementos de la naturaleza cuando sean insumos en procesos de transformación y la utilización de los subproductos en el ámbito de su competencia;
 XXXV. Promover el establecimiento de estímulos e incentivos a la población que desarrolle y fomente actividades de protección ambiental;
 XXXVI. Organizar el Sistema Estatal de Atención a la Denuncia Ciudadana Ambiental;
-XXXVII. Fomentar la incorporación en los distintos niveles educativos programas de contenido ecológico y de educación ambiental, de investigación científica y tecnológica pudiendo crear institutos de estudios ambientales y organismos necesarios para su cumplimiento;
+(REFORMADA, G.G. 30 DE AGOSTO DE 2012)
+XXXVII. Fomentar la incorporación, en los distintos niveles educativos, de programas de contenido ecológico y de educación ambiental, de investigación científica y tecnológica, que incluyan el tema del cambio climático para la prevención y difusión de sus efectos, pudiendo crear institutos de estudios ambientales y organismos necesarios para su cumplimiento;
 XXXVIII. Imponer las sanciones correspondientes por infracciones a este Libro en el ámbito de su competencia;
 XXXIX. Hacer cumplir el presente Libro, su Reglamento y demás ordenamientos aplicables; y
 (ADICIONADA, P.O. 31 DE MARZO DE 2011)
