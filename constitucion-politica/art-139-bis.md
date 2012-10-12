@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 11 DE OCTUBRE DE 2012)
+Artículo 139 Bis.- La Mejora Regulatoria es un instrumento de desarrollo. Es obligatorio para el Estado y los Municipios, sus dependencias y organismos descentralizados, implementar de manera permanente, continua y coordinada sus normas, actos, procedimientos y resoluciones, ajustándose a las disposiciones que establece la ley reglamentaria, a fin de promover el desarrollo económico del Estado de México.
