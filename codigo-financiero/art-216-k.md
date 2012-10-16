@@ -1,4 +1,4 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (REFORMADO, G.G. 18 DE DICIEMBRE DE 2008)
 Artículo 216-K.- El fideicomiso constituido al efecto contará con un Comité Técnico, que deberá estar integrado con un representante de:
 I. La Secretaría de Desarrollo Agropecuario;

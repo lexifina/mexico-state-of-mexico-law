@@ -7,7 +7,7 @@ A). Se amonestará al Contador Público cuando:
 1. Presente incompleta la información que deberá contener el dictamen de conformidad con este Código.
 2. No cumpla con lo dispuesto en los incisos A) y C) de la fracción I del artículo 48-
 B de este Código, sin justificación que lo motive.
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE NUMERAL, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE NUMERAL, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (REFORMADO, G.G. 18 DE DICIEMBRE DE 2008)
 3. No cumpla con lo establecido en el segundo o tercer párrafo del artículo 47 D de este Código, en cuyo caso la amonestación será por cada bimestre que transcurra sin cumplir con cualquiera de esas obligaciones.
 B). Se suspenderán temporalmente los efectos de su registro para formular dictamen por dos años cuando:
@@ -18,7 +18,7 @@ En el caso de que el Contador Público se encuentre sujeto a proceso por la comi
 C). Se cancelará definitivamente su registro para formular dictamen, revocándose la autorización otorgada, cuando:
 1. Incurra en reincidencia al acumular tres suspensiones con motivo de la violación a las disposiciones fiscales que rigen la formulación del dictamen.
 2. No exhiba a requerimiento de la autoridad fiscal competente los papeles de trabajo a que se refiere el inciso B) de la fracción I del artículo 48-B de éste Código.
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE NUMERAL, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE NUMERAL, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (REFORMADO, G.G. 18 DE DICIEMBRE DE 2008)
 3. Formule dictamen estando impedido en términos del artículo 47 E de este Código.
 4. Haya participado en la comisión de delitos de carácter fiscal o delitos intencionales que ameriten pena corporal, respecto de los cuales se haya dictado sentencia definitiva que lo declare culpable.

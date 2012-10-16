@@ -1,3 +1,3 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE CODIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE CÓDIGO.
 (REFORMADO, G.G. 21 DE DICIEMBRE DE 2010)
 Artículo 304 Bis.- El Ejecutivo del Estado por conducto de la Secretaría de Finanzas deberá enviar a la Legislatura o a la Diputación Permanente en los recesos de ésta, a más tardar 30 días hábiles contados a partir de la publicación del Presupuesto de Egresos del Gobierno del Estado de México del ejercicio fiscal correspondiente, la actualización de los anexos del Presupuesto, con excepción de aquellos que refieran recursos federales que incluirán las modificaciones respectivas derivadas de los montos definitivos aprobados en el Decreto correspondiente.

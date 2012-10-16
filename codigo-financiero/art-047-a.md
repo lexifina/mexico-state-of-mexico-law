@@ -1,9 +1,9 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (REFORMADO, G.G. 18 DE DICIEMBRE DE 2008)
 Artículo 47-A.- Las personas físicas y jurídico colectivas que estén obligadas a determinar el Impuesto sobre Erogaciones por Remuneraciones al Trabajo Personal, deberán dictaminar su determinación y pago por el ejercicio fiscal inmediato anterior, por medio de Contador Público autorizado, cuando en dicho ejercicio fiscal se ubiquen en cualquiera de los supuestos que se mencionan para cada una de ellas, en los términos siguientes:
 I. Las que hayan realizado pagos por concepto de remuneraciones al trabajo personal prestado dentro del territorio del Estado a más de 200 trabajadores en promedio mensual.
-II. Las que hayan realizado pagos por concepto de remuneraciones al trabajo personal prestado dentro del territorio del Estado superiores a $400.000.00 en promedio mensual.
-III. Las que se encuentren obligadas a retener y enterar dicho impuesto en términos del presente Código, que hayan contratado servicios que generen la prestación de trabajo personal dentro del territorio del Estado por más de 200 trabajadores o cuando la base para la determinación de dicha retención haya sido superior a $400.000.00, en promedio mensual.
+II. Las que hayan realizado pagos por concepto de remuneraciones al trabajo personal prestado dentro del territorio del Estado superiores a $400,000.00 en promedio mensual.
+III. Las que se encuentren obligadas a retener y enterar dicho impuesto en términos del presente Código, que hayan contratado servicios que generen la prestación de trabajo personal dentro del territorio del Estado por más de 200 trabajadores o cuando la base para la determinación de dicha retención haya sido superior a $400,000.00, en promedio mensual.
 IV. (DEROGADA, G.G. 18 DE DICIEMBRE DE 2008)
 V. (DEROGADA, G.G. 18 DE DICIEMBRE DE 2008)
 VI. (DEROGADA, G.G. 18 DE DICIEMBRE DE 2008)

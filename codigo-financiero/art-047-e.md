@@ -5,7 +5,7 @@ Artículo 47 E.- Estará impedido para formular dictamen sobre la base, determin
 I. Sea cónyuge, pariente por consanguinidad o civil en línea recta sin limitación de grado, transversal dentro del cuarto y por afinidad dentro del segundo, del propietario o socio principal del contribuyente a dictaminar o de algún director, administrador o empleado que tenga intervención importante en la administración.
 (ADICIONADA, G.G. 26 DE DICIEMBRE DE 2007)
 II. Sea o haya sido en el ejercicio fiscal que dictamina, director, miembro del consejo de administración, administrador, comisario o empleado del contribuyente o de una empresa afiliada, subsidiaria o que esté vinculada económica o administrativamente a él, cualquiera que sea la forma como se le designe aún y cuando no se le retribuyan sus servicios.
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCION, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCIÓN, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (REFORMADA, G.G. 18 DE DICIEMBRE DE 2008)
 III. Tenga o haya tenido en el ejercicio fiscal que dictamine, alguna injerencia o vinculación económica en los negocios del contribuyente que le impida mantener su independencia e imparcialidad.
 (ADICIONADA, G.G. 26 DE DICIEMBRE DE 2007)
@@ -14,7 +14,7 @@ IV. Reciba, por cualquier circunstancia o motivo, participación directa en func
 V. Sea agente o corredor de bolsa de valores en ejercicio.
 (ADICIONADA, G.G. 26 DE DICIEMBRE DE 2007)
 VI. Sea funcionario o empleado del Gobierno Federal, Estatal o Municipal o de un organismo descentralizado competente para determinar contribuciones locales o federales.
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCION, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CODIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCIÓN, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (REFORMADA, G.G. 18 DE DICIEMBRE DE 2008)
 VII. Se encuentre vinculado él o la persona jurídico colectiva a la que preste sus servicios profesionales, en cualquier otra forma con el contribuyente, que le impida su independencia e imparcialidad.
 N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.

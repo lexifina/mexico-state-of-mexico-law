@@ -6,7 +6,7 @@ B). En un 50% del monto de las contribuciones omitidas o del beneficio indebido,
 C). En una cantidad igual al 50% del importe de las contribuciones no enteradas, si la infracción es continua o continuada.
 (ADICIONADO, G.G. 29 DE DICIEMBRE DE 2006)
 D) En un 50% del importe de las contribuciones retenidas o recaudadas y no enteradas.
-(DEROGADO SEGUNDO PARRAFO, G.G. 29 DE DICIEMBRE DE 2006)
+(DEROGADO SEGUNDO PÁRRAFO, G.G. 29 DE DICIEMBRE DE 2006)
 (REFORMADA, G.G. 31 DE DICIEMBRE DE 2001)
 II. Se disminuirán:
 A). En un 20% de su monto, siempre que el infractor pague o devuelva el importe de las contribuciones omitidas con sus accesorios, o el beneficio indebido dentro de los quince días siguientes a la notificación de la resolución en la que se impuso el importe de la misma.

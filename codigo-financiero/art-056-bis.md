@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, G.G. 26 DE DICIEMBRE DE 2007)
+(REFORMADO PRIMER PÁRRAFO, G.G. 26 DE DICIEMBRE DE 2007)
 Artículo 56 Bis.- Quienes realicen pagos a trabajadores por concepto de edificación de obra, acabados, modificaciones y/o remodelaciones e incumplan con la obligación puntual del pago de este impuesto, deberán proporcionar a la oficina rentística correspondiente, la base para determinar correctamente la cantidad a pagar y los accesorios legales generados.
 (ADICIONADO, G.G. 30 DE DICIEMBRE DE 2003)
 En caso de que el contribuyente después de ser requerido por la autoridad fiscal competente, no aporte dentro del término de 20 días, los datos y documentos necesarios y suficientes para la determinación del impuesto o cuando no sea posible establecer la base, se calculará considerando el número de metros cuadrados de construcción que declare el propio contribuyente o determine la autoridad fiscal.

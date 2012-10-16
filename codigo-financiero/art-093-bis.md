@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, G.G. 30 DE DICIEMBRE DE 2005) (ACTUALIZADO EN SUS CUOTAS, TARIFAS Y CONCEPTOS, G.G. 1 DE ENERO DE 2012)
+(REFORMADO PRIMER PÁRRAFO, G.G. 30 DE DICIEMBRE DE 2005) (ACTUALIZADO EN SUS CUOTAS, TARIFAS Y CONCEPTOS, G.G. 1 DE ENERO DE 2012)
 Artículo 93 Bis.- Por los servicios prestados por el Organismo Público Descentralizado denominado Servicios Educativos Integrados al Estado de México, se pagarán derechos conforme a la siguiente:
 TARIFA
 CONCEPTO

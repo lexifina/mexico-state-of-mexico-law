@@ -1,4 +1,4 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE CODIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE CÓDIGO.
 (ADICIONADO, G.G. 21 DE DICIEMBRE DE 2010)
 Artículo 339 Bis.- Se crea el Consejo Estatal para la Armonización Contable como un órgano de coadyuvancia para la implementación de las disposiciones en materia de armonización contable previstas en la Ley General de Contabilidad Gubernamental, mismo que estará integrado por:
 l. El Secretario de Finanzas, quien presidirá el Consejo;
