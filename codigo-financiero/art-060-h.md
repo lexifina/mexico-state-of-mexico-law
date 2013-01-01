@@ -15,4 +15,6 @@ antigüedaddepreciación
 80.667
 90.500
 10en adelante0.300
-El resultado obtenido conforme al párrafo anterior, se actualizará de acuerdo con el factor de actualización determinado con base en lo establecido en el primer párrafo del artículo 60 C de este Código.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE SEGUNDO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(REFORMADO, G.G. 19 DE DICIEMBRE DE 2012)
+El resultado obtenido conforme al párrafo anterior, se actualizará de acuerdo con el factor de actualización determinado con base en lo establecido en el segundo párrafo del artículo 60 C de éste Código.

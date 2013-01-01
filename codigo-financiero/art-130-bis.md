@@ -1,8 +1,20 @@
-(REFORMADO PRIMER PÁRRAFO, G.G. 27 DE DICIEMBRE DE 2005)
-Artículo 130 Bis.- Por el servicio de drenaje y alcantarillado se pagará el 8% del monto determinado por el servicio de agua potable.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE CÓDIGO.
-(REFORMADO, G.G. 21 DE DICIEMBRE DE 2010)
-Los usuarios que se abastezcan de agua de carros tanque, fuente propia o cualquiera que sea distinta de la red municipal y que se hayan conectado a la red de drenaje municipal, pagarán la tarifa establecida en el párrafo anterior, conforme al monto determinado por la aplicación de la tarifa del artículo 130 según corresponda, en relación a los volúmenes recibidos. extraídos o que le sean suministrados.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE CÓDIGO.
-(REFORMADO, G.G. 21 DE DICIEMBRE DE 2010)
-El usuario está obligado a reportar al municipio o al organismo operador, mediante los formatos oficiales, los volúmenes recibidos, extraídos o que le sean suministrados, en forma mensual o bimestral, debiendo efectuar su pago dentro de los primeros diecisiete días siguientes al periodo que se esté reportando.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE SEGUNDO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(REFORMADO, G.G. 19 DE DICIEMBRE DE 2012)
+Artículo 130 Bis.- Por el servicio de drenaje y alcantarillado los usuarios conectados a la red municipal de agua pagarán mensual o bimestral o de manera anticipada, según la opción que elijan, siempre y cuando los Municipios por sí o por conducto de los organismos operadores de agua de que se trate, cuenten con los dispositivos y modalidades que para tal fin establezcan o con cargo a tarjeta de crédito otorgada por instituciones bancarias, conforme a lo siguiente:
+I. Para uso doméstico:
+A). Con medidor.
+TARIFA MENSUAL
+VÉASE TABLA EN LA G.G. DE 19 DE DICIEMBRE DE 2012, PÁGINA 43.
+TARIFA BIMESTRAL
+VÉASE TABLA EN LA G.G. DE 19 DE DICIEMBRE DE 2012, PÁGINA 44.
+En caso de que el medidor se encuentre descompuesto, el usuario pagará las descargas de drenaje y alcantarillado de conformidad al promedio de consumo del último año inmediato anterior según sea el caso, en que estuvo funcionando el aparato.
+B). Si no existe aparato medidor se pagarán los derechos dentro de los primeros diez días siguientes al mes o bimestre que corresponda pagando el 8% del monto determinado por el servicio de agua potable.
+II. Para uso no doméstico:
+A). Con medidor.
+TARIFA MENSUAL
+VÉASE TABLA EN LA G.G. DE 19 DE DICIEMBRE DE 2012, PÁGINA 44.
+TARIFA BIMESTRAL
+VÉASE TABLA EN LA G.G. DE 19 DE DICIEMBRE DE 2012, PÁGINA 44.
+En caso de que el medidor se encuentre descompuesto, el usuario pagará las descargas de drenaje y alcantarillado de conformidad al promedio de consumos del último año inmediato anterior, según sea el caso, en que estuvo funcionando el aparato.
+B). Si no existe aparato medidor se pagarán los derechos dentro de los primeros diez días siguientes al mes o bimestre que corresponda pagando el 8% del monto determinado por el servicio de agua potable.
+En caso de que la determinación de los derechos se realice en base a volúmenes de descargas de aguas residuales cuantificados a través de aparato medidor, el pago se deberá efectuar dentro de los primeros diez días siguientes al mes o bimestre que corresponda.

@@ -33,6 +33,3 @@ VII. Por cambio del nombre del plantel, titular del acuerdo de autorización, re
 1. Educación Básica.$972
 2. Educación Media Superior.$972
 3. Educación Superior.$972
-VIII. Por la inscripción al programa para la incorporación
-gradual de los particulares que imparten educación
-preescolar al Sistema Educativo Estatal.$4,667
