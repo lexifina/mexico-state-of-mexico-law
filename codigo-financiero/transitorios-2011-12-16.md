@@ -4,18 +4,19 @@ SEGUNDO.- El presente Decreto entrará en vigor el día 1° de enero de 2012.
 TERCERO.- Se ratifican las retenciones efectuadas al amparo de los artículos 230 E y 230 K del Código Financiero del Estado de México y Municipios y Tercero Transitorio del Decreto No. 123 de la H. "LVI" Legislatura publicado en el Periódico Oficial "Gaceta del Gobierno" del Estado de México de fecha 27 de marzo de 2008, por el periodo de enero de 2010 a diciembre de 2011.
 CUARTO.- El Registro Estatal de Especialistas en Valuación y en Levantamiento Topográfico Catastral se creará dentro de (sic) plazo de un año contado a partir de la entrada en vigor del presente Decreto; mientras tanto, para los efectos del artículo 390 segundo párrafo, se estará a lo dispuesto en el segundo párrafo del artículo 410 del presente Código, hasta en tanto se establezca el citado Registro.
 QUINTO.- En los casos en que este Código y otras disposiciones legales refieran al Impuesto Sobre Tenencia o Uso de Vehículos Automotores (ISTUVA), se entenderá que se refiere al Impuesto contenido en la Sección Segunda del Capítulo Primero del Título Tercero de este Código.
+(REFORMADO Y ACTUALIZADO EN SUS CUOTAS Y TARIFAS, G.G. 1 DE ENERO DE 2013)
 SEXTO.- El artículo 60-E no será aplicable para vehículos cuyo año modelo sea más antiguo que 2002. Los contribuyentes obligados al pago del Impuesto Sobre Tenencia o Uso de Vehículos establecido en la Sección Segunda del Capítulo Primero del Título Tercero del Código Financiero del Estado de México y Municipios respecto de estos vehículos, lo calcularán conforme a lo siguiente:
 I. En el caso de vehículos de uso particular, la determinación será atendiendo al número de cilindros del motor, conforme a lo siguiente:
 NÚMERO DE CILINDROSTARIFA
-Hasta 4$249
-De 5 a 6$745
-De más de 6$930
-II. En el caso de motocicletas, motonetas, trimotos y cuadrimotos, la determinación será atendiendo a los centímetros cúbicos del motor, conforme a lo siguiente:
-1. Cilindrada hasta 200 c.c.$210
-2. Cilindrada de 201 c.c. en adelante$356
-III. En el caso de vehículos destinados al transporte público de pasajeros, se pagará una cuota de $773.
+Hasta 4$261
+De 5 a 6$781
+De más de 6$975
+II. En el caso de motocicletas, motonetas, trimotos y cudrimotos (sic), la determinación será atendiendo a los centímetros cúbicos del motor, conforme a lo siguiente:
+1. Cilindrada hasta 200 c.c.$220
+2. Cilindrada de 201 c.c. en adelante$373
+III. En el caso de vehículos destinados al transporte público de pasajeros, se pagará una cuota de $810.
 Tratándose de vehículos de servicio público de transporte de pasajeros que pasen a ser de servicio particular, no pagarán el impuesto previsto en este artículo en el año que esta circunstancia ocurra, siempre y cuando se encuentren al corriente en el pago de esta contribución.
-IV. En el caso de vehículos de carga o de arrastre, con placas de servicio particular o de servicio público, se pagará una cuota de $173, por cada tonelada o fracción de capacidad de carga, o de arrastre, según corresponda. Si se acredita con la tarjeta de circulación respectiva que el vehículo se utiliza en actividades agropecuarias, no pagará este impuesto.
+IV. En el caso de vehículos de carga o de arrastre, con placas de servicio particular o de servicio público se pagará una cuota de $181, por cada tonelada o fracción de capacidad de carga, o de arrastre, según corresponda. Si se acredita con la tarjeta de circulación respectiva que el vehículo se utiliza en actividades agropecuarias, no pagará este impuesto.
 Estas tarifas se actualizarán cada ejercicio fiscal, aplicando el factor de actualización a que hace referencia el artículo 70 del Código Financiero del Estado de México y Municipios.
 SÉPTIMO.- Durante el primer año de vigencia de la reforma a la Sección Segunda del Capítulo Primero del Título Tercero de este Código y para efectos del cálculo y entero del impuesto relativo a aeronaves usadas previsto en el artículo 60 H, cuando se haga referencia al impuesto causado en el ejercicio inmediato anterior, se considerará como tal el impuesto causado en términos de la Ley del Impuesto sobre Tenencia o Uso de Vehículos publicada en el Diario Oficial de la Federación el 30 de diciembre de 1980, durante el ejercicio inmediato anterior al de aplicación de este Decreto.
 OCTAVO.- En relación con el subsidio referido en el cuadragésimo párrafo de la exposición de motivos de la Iniciativa de reformas, adiciones y derogaciones al Código Financiero del Estado de México y Municipios, aplicable al pago del Impuesto sobre Tenencia o Uso de Vehículos, se exhorta al Ejecutivo del Estado para que:
