@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 21 DE FEBRERO DE 2013)
+Artículo 170 Bis.- A quien por medio de la violencia física o moral obligue a un fedatario público a asentar en sus protocolos, actos o hechos que no correspondan a la realidad, con el propósito de obtener para sí o para otro, un provecho, beneficio o lucro indebido, se impondrá una pena de seis a doce años de prisión y de mil quinientos o tres mil días multa.
