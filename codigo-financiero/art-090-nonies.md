@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 25 DE FEBRERO DE 2013)
+Artículo 90 Nonies.- Por la calificación de los documentos, cuando se devuelvan sin haberse practicado el registro o anotación correspondiente por carencia u omisión de requisitos, impedimento legal, por no cubrir los derechos dentro del plazo que señala el presente Código o a petición del interesado, se pagará por concepto de derechos $415.
