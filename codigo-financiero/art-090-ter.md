@@ -1,53 +1,51 @@
 (ADICIONADA CON LOS ARTÍCULOS QUE LA INTEGRAN, G.G. 25 DE FEBRERO DE 2013)
 SUBSECCIÓN SEGUNDA
 DE LOS DERECHOS POR SERVICIOS PRESTADOS POR EL INSTITUTO DE LA FUNCIÓN REGISTRAL DEL ESTADO DE MÉXICO
-(ADICIONADO, G.G. 25 DE FEBRERO DE 2013)
+(ADICIONADO, G.G. 25 DE FEBRERO DE 2013) (REFORMADO EN SUS TARIFAS, G.G. 15 DE MARZO DE 2013)
 Artículo 90 Ter.- Por inscripción de documentos o actos relativos a bienes inmuebles se pagarán los siguientes derechos:
 I. Por inscripciones relativas a la propiedad o posesión originaria de bienes inmuebles:
-A). Apeo y deslinde judicial.$511
-B). Capitulaciones matrimoniales sobre inmuebles.$511
+A). Apeo y deslinde judicial.$536
+B). Capitulaciones matrimoniales sobre inmuebles.$536
 C). La declaración, reconocimiento, adquisición o transmisión de la propiedad o posesión de inmuebles o derechos sobre los mismos por cualquier título.
 Se considera que existe transmisión o cesión de derechos de fideicomitente o fideicomisario cuando hay sustitución de un fideicomitente o de un fideicomisario por cualquier motivo.
 En el caso de la permuta de derechos se cobrarán por cada uno de los inmuebles.
 Los títulos expedidos por el Registro Agrario Nacional.
 D). La compraventa a plazos, con reserva de dominio o cualquier otra condición resolutoria o suspensiva y la constitución de fideicomiso traslativo de dominio.
 E). La promesa cuyo contrato definitivo deba ser inscrito por disposición de Ley.
-Tratándose del registro de actos que constituyan compraventa a plazos, con reserva de dominio o cualquier otra condición resolutoria o suspensiva, constitución de fideicomiso traslativo de dominio, transmisión de dominio en ejecución de fideicomiso, promesa de venta y transmisión de propiedad o posesión, relacionados con viviendas de interés social, social progresiva o popular, se pagarán por concepto de derechos $57.
+Tratándose del registro de actos que constituyan compraventa a plazos, con reserva de dominio o cualquier otra condición resolutoria o suspensiva, constitución de fideicomiso traslativo de dominio, transmisión de dominio en ejecución de fideicomiso, promesa de venta y transmisión de propiedad o posesión, relacionados con viviendas de interés social, social progresiva o popular, se pagarán por concepto de derechos $60.
 F). La inmatriculación judicial o administrativa de inmuebles, por cada predio.
-Por las inmatriculaciones administrativas por las que se regularice la tenencia de la tierra en programas o campañas promovidas por el Estado o por los Ayuntamientos y cuya superficie no rebase los 1,000 m2 de superficie, se pagará por concepto de derechos $507.
-G). Constitución de régimen de propiedad en condominio, división de la copropiedad, fusión, fraccionamiento, lotificación, relotificación, subdivisión de predios, por cada unidad privativa, fracción, lote resultante o fusionada se pagarán por concepto de derechos $768.
+Por las inmatriculaciones administrativas por las que se regularice la tenencia de la tierra en programas o campañas promovidas por el Estado o por los Ayuntamientos y cuya superficie no rebase los 1,000 m2 de superficie, se pagará por concepto de derechos $531.
+G). Constitución de régimen de propiedad en condominio, división de la copropiedad, fusión, fraccionamiento, lotificación, relotificación, subdivisión de predios, por cada unidad privativa, fracción, lote resultante o fusionada se pagarán por concepto de derechos $805.
 H). Otros actos inscribibles o anotables.
-Por las inscripciones o anotaciones de régimen de propiedad en condominio, fraccionamiento, lotificación, relotificación o subdivisión de predios relacionados con vivienda de interés social, social progresivo o popular, se pagarán por concepto de derechos $120, por lote o vivienda resultante siempre y cuando conste de manera fehaciente la autorización expresa de que en los lotes o fracciones resultantes se construirán este tipo de viviendas, o que el condominio en su totalidad tendrá esa naturaleza.
+Por las inscripciones o anotaciones de régimen de propiedad en condominio, fraccionamiento, lotificación, relotificación o subdivisión de predios relacionados con vivienda de interés social, social progresivo o popular, se pagarán por concepto de derechos $126, por lote o vivienda resultante siempre y cuando conste de manera fehaciente la autorización expresa de que en los lotes o fracciones resultantes se construirán este tipo de viviendas, o que el condominio en su totalidad tendrá esa naturaleza.
 Por las inscripciones de los actos a que se refieren los incisos C), D), E), F) y H), se pagarán derechos, conforme a la siguiente:
 TARIFA
 CONCEPTO
-1. Cuando los actos a inscribir no tengan valor determinado o éste sea hasta de $205,997.$1,384
-2. Cuando el valor de los actos a inscribir sea de más de $205,997 y hasta de $257,497. $4,156
-3. Cuando el valor de los actos a inscribir sea de más de $257,497 y hasta de $308,996. $6,928
-4. Cuando el valor de los actos a inscribir sea de más de $308,996 y hasta de $360,496. $9,698
-5. Cuando el valor de los actos a inscribir sea de más de $360,496 y hasta de $411,997. $ 12,469
-6. Cuando el valor de los actos a inscribir sea de más de
-$411,997.$ 13,882
+1. Cuando los actos a inscribir no tengan valor determinado o éste sea hasta de $215,885.$1,451
+2. Cuando el valor de los actos a inscribir sea de más de $215,885 y hasta de $269,857. $4,355
+3. Cuando el valor de los actos a inscribir sea de más de $269,857 y hasta de $323,828. $7,260
+4. Cuando el valor de los actos a inscribir sea de más de $323,828 y hasta de $377,800. $10,163
+5. Cuando el valor de los actos a inscribir sea de más de $377,800 y hasta de $431,773. $ 13,096
+6. Cuando el valor de los actos a inscribir sea de más de $431,773.$ 14,548
 Por las inscripciones a que se refieren los incisos C), D), E) y H), se tomará como valor el que resulte mayor entre el inserto o declarado en la operación, el catastral o el de avalúo, para la ubicación del rango correspondiente de la tarifa anterior. Tratándose de las adquisiciones que hagan los arrendatarios financieros al ejercer la opción de compra, se tomará como valor el que se haya concertado en el contrato de arrendamiento financiero respectivo. Cuando el objeto del acto jurídico sean dos o más inmuebles se deberá expresar, en el documento respectivo, el valor de cada uno de ellos a fin de ubicarlos en el rango correspondiente en forma individual.
-La cancelación por revocación, rescisión, mandato judicial o a solicitud de parte interesada de las inscripciones a que se refiere esta fracción$547.
+La cancelación por revocación, rescisión, mandato judicial o a solicitud de parte interesada de las inscripciones a que se refiere esta fracción$573.
 II. Por inscripciones o anotaciones de actos o mandamientos judiciales que limiten, graven el derecho de propiedad o posesión o prohíban la enajenación de la propiedad o posesión original de bienes inmuebles, se pagarán por concepto de derechos, conforme a la siguiente:
 TARIFA
 CONCEPTO
-1. Cuando los actos a inscribir no tengan valor determinado o éste sea hasta de $205,997. $1,384
-2. Cuando el valor de los actos a inscribir sea de más de $205,997 y hasta de $257,497. $4,156
-3. Cuando el valor de los actos a inscribir sea de más de $257,497 y hasta de $308,996. $6,928
-4. Cuando el valor de los actos a inscribir sea de más de $308,996 y hasta de $360,496.$9,698
-5. Cuando el valor de los actos a inscribir sea de más de $360,496 y hasta de $411,997.$12,469
-6. Cuando el valor de los actos a inscribir sea de más de
-$411,997.$13,882
+1. Cuando los actos a inscribir no tengan valor determinado o éste sea hasta de $215,885. $1,451
+2. Cuando el valor de los actos a inscribir sea de más de $215,885 y hasta de $269,857. $4,355
+3. Cuando el valor de los actos a inscribir sea de más de $269,857 y hasta de $323,828. $7,260
+4. Cuando el valor de los actos a inscribir sea de más de $323,828 y hasta de $377,800.$10,163
+5. Cuando el valor de los actos a inscribir sea de más de $377,800 y hasta de $431,773.$13,096
+6. Cuando el valor de los actos a inscribir sea de más de $431,773.$14,548
 Tratándose de cédula hipotecaria, se tomará como base la cantidad adeudada, para cada inmueble que sea objeto de anotación.
-Por la inscripción de la división de hipoteca, se pagarán $1,321 por cada inmueble.
-Por la inscripción de hipotecas, en las que intervengan el Fondo Instituido en Relación a la Agricultura o la Financiera Rural, se pagará por concepto de derechos$755.
-Por la inscripción de hipotecas, para garantizar el crédito principal y refinanciamiento para la construcción y adquisición de viviendas de interés social, social progresiva o popular, se pagarán $120.
-Para cada cancelación de inscripción o anotación relativa a los actos anteriores se pagará $1,095, a excepción de las cancelaciones que se realicen a favor de los beneficiarios de los programas promotores, respecto de inmuebles destinados a viviendas de interés social, social progresiva o popular, en cuyo caso se pagará un derecho equivalente a $58, así como en el caso de cancelación de inscripciones o anotaciones que se relacionen con créditos en los que intervenga el Fondo Instituido en relación con la Agricultura o la Financiera Rural.
+Por la inscripción de la división de hipoteca, se pagarán $1,385 por cada inmueble.
+Por la inscripción de hipotecas, en las que intervengan el Fondo Instituido en Relación a la Agricultura o la Financiera Rural, se pagará por concepto de derechos $792.
+Por la inscripción de hipotecas, para garantizar el crédito principal y refinanciamiento para la construcción y adquisición de viviendas de interés social, social progresiva o popular, se pagarán $125.
+Para cada cancelación de inscripción o anotación relativa a los actos anteriores se pagará $1,148, a excepción de las cancelaciones que se realicen a favor de los beneficiarios de los programas promotores, respecto de inmuebles destinados a viviendas de interés social, social progresiva o popular, en cuyo caso se pagará un derecho equivalente a $60, así como en el caso de cancelación de inscripciones o anotaciones que se relacionen con créditos en los que intervenga el Fondo Instituido en relación con la Agricultura o la Financiera Rural.
 Cuando en un solo documento se contengan dos o más contratos a inscribir, el monto de cada uno de ellos se ubicará en el rango correspondiente en forma individual, para efectos de la aplicación de la tarifa de esta fracción.
-III. Por la inscripción de actos o documentos cuyo registro sea necesario como acto previo, para la inscripción de títulos traslativos de dominio, se pagarán por cada uno de ellos $511.
+III. Por la inscripción de actos o documentos cuyo registro sea necesario como acto previo, para la inscripción de títulos traslativos de dominio, se pagarán por cada uno de ellos $536.
 Para efectos del párrafo anterior, los contratos privados de compraventa no se considerarán como un acto previo, independientemente de la denominación que se les dé.
-Por la cancelación de la inscripción a que alude esta fracción, ordenada por la autoridad judicial o cuando así lo soliciten las partes que intervienen en el acto o documento, siempre y cuando no se haya realizado la inscripción definitiva, se pagarán$232.
+Por la cancelación de la inscripción a que alude esta fracción, ordenada por la autoridad judicial o cuando así lo soliciten las partes que intervienen en el acto o documento, siempre y cuando no se haya realizado la inscripción definitiva, se pagarán $244.
 Para la aplicación de los derechos previstos en este artículo referidos a viviendas de interés social, social progresivo o popular, nueva o usada, su transmisión deberá llevarse a cabo directamente por el constructor de la vivienda, por la Federación, Estado o Municipio, a través de los organismos públicos correspondientes, o bien con recursos proporcionados por éstos, por instituciones de banca múltiple, sociedades financieras de objeto limitado o sociedades financieras de objeto múltiple cuando la transmisión se haga entre particulares, debiendo acreditarse fehacientemente la naturaleza de las viviendas y el origen de sus recursos y además que su valor al término de la construcción o adquisición no exceda los valores que establece la fracción XL del artículo 3 de este Código para cada tipo de vivienda.
 Tratándose de hipotecas para garantizar créditos obtenidos para la construcción o adquisición de viviendas de interés social, social progresiva o popular, se aplicarán los derechos referidos a este tipo de viviendas, aun cuando la suma del capital e intereses garantizados superen el monto del valor de las mismas conforme a los criterios anteriores.

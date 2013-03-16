@@ -1,17 +1,17 @@
-(ADICIONADO, G.G. 25 DE FEBRERO DE 2013)
+(ADICIONADO, G.G. 25 DE FEBRERO DE 2013) (REFORMADO EN SUS TARIFAS, G.G. 15 DE MARZO DE 2013)
 Artículo 90 Duodecies.- Por los servicios prestados por el Archivo General de Notarías, se pagarán derechos conforme a la siguiente:
 TARIFA
 CONCEPTO
 I. Expedición de Testimonios, incluida la autorización, por
-cada hoja. $53
-II. Expedición de copias certificadas de planos que obran en el apéndice por cada foja, incluida la autorización.$107
+cada hoja. $55
+II. Expedición de copias certificadas de planos que obran en el apéndice por cada foja, incluida la autorización.$112
 III. Expedición de testimonio de escrituras mecanografiadas,
-por hoja. $70
-IV. Informe sobre existencia o inexistencia de testamento. $529
-V. Búsqueda de antecedentes notariales. $53
-VI. Autorización definitiva de las escrituras o actas notariales de valor determinado que no contengan cuota especial en este Código.$1,016
-VII. Derechos por autorización definitiva, para cuando se trate de actas o escrituras de valor indeterminado. $1,085
-VIII. Por la cancelación de la disposición del patrimonio familiar.$511
-IX. Por revocación, extinción y sustitución de poderes que se asienten en nota complementaria dentro del acto jurídico que corresponda.$523
-X. Depósito de aviso de testamento, incluyendo el que se realiza por vía correo electrónico, por cada uno.$52
+por hoja. $73
+IV. Informe sobre existencia o inexistencia de testamento. $554
+V. Búsqueda de antecedentes notariales. $55
+VI. Autorización definitiva de las escrituras o actas notariales de valor determinado que no contengan cuota especial en este Código.$1,065
+VII. Derechos por autorización definitiva, para cuando se trate de actas o escrituras de valor indeterminado. $1,137
+VIII. Por la cancelación de la disposición del patrimonio familiar.$536
+IX. Por revocación, extinción y sustitución de poderes que se asienten en nota complementaria dentro del acto jurídico que corresponda.$548
+X. Depósito de aviso de testamento, incluyendo el que se realiza por vía correo electrónico, por cada uno.$55
 Por la autorización definitiva de escrituras que contengan diversos contratos o actos, los derechos se fijarán en su totalidad por cada uno de los actos o contratos principales, y en una mitad por los accesorios o complementarios.
