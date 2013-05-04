@@ -1,5 +1,4 @@
 CÓDIGO PENAL DEL ESTADO DE MÉXICO
-N. DE E. LA FE DE ERRATAS PUBLICADA EN LA G.G. EL 28 DE FEBRERO DE 2013 MEDIANTE DECRETO 55, NO APLICA AL ARTICULADO DEL DECRETO PUBLICADO EN LA G.G. DE 22 DE FEBRERO DE 2012.
 Código publicado en la Gaceta del Gobierno del Estado de México, el lunes 20 de marzo del 2000.
 ARTURO MONTIEL ROJAS, Gobernador Constitucional del Estado Libre y Soberano de México, a sus habitantes sabed:
 Que la Legislatura del Estado, ha tenido a bien aprobar lo siguiente:
