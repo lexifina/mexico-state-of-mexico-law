@@ -11,4 +11,4 @@ LIBRO PRIMERO
 Parte General
 TITULO PRIMERO
 Jurisdicción
-Ejercicio de la jurisdicción
+Inicio dispositivo e impulso procesal oficioso

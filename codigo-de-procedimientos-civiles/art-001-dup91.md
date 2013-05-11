@@ -1,2 +1,2 @@
-Artículo 1.90.- Si el nombramiento no fuere hecho por las partes, lo hará de oficio el Juez de entre los interesados.
-Facultades del representante común
+Artículo 1.89.- Siempre que una parte esté compuesta de diversas personas, deberán tener una sola representación, para lo cual nombrarán un representante común desde el primer escrito con que comparezcan.
+Nombramiento de oficio de representante común

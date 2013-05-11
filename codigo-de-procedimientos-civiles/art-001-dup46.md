@@ -1,2 +1,2 @@
-Artículo 1.45.- En caso de urgencia las providencias precautorias, puede dictarlas el Juez del lugar donde se halle la persona o el bien objeto de la providencia y, efectuadas, se remitirán las actuaciones al competente.
-Elementos para determinar la cuantía
+Artículo 1.44.- De las tercerías conocerá el Juez del principal; si el valor de la tercería excede de la competencia, se estará a lo dispuesto en el artículo anterior.
+Competencia para providencias precautorias urgentes

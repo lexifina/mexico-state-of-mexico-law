@@ -1,2 +1,2 @@
-Artículo 1.99.- Cuando la ley prescriba una determinada forma para una actuación, sólo será nula, si se efectúa en una forma diversa.
-Actuaciones en idioma español
+Artículo 1.98.- No se dará curso a las promociones que carezcan de firma o huella del interesado.
+Excepción a la nulidad de actuaciones

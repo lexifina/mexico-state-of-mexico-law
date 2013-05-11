@@ -1,7 +1,2 @@
-Artículo 1.54.- En casos de excusa o recusación, conocerá:
-I. De los Magistrados, la Sala de la que formen parte, la que se integrará conforme a la ley;
-II. De los Jueces, la Sala de su adscripción;
-III. De los Secretarios, el titular del Tribunal de que se trate.
-CAPITULO II
-De las Excusas
-Obligación de excusarse
+Artículo 1.53.- Los impedimentos no pueden ser dispensados por voluntad de los interesados.
+Organo que conoce de la excusa y la recusación

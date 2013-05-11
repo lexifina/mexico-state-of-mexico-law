@@ -1,2 +1,2 @@
-Artículo 1.67.- Interpuesta la recusación, no se puede retirar, ni variar la causa, a menos que sea superveniente.
-Efectos de la recusación improcedente
+Artículo 1.66.- La resolución que declare operante la recusación, nulificará lo actuado a partir de la fecha en que se interpuso la misma.
+Irretirable la recusación

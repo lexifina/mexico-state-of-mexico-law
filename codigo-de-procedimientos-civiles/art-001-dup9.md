@@ -7,4 +7,5 @@ IV. De los conflictos de competencia que se susciten entre los Jueces; y
 V. De los demás asuntos que les encomienden otros ordenamientos legales.
 CAPITULO III
 De los Jueces de Primera Instancia
-Atribuciones de los Jueces civiles
+(REFORMADA SU DENOMINACIÓN, G.G. 10 DE MAYO DE 2013)
+Atribuciones de los jueces civiles

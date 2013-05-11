@@ -1,2 +1,2 @@
-Artículo 1.35.- Hay sumisión expresa, cuando los interesados renuncian a la competencia que la ley les concede y designan al Tribunal o Tribunales, a que se someten.
-Sometimiento tácito
+Artículo 1.34.- Es Juez competente, aquél al que los interesados se hubieren sometido expresa o tácitamente, si se trata de competencia prorrogable.
+Sometimiento expreso

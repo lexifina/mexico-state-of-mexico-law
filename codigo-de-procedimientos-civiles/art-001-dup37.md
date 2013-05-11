@@ -1,6 +1,2 @@
-Artículo 1.36.- Se entiende sometido tácitamente:
-I. El demandante por el hecho de ocurrir al Juez entablando su demanda;
-II. El demandado, por contestar la demanda sin impugnar la competencia;
-III. El que habiendo promovido una competencia, se desista de ella;
-IV. El tercero interesado que se presente gestionando en el juicio.
-Reconocimiento de competencia
+Artículo 1.35.- Hay sumisión expresa, cuando los interesados renuncian a la competencia que la ley les concede y designan al Tribunal o Tribunales, a que se someten.
+Sometimiento tácito

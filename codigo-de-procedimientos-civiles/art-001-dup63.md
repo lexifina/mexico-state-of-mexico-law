@@ -1,7 +1,2 @@
-(REFORMADO PRIMER PÁRRAFO, G.G. 8 DE MAYO DE 2003)
-Artículo 1.62.- En casos de recusación, conocerán:
-(REFORMADA, G.G. 8 DE MAYO DE 2003)
-I. De los Magistrados, la Sala Colegiada de la que formen parte, la que se integrará conforme a la ley; tratándose de un magistrado unitario, conocerá la sala colegiada de su jurisdicción.
-II. De los Jueces, la Sala de su adscripción;
-III. De los Secretarios, el titular del Tribunal de que se trate.
-Recusación improcedente
+Artículo 1.61.- Puede interponerse la recusación hasta antes de citación para sentencia definitiva, a menos que hubiere cambio de personal.
+Organo que conoce de la recusación

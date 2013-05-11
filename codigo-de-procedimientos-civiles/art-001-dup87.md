@@ -1,2 +1,2 @@
-Artículo 1.86.- Es necesario el litisconsorcio, cuando las cuestiones que en el juicio se ventilan, afectan a más de dos personas, de tal manera que no sea posible pronunciar sentencia válida, sin oírlas a todas ellas.
-Estudio oficioso de litisconsorcio necesario
+Artículo 1.85.- El litisconsorcio voluntario tiene lugar cuando el actor hace que varias personas intervengan en el juicio como demandados, cuando en las prestaciones que se reclamen exista conexión del objeto o del título del cual dependan.
+Litisconsorcio necesario

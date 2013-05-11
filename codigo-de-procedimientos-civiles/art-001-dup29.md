@@ -1,2 +1,4 @@
-Artículo 1.28.- El ejercicio de la jurisdicción que la ley encomienda a los Tribunales judiciales, debe reclamarse ante la autoridad competente.
-Reglas determinantes de la competencia
+Artículo 1.27.- El Notificador tendrá fe pública en el ejercicio de sus funciones, así como aquellos que expresamente lo determine la ley.
+TITULO CUARTO
+Competencia
+Ejercicio de la función jurisdiccional

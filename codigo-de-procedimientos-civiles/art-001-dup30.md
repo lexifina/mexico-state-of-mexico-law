@@ -1,2 +1,2 @@
-Artículo 1.29.- La competencia de los Tribunales se determina en razón de grado, materia, cuantía, territorio y prevención.
-Requisitos de competencia
+Artículo 1.28.- El ejercicio de la jurisdicción que la ley encomienda a los Tribunales judiciales, debe reclamarse ante la autoridad competente.
+Reglas determinantes de la competencia

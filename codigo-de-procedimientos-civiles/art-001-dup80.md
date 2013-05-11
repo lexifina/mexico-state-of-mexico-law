@@ -1,2 +1,2 @@
-Artículo 1.79.- Los interesados o sus representantes legítimos podrán comparecer por sí o por mandatario o procurador.
-Gestión judicial
+Artículo 1.78.- Pueden comparecer en juicio las personas físicas o jurídicas colectivas que tengan capacidad legal, para actuar por sí o por medio de representante.
+Representación procesal

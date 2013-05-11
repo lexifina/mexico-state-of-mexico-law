@@ -1,2 +1,2 @@
-Artículo 1.72.- Los que conozcan de una recusación son irrecusables sólo para ese efecto.
-Multas por recusación improcedente y su aplicación
+Artículo 1.71.- En el incidente de recusación son admisibles todos los medios de prueba con excepción de la confesional a cargo del recusado.
+Irrecusables los que conocen de la recusación

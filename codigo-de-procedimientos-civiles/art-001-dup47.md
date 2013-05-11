@@ -1,2 +1,2 @@
-Artículo 1.46.- Para determinar la competencia por la cuantía del negocio, se tomará en cuenta el valor de la prestación principal que reclame el interesado.
-Cuantía en arrendamiento y prestaciones periódicas
+Artículo 1.45.- En caso de urgencia las providencias precautorias, puede dictarlas el Juez del lugar donde se halle la persona o el bien objeto de la providencia y, efectuadas, se remitirán las actuaciones al competente.
+Elementos para determinar la cuantía

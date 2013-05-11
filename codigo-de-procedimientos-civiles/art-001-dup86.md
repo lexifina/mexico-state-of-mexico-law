@@ -1,2 +1,2 @@
-Artículo 1.85.- El litisconsorcio voluntario tiene lugar cuando el actor hace que varias personas intervengan en el juicio como demandados, cuando en las prestaciones que se reclamen exista conexión del objeto o del título del cual dependan.
-Litisconsorcio necesario
+Artículo 1.84.- Hay litisconsorcio cuando una parte, sea activa o pasiva, esté compuesta por varias personas.
+Litisconsorcio voluntario

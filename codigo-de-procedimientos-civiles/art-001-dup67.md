@@ -1,2 +1,2 @@
-Artículo 1.66.- La resolución que declare operante la recusación, nulificará lo actuado a partir de la fecha en que se interpuso la misma.
-Irretirable la recusación
+Artículo 1.65.- La interposición de la recusación, no suspende el conocimiento del negocio por parte del recusado. Sólo se suspenderá desde la citación para sentencia si no ha sido resuelta.
+Nulidad de lo actuado por el recusado

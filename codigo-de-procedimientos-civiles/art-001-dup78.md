@@ -1,3 +1,7 @@
-Artículo 1.77.- Es parte en un procedimiento judicial quien tenga interés en que la autoridad judicial declare o constituya un derecho o imponga una condena, y quien tenga el interés contrario.
-Puede también intervenir en un procedimiento judicial, el tercero que tenga interés directo o indirecto en el negocio.
-Capacidad procesal
+Artículo 1.76.- En la resolución que declare improcedente la recusación, se ordenará hacer efectiva la multa, y se remitirá copia de la misma al recusado quien seguirá conociendo del asunto.
+TITULO SEXTO
+Partes
+CAPITULO I
+De las Personas que pueden Intervenir
+en el Procedimiento Judicial
+Definición de parte

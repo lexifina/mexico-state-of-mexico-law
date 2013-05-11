@@ -1,2 +1,2 @@
-Artículo 1.64.- En las controversias del orden familiar, la recusación no impedirá que el Juez adopte las medidas provisionales necesarias sobre alimentos y en beneficio del orden familiar.
-La recusación sólo suspende el juicio desde citación para sentencia
+Artículo 1.63.- En los juicios ejecutivos no se dará curso a ninguna recusación antes de practicar el aseguramiento o de hacer el embargo o desembargo. Tampoco se dará curso cuando se interponga en el momento de estarse practicando una diligencia, sino hasta que ésta termine.
+Recusación en juicios del orden familiar

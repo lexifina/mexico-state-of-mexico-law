@@ -1,2 +1,6 @@
-Artículo 1.37.- El Juez que reconozca la competencia de otro de manera expresa, no puede sostenerle incompetencia. La cumplimentación de un exhorto no es reconocimiento expreso.
-Improcedencia de incompetencia
+Artículo 1.36.- Se entiende sometido tácitamente:
+I. El demandante por el hecho de ocurrir al Juez entablando su demanda;
+II. El demandado, por contestar la demanda sin impugnar la competencia;
+III. El que habiendo promovido una competencia, se desista de ella;
+IV. El tercero interesado que se presente gestionando en el juicio.
+Reconocimiento de competencia

@@ -6,6 +6,5 @@ II. Los juicios sucesorios y de petición de herencia;
 III. Las diligencias preliminares de consignación en materia familiar;
 IV. La diligenciación de exhortos, cartas rogatorias, suplicatorias, requisitorias y despachos relacionados con el derecho familiar;
 V. Los demás asuntos familiares cuyo conocimiento les atribuyan las leyes.
-CAPITULO IV
-De los Jueces de Cuantía Menor
-Atribuciones de los Jueces de Cuantía Menor
+(ADICIONADO, G.G. 10 DE MAYO DE 2013)
+Atribuciones de los jueces mercantiles
