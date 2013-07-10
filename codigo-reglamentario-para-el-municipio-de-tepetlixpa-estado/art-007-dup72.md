@@ -1,0 +1,1 @@
+Artículo 7.72.- El pago de los gastos de ejecución a favor de depositarios distintos al titular de los bienes embargados o de peritos que no sean servidores públicos, se hará una vez concluidos los trabajos respectivos, de acuerdo con la importancia del crédito fiscal, la de los bienes embargados y demás circunstancias del caso.

@@ -1,0 +1,1 @@
+Artículo 7.71.- No procederá el cobro de gastos de ejecución a los particulares, cuando por resoluciones jurisdiccionales o administrativas se declaren fundados los medios de impugnación que interpongan los deudores, ya sea contra la determinación del crédito fiscal o en contra del procedimiento administrativo de ejecución.

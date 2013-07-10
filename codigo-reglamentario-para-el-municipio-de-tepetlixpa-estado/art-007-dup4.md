@@ -1,0 +1,3 @@
+SECCIÓN SEGUNDA
+DEL FOMENTO PARA EL DESARROLLO FORESTAL Y SOSTENIBLE
+Artículo 7.4.- La protección, conservación, restauración, producción, ordenación, cultivo, manejo, fomento y aprovechamiento de los ecosistemas forestales y vegetales, así como de la vegetación urbana, que sean de jurisdicción municipal, se regirán por la Constitución Federal, la Constitución Estatal, la Ley General de Desarrollo Forestal Sustentable, el Libro Tercero del Código para la Biodiversidad del Estado, el Reglamento del Libro Tercero del Código para la Biodiversidad del Estado, la presente sección y demás disposiciones aplicables.

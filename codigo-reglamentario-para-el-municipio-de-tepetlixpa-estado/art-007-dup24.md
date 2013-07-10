@@ -1,0 +1,1 @@
+Artículo 7.24.- El solicitante deberá cubrir el importe de los derechos o productos por el uso de la instalación municipal, previamente a la expedición de la autorización o el permiso, cuando la actividad tenga fines lucrativos.

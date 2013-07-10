@@ -1,0 +1,1 @@
+Artículo 8.84.- Son sujetos de este capítulo, aquellas personas que se dediquen a la producción, elaboración y comercialización de tortillas en los molinos de nixtamal, tortillerías y molinos de nixtamal-tortillerías de este municipio.

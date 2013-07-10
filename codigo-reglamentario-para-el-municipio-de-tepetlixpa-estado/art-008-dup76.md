@@ -1,0 +1,2 @@
+Artículo 8.76.- Las corridas de toros, las peleas de box, la lucha libre, el futbol, el beisbol, el basquetbol, el voleibol y demás eventos deportivos, estarán sujetos a disposiciones generales y aplicables de este ordenamiento, pero el desarrollo de cada evento se regirá por sus reglamentos especiales.
+En las corridas de toros, el Consejero Jurídico Municipal nombrará al Juez de Plaza, que presidirá las corridas; la empresa designará un asesor especialista en la materia.

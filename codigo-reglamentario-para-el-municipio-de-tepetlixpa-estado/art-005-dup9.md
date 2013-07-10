@@ -1,0 +1,3 @@
+Artículo 5.9.- Los delegados o subdelegados que hayan sido declarados electos deberán rendir protesta ante el Presidente Municipal o la persona que lo represente, preferentemente en una ceremonia especial.
+Cuando por alguna razón existiera problema en cuanto al resultado de la elección, el Ayuntamiento decidirá en forma discrecional lo que mejor convenga a los intereses de la comunidad, previo dictamen de la Comisión Transitoria Edilicia.
+En caso de no existir registro de planillas en alguna delegación o subdelegación, el Ayuntamiento designará a las personas que cumplirán las funciones de delegados o subdelegados, según sea el caso, previo dictamen de la Comisión Transitoria Edilicia.

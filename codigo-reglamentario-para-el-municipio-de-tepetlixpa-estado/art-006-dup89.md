@@ -1,0 +1,1 @@
+Artículo 6.90.- Los delegados y subdelegados municipales, presidentes de consejos de participación ciudadana, comisariados ejidales y encargados de los panteones, en su caso, realizarán las funciones propias de los administradores de panteones, siempre bajo la supervisión y vigilancia de la Regiduría de (sic) encargada de la Comisión de Jardines y Panteones.

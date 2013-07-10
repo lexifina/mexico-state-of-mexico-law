@@ -1,0 +1,1 @@
+Artículo 2.23.- No podrá efectuarse ninguna discusión ni resolverse asunto alguno, cuando el integrante del Ayuntamiento encargado del ramo esté ausente en forma justificada, excepto cuando aquél hubiere expresado su consentimiento por escrito. Tratándose de comisiones, bastará la presencia de uno de sus miembros.

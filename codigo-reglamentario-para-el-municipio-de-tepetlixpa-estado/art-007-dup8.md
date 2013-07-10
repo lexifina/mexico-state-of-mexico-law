@@ -1,0 +1,1 @@
+Artículo 7.8.- El manejo y mantenimiento de la vegetación urbana en bienes de dominio privado es responsabilidad de los propietarios o poseedores de los mismos, quienes realizarán los trabajos correspondientes o mediante la contratación de personas autorizadas por la autoridad municipal.

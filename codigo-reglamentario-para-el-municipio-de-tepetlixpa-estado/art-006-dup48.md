@@ -1,0 +1,1 @@
+Artículo 6.49.- En ejercicio de sus atribuciones, la Regiduría de Servicios Públicos y Medio Ambiente llevará a cabo acciones coordinadas en materia de gestión integral de residuos sólidos urbanos y de manejo especial.

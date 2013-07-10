@@ -1,0 +1,4 @@
+Artículo 7.94.- En los casos en que las partes de manera voluntaria deseen someterse a una mediación-conciliación, el Oficial deberá tener en cuenta lo siguiente:
+I. El objeto de la mediación-conciliación será obtener una solución de los conflictos que se susciten entre particulares del Municipio, para mantener el orden público en la medida de lo posible y procurar que se guarden respeto;
+II. La mediación-conciliación se regirá por los principios de voluntariedad, gratuidad, neutralidad, confidencialidad e imparcialidad, por lo que no puede ser impuesta a persona alguna; y
+III. En la mediación-conciliación el procedimiento será oral, público o privado cuando el Oficial así lo determine y se regirá por los principios de sencillez y economía, realizándose en forma pronta y expedita, sin más formalidades que las establecidas en esta sección.

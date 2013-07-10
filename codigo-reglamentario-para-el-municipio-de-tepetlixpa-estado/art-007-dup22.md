@@ -1,0 +1,1 @@
+Artículo 7.22.- Las actividades que podrán realizarse en las instalaciones municipales serán preferentemente de carácter cultural, conforme a la autorización de la Secretaría del H. Ayuntamiento. Se dará preferencia a las actividades que tengan un fin no lucrativo.

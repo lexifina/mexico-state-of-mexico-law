@@ -1,0 +1,2 @@
+Artículo 7.52.- Las dependencias municipales y organismos auxiliares podrán solicitar el préstamo de los documentos que hayan generado, mediante oficio firmado por su titular.
+Se suspenderá el derecho de préstamo a quienes tengan en su poder documentos cuyo plazo de entrega se encuentre vencido.

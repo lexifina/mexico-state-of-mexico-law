@@ -1,0 +1,6 @@
+Artículo 7.97.- En caso de que alguna de las partes no se presente a la audiencia de mediación-conciliación, el Secretario de Acuerdos lo hará constar y procederá de la siguiente manera:
+I. Si la parte promovente no compareciera a la audiencia, a la contraparte se le harán saber los motivos por los cuales fue citado por medio de la lectura de la declaración del promovente, y a continuación se procederá a protestarlo en términos de ley para que se conduzca con verdad, se le tomarán sus generales, dejando a salvo los derechos de la contraparte, y archivándose el expediente como asunto total y definitivamente concluido;
+II. Si fuera la contraparte quien no compareciera, se le girará segundo citatorio, el cual se entregará por conducto del Notificador, señalando día y hora para la celebración de la audiencia;
+III. Si la contraparte no asistiera a la audiencia, se le girará tercer citatorio el cual se entregará por conducto de los elementos de la policía municipal para que notifiquen al mismo, señalando día y hora para la celebración de esa audiencia; y
+IV. Si la contraparte no asistiera a la audiencia después de haber sido citada por tres ocasiones, se procederá a dejar a salvo los derechos del promovente, dándole la asesoría necesaria y canalizándolo ante la instancia jurisdiccional correspondiente.
+DE LA SUSCRIPCIÓN DE ACTAS INFORMATIVAS

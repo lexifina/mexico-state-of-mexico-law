@@ -1,0 +1,1 @@
+Artículo 8.34.- Cuando hubiese necesidad de hacer obras de construcción, conservación, reparación o mejoras de servicios públicos en el interior de los inmuebles de los mercados, la autoridad municipal podrá reubicar a los comerciantes a otro lugar, siempre y cuando sea en el mismo mercado.

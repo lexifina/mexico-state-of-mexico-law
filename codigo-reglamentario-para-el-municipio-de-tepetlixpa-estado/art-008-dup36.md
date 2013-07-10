@@ -1,0 +1,1 @@
+Artículo 8.36.- La Jefatura de Reglamentos dictará la resolución correspondiente a la solicitud de cambio o ampliación de giro, dentro del término de quince días hábiles posteriores a la fecha de su presentación y sólo podrá ser autorizada por una sola vez durante la Administración Pública Municipal que lo haya otorgado.

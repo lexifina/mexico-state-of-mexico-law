@@ -1,0 +1,1 @@
+Artículo 6.86.- Los cadáveres o restos humanos de personas desconocidas que sean remitidos al panteón por el servicio médico forense para su inhumación en la fosa común, deberán estar relacionados individualmente con el número de acta correspondiente, satisfaciéndose, además, los requisitos que señale la Oficialía del Registro Civil.

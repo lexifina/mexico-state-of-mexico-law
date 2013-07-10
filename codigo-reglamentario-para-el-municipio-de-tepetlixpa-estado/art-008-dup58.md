@@ -1,0 +1,1 @@
+Artículo 8.58.- Los permisos de funcionamiento y sus renovaciones se concederán por un periodo no mayor de un año, encontrándose facultada la autoridad municipal para emitir su negativa, cuando se afecte el interés público o desaparezca la causa que dio origen a su expedición.

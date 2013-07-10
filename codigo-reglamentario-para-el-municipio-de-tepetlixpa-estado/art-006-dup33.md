@@ -1,0 +1,1 @@
+Artículo 6.33.- El Ayuntamiento solamente podrá otorgar permisos para el aprovechamiento o reúso de aguas residuales provenientes del alcantarillado municipal para riego agrícola y otros usos productivos o de servicios, previo su tratamiento conforme a los parámetros y procedimientos establecidos en las normas oficiales mexicanas correspondientes.

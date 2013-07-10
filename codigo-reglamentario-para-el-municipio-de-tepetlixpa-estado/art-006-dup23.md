@@ -1,0 +1,1 @@
+Artículo 6.23.- La distribución de agua potable en carros pipa en zonas donde se suspenda temporalmente el servicio de agua potable o para la atención de emergencias, contingencias o desastres urbanos, será realizada por el Ayuntamiento, sin costo para el usuario.

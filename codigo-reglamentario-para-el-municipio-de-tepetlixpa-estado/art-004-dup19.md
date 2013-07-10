@@ -1,0 +1,1 @@
+Artículo 4.19.- Las rampas, escaleras y salidas de emergencia de los centros de trabajo estarán ubicadas y señaladas de tal manera que sean fácilmente localizables y deberán estar libres de obstrucciones.

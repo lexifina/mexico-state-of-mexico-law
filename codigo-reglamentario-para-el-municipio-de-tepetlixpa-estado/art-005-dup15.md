@@ -1,0 +1,3 @@
+Artículo 5.15.- Los Delegados y Subdelegados, en el ámbito de su territorio, deberán elaborar y mantener actualizado un registro de las organizaciones y de sus dirigentes, reportando al Ayuntamiento cualquier cambio de las dirigencias.
+Cuando las Organizaciones Sociales deseen realizar acciones en beneficio de la colectividad, deberán hacerlo del conocimiento de la autoridad municipal, por conducto de los Delegados o Subdelegados.
+Los Delegados y Subdelegados supervisarán y vigilarán que la obra realizada por las Organizaciones Sociales se ejecute en los términos en que fue programada y autorizada.

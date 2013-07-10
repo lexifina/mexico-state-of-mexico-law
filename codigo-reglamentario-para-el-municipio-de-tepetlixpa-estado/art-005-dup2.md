@@ -1,0 +1,1 @@
+Artículo 5.2.- El Municipio cuenta con 2 delegaciones, enumeradas en el Bando Municipal, que comprenderán los límites de la extensión reconocida por el Ayuntamiento, el cual contará con un plano que especifique esos límites.

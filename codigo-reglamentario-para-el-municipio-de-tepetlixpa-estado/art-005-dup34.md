@@ -1,0 +1,1 @@
+Artículo 5.34.- Los Consejos entrantes recibirán de los órganos salientes, en presencia del representante del Contralor Municipal, los bienes que correspondan a los Consejos, elaborándose el acta de entrega-recepción.

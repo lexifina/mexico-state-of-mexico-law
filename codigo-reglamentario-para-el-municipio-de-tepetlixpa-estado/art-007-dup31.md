@@ -1,0 +1,1 @@
+Artículo 7.31.- Para la realización de alguna sesión, se emitirá una convocatoria con tres días de anticipación, señalando fecha, hora y lugar de celebración de la misma. En el propio documento podrá citarse a segunda convocatoria, debiendo existir por lo menos media hora de diferencia entre una y otra.

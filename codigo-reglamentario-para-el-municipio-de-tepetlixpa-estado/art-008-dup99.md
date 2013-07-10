@@ -1,0 +1,1 @@
+Artículo 8.99.- Además de los documentos a que se refiere el artículo anterior, deberán presentar un escrito en el cual manifieste bajo protesta de decir verdad, que no pretende instalarse a menos de 400 metros radiales de distancia de otra tortillería y en caso de molino 1000 metros radiales, sin el cual no procederá el trámite de licencia.

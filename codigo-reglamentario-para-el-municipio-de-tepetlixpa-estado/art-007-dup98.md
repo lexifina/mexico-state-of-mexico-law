@@ -1,0 +1,3 @@
+Artículo 7.98.- Para la suscripción de actas informativas se requerirá la presentación de una identificación vigente válida, con fotografía y firma del titular, así como de los demás documentos que le requiera el Oficial.
+De no contar con alguna identificación, el solicitante deberá presentarse con dos testigos, mismos que bajo protesta de decir verdad y previa identificación, manifiesten conocer el nombre de su presentante por un mínimo de cinco años.
+Los documentos y datos necesarios para cada caso deberán estar enlistados en los carteles que se fijen a la vista del público en la Oficialía.

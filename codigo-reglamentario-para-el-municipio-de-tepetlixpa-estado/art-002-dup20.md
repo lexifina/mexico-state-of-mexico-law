@@ -1,0 +1,1 @@
+Artículo 2.20.- El integrante del Ayuntamiento que haga uso de la palabra, sea para informar o discutir, tendrá libertad para expresar sus ideas sin que pueda ser reconvenido por ello, pero se abstendrá de proferir ofensa alguna.

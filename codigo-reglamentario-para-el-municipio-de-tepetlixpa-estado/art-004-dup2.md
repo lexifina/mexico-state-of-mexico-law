@@ -1,0 +1,2 @@
+Artículo 4.2.- Los servidores públicos municipales deberán registrar sus asistencias mediante el instrumento electrónico, checado de tarjeta o firma en la lista de control, según lo determine la dependencia administrativa u organismo auxiliar respectivo.
+Se exceptúa del control de asistencia a los servidores públicos que en forma expresa hayan sido autorizados por los titulares de las dependencias, en razón de la naturaleza del servicio a su cargo.

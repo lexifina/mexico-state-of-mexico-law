@@ -1,0 +1,1 @@
+Artículo 7.49.- Para la administración de los documentos municipales existirá el Archivo General que estará dividido en dos secciones coordinado por la Secretaria del Ayuntamiento. En cada dependencia municipal y organismo auxiliar existirá un archivo de trámite.

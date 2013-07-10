@@ -1,0 +1,21 @@
+Artículo 8.2.- Para los efectos de este ordenamiento se entenderá por:
+I. Actividad de impacto social: La que, por su naturaleza, puede alterar el orden, la seguridad pública y la armonía de la comunidad;
+II. Actividades sociales: las que se realizan con fines altruistas o caritativos para el beneficio de instituciones de beneficencia públicas, sociales, educativas o de otro tipo ocupando o haciendo uso de áreas y de vías públicas municipales en forma temporal o permanente;
+III. Ambulantes: las personas físicas que realizan actividades comerciales o de prestación de servicios en vía pública, en lugares expresamente autorizados por el Ayuntamiento;
+IV. Centrales de abasto: Unidades comerciales destinadas a la recepción acopio al mayoreo y medio mayoreo, distribución, exhibición, almacenamiento y venta de mercancías y productos alimenticios frescos o industrializados y a la concentración de oferentes para satisfacer los requerimientos de la población;
+V. Comerciante: Persona física o jurídica colectiva que realiza actos de comercio, industria o servicios dentro del territorio municipal;
+VI. Comerciante establecido: el que ejecuta una actividad comercial, industrial o de servicios, en un local fijo;
+VII. Comerciante móvil: Persona que mediante un permiso municipal ejerce la actividad comercial en unidades móviles, no en un lugar fijo, o bien cargando su mercancía para hacerla llegar a los consumidores;
+VIII. Comerciante semifijo: Persona que ejerce la actividad comercial en un puesto ubicado de manera temporal y con horario determinado en parques y jardines o donde la autoridad lo determine y por el tiempo que señale su permiso;
+IX. Comerciante temporal: Persona que habiendo obtenido el permiso correspondiente, ejerce el comercio en un lugar fijo, por un tiempo no mayor de cuatro semanas;
+X. Diversión pública: Eventos abiertos al público que se realizan con el propósito de esparcimiento y en los cuales, el asistente participa activamente en el desarrollo de los mismos;
+XI. Espectáculo público: Eventos a los cuales se asiste, con el propósito preponderante de esparcimiento y en los cuales el asistente asume actitud pasiva, sin que pueda tener participación activa en el desarrollo del evento;
+XII. Establecimiento: Inmueble en donde una persona física o jurídica colectiva desarrolla actividades relativas al comercio, industria y servicios, en forma permanente o periódica, cuyo domicilio se ubique en el territorio municipal;
+XIII. Giro: Actividad o actividades que se registren o autoricen para desarrollarse en los establecimientos comerciales, industriales y de servicios, entendiéndose como complementaria la actividad o actividades compatibles con el giro principal, de conformidad con el catálogo que emita la autoridad municipal;
+XIV. Licencia de funcionamiento: Acto administrativo que faculta a una persona física o jurídica colectiva a la apertura, el funcionamiento y desarrollo legal de alguno de los establecimientos comerciales, industriales o de servicios, comprendidos en este ordenamiento;
+XV. Mercado: Lugar o local, propiedad del Ayuntamiento o de particulares, donde concurren comerciantes y consumidores cuya oferta y demanda se refiere, principalmente, a artículos de primera necesidad;
+XVI. Permiso de funcionamiento: Acto administrativo que faculta a una persona física o jurídica colectiva en forma temporal a la apertura, el funcionamiento y desarrollo licito de una actividad comercial, de prestación de servicios o diversión pública, comprendidos en este ordenamiento;
+XVII. Tianguis: Lugares tradicionales donde periódicamente se reúnen comerciantes y consumidores, uno o varios días a la semana, para la oferta y demanda de productos;
+XVIII. Tianguista: Comerciante que ha obtenido permiso para efectuar el comercio en los lugares, días y horarios destinados para tianguis;
+XIX. Titulares: Personas físicas o jurídicas colectivas que obtengan licencia o permiso de funcionamiento, y las que, con el carácter de gerente, administrador, representante u otro similar, sean responsables de la operación y funcionamiento de algún establecimiento comercial, industrial y de servicios; y
+XX. Vía pública: Las calles, avenidas callejones, calzadas, bulevares, carreteras, puentes y todas (sic) los bienes de uso común, que sirven para el libre tránsito de personas, vehículos y semovientes.

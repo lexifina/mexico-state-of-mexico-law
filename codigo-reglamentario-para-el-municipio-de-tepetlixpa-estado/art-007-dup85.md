@@ -1,0 +1,5 @@
+Artículo 7.85.- Una vez puestos a disposición de la Oficialía los menores que probablemente hayan cometido alguna infracción al Bando Municipal o al presente ordenamiento, a través de los policías municipales o autoridad competente, el Oficial aplicará al procedimiento administrativo común las siguientes disposiciones:
+I. Ordenará el ingreso del menor al área destinada para tal efecto;
+II. Atenderá la infracción cometida por el menor de edad y citará a quien ejerza la patria potestad o tutela, quien en su caso reparará el daño causado;
+III. En caso de no ser localizada la persona facultada para recoger al menor, o si ésta no se presentare en un término prudente, el Oficial podrá acordar el retiro del menor, velando por la seguridad del mismo y atendiendo la infracción cometida; y
+IV. Dependiendo de la gravedad de la infracción, el menor será puesto a disposición del Ministerio Público de Adolescentes.

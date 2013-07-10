@@ -1,0 +1,1 @@
+Artículo 7.77.- La Gaceta Municipal deberá entregarse a los integrantes del Ayuntamiento, a las dependencias de la Administración Pública Municipal, a los organismos auxiliares, las autoridades auxiliares y a los particulares que la soliciten.

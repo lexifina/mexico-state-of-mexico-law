@@ -1,0 +1,2 @@
+Artículo 4.20.- Los centros de trabajo deberán estar provistos de equipo suficiente y adecuado para extinguir incendios, en función de los riesgos que entrañe la naturaleza de su actividad; las autoridades municipales están obligadas a cumplir con la norma oficial mexicana correspondiente y los instructivos que al respecto se expidan.
+En las instalaciones municipales, aun cuando estén provistos de sistemas fijos o semifijos contra incendios, deberán disponer de equipo portátil o extinguidores adecuados al tipo de incendio que pueda ocurrir.

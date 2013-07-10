@@ -1,0 +1,1 @@
+Artículo 2.30.- Si un dictamen es rechazado podrá ser devuelto a la comisión de origen para su rectificación y presentarse en la siguiente sesión; o bien, podrá ser resuelto en los términos propuestos por cualesquiera de los integrantes, si existiera consenso para ello.

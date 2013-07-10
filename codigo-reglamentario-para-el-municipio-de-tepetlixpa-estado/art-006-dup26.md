@@ -1,0 +1,2 @@
+Artículo 6.26.- Las personas registradas como distribuidores de agua potable en carros pipa podrán adquirir del Ayuntamiento, el agua potable que requieran, de acuerdo a la disponibilidad del recurso, previo pago de las tarifas establecidas y presentación del registro oficial como distribuidores de agua potable.
+Una vez que el Ayuntamiento suministre el agua potable a los carros pipa, corresponde a los distribuidores la conservación de su calidad de acuerdo a las normas oficiales mexicanas aplicables.

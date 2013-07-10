@@ -1,0 +1,1 @@
+Artículo 8.17.- En caso de que las condiciones bajo las que se otorgó la licencia de funcionamiento hayan variado, el interesado lo informará y deberá solicitar la expedición de una nueva, conforme a lo estipulado en este ordenamiento.

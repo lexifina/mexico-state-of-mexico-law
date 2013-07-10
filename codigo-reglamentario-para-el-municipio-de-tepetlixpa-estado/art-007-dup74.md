@@ -1,0 +1,1 @@
+Artículo 7.74.- La Gaceta Municipal se editará y distribuirá por la Secretaría del Ayuntamiento, una vez a la semana, pudiéndose publicar en cualquier otro día cuando las necesidades del servicio lo requieran. Cada dos meses se editará una compilación de las gacetas correspondientes al período.

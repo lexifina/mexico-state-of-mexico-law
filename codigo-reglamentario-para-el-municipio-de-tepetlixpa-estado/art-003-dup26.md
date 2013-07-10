@@ -1,0 +1,5 @@
+Artículo 3.23 C.- Dentro de las funciones de la Casa de la Cultura se encuentran las siguientes:
+I. Promover, rescatar y difundir los valores culturales de nuestro municipio;
+II. Exhortar e incorporar a la vida cultural activa a todas las personas posibles, sin distinción de ideología, partido político o inclinación religiosa;
+III. El H. Ayuntamiento a través de la Casa de Cultura realizara las siguientes actividades: Domingos Culturales, obras de teatro, exposiciones pictóricas, fotográficas, artesanales, muestras de cine y video, conciertos de música clásica y popular, conferencias, recitales, danza tanto clásica como folklórica, prestaciones y comentarios de libros, talleres artísticos y todas las actividades que aumentan la cultura de los habitantes de nuestro municipio; y
+IV. Fomentar y difundir las actividades de lectura por medio de la Biblioteca pública, así como también de las actividades en la ludoteca municipal y brindara servicios en el módulo digital sin costo alguna (sic) para la comunidad.

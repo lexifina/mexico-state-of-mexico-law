@@ -1,0 +1,1 @@
+Artículo 8.61.- Ningún espectáculo o diversión que se realice en salones, teatros, en la calle, plaza, local abierto o cerrado, podrán llevar a cabo publicidad, venta de boletos o abrir al público sin el permiso previo y por escrito de la Jefatura de Reglamentos, para la realización de los eventos.

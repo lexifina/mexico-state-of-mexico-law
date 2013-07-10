@@ -1,0 +1,2 @@
+Artículo 7.99. - El Oficial expedirá copias de las actas informativas relativas al extravío de documentos, mismas que se levantarán a petición del interesado.
+Los documentos a que se refiere el presente artículo serán: Licencia de conducir, documentos escolares, facturas de empresas, recibos de honorarios, tarjeta de circulación, registro federal de vehículos, engomado permanente, identificaciones varias y otros similares.

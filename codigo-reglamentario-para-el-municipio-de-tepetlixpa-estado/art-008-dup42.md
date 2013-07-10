@@ -1,0 +1,1 @@
+Artículo 8.42.- Cuando por alguna de las causas previstas en este capítulo, el Ayuntamiento recupere locales comerciales en el mercado, podrá otorgarlos en arrendamiento a nuevos locatarios bajo el procedimiento y selección de candidatos que defina la Jefatura de Reglamentos.

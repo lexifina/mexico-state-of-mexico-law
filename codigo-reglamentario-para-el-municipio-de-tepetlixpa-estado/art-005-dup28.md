@@ -1,0 +1,7 @@
+SECCIÓN SEGUNDA
+DE LA ELECCIÓN DE LOS CONSEJOS
+Artículo 5.28.- La elección de los miembros de los Consejos se realizará durante el periodo comprendido entre el segundo domingo de marzo y el 30 del mismo mes del primer año de gobierno municipal, en términos de la convocatoria que expida el Ayuntamiento, por lo menos quince días antes de la fecha de esa elección.
+El presente Código Reglamentario contemplará los siguientes tipos de elección: asamblea comunitaria, elección mediante voto libre, directo y secreto y designación por el Ayuntamiento, los cuales se llevarán a cabo de la siguiente manera:
+I. Asamblea comunitaria. Se verificará en aquellas Unidades Territoriales donde se registre una sola fórmula o planilla; la Comisión Edilicia Transitoria convocará a los ciudadanos a la celebración de una asamblea pública, con el propósito de ratificar mediante voto directo a la fórmula o planilla propuesta;
+II. Elección mediante voto libre, directo y secreto. Se realizará en aquellas comunidades en donde se registraron dos o más fórmulas o planillas la Comisión Edilicia Transitoria instalará una mesa receptora de votos que serán depositadas en urnas transparentes para garantizar la voluntad ciudadana; y
+III. Designación por la autoridad municipal. En aquellas unidades territoriales en donde no se registró ninguna fórmula o planilla, será facultad del Ayuntamiento designar al Consejo correspondiente, a efecto de que éstas cuenten con representación.

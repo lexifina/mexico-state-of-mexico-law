@@ -1,0 +1,1 @@
+Artículo 6.57.- Los propietarios o responsables de clínicas, hospitales, laboratorios de análisis clínicos o similares, habrán de esterilizar o incinerar los residuos de riesgo que generen, mediante el equipo e instalaciones debidamente autorizadas. Bajo ninguna excusa estará permitido depositarlos en los contenedores, botes de basura o relleno sanitario.

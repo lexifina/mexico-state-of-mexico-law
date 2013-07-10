@@ -1,0 +1,1 @@
+Artículo 4.12.- Cada uno de los servidores públicos municipales tiene la obligación de mantener en perfecto estado de orden y limpieza el lugar donde realiza sus labores, así como también la maquinaria, equipos, instrumentos y útiles de trabajo, con los elementos que para tal fin le proporcione la autoridad respectiva.

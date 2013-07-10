@@ -1,0 +1,1 @@
+Artículo 4.5.- En caso de que el servidor público no pueda cobrar su salario personalmente, por enfermedad o causa de fuerza mayor, el pago podrá hacerse a la persona que expresamente el interesado designe por medio de carta poder, quien deberá acreditarse de manera fehaciente ante el pagador habilitado.

@@ -1,0 +1,8 @@
+SECCIÓN SEGUNDA
+DE LA ELECCIÓN DE LOS DELEGADOS Y SUBDELEGADOS
+Artículo 5.4.- La elección de los Delegados y Subdelegados se realizará en la fecha señalada en la convocatoria, entre el segundo domingo de marzo y el 30 de ese mes del primer año de gobierno del Ayuntamiento.
+La convocatoria deberá expedirse cuando menos diez días antes de la elección. Sus nombramientos serán firmados por el Presidente Municipal y el Secretario del Ayuntamiento, entregándose a los electos a más tardar el día en que entren en funciones, que será el 15 de abril del mismo año.
+|Los procedimientos de elección son los siguientes: elección mediante voto libre, directo y secreto, asamblea comunitaria, y designación por el Ayuntamiento, los cuales se llevarán a cabo de la siguiente manera:
+I. Elección mediante voto libre, directo y secreto: Se realizará en aquellas circunscripciones territoriales en donde se registraron dos o más formulas, la Comisión Transitoria Edilicia instalará una mesa receptora de votos en cada unidad territorial, que conforman las circunscripciones territoriales enunciadas en el Bando Municipal, para determinar la voluntad de los ciudadanos;
+II. Asamblea comunitaria: Se verificará en aquellas circunscripciones territoriales donde se registre una sola formula, la Comisión Transitoria Edilicia convocará a los ciudadanos de la circunscripciones territoriales a la celebración de una asamblea pública, con el propósito de ratificar mediante voto directo a la planilla propuesta; y
+III. Designación por la autoridad municipal: En aquellas circunscripciones territoriales en donde no se registró ninguna fórmula, será facultad del Ayuntamiento designar a las autoridades correspondientes, a efecto de que éstas cuenten con representación y gestoría.

@@ -1,0 +1,1 @@
+Artículo 8.86.- Para ejercer la actividad los molinos de nixtamal, tortillerías y molinos de nixtamal-tortillerías, se requiere de la licencia de funcionamiento expedida por la Tesorería Municipal de Tepetlixpa, a través de la jefatura de reglamentos, debiendo cumplir con los requisitos que señala el presente capitulo y las demás disposiciones legales aplicables.

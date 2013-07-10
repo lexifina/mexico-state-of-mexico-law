@@ -1,0 +1,1 @@
+Artículo 7.68.- En la Tesorería Municipal de Tepetlixpa, tendrá el número de notificadores ejecutores que se requiera, para llevar a cabo el procedimiento administrativo de ejecución, cuyos salarios serán cubiertos con cargo al presupuesto de egresos respectivo.

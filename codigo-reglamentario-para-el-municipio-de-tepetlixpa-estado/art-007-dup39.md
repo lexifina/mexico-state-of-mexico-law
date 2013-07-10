@@ -1,0 +1,3 @@
+CAPÍTULO SÉPTIMO
+DE LA ADQUISICIÓN, ENAJENACIÓN Y ARRENDAMIENTO DE BIENES Y LA CONTRATACIÓN DE SERVICIOS
+Artículo 7.39.- Los actos relativos a la planeación, programación, presupuestación, ejecución y control de la adquisición, enajenación y arrendamiento de bienes, y la contratación de servicios de cualquier naturaleza, que realicen el Ayuntamiento, el Presidente Municipal, las dependencias de la Administración Pública Municipal y organismos auxiliares, se regularán por la Constitución Federal, la Constitución Estatal, el Libro Décimo Tercero del Código Administrativo, el Reglamento del Libro Décimo Tercero del Código Administrativo, el presente capítulo y demás disposiciones aplicables.

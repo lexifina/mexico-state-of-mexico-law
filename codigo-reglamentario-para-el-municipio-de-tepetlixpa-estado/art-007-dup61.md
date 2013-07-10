@@ -1,0 +1,3 @@
+CAPÍTULO DÉCIMO PRIMERO
+DE LOS VISITANTES DISTINGUIDOS
+Artículo 7.61.- Las personalidades nacionales y extranjeras que visiten oficial o formalmente el Municipio, podrán ser declarados visitantes distinguidos por el Ayuntamiento, a propuesta de cualquiera de sus integrantes, quienes a su vez podrán recibir al respecto las solicitudes de los ciudadanos, instituciones y dependencias.

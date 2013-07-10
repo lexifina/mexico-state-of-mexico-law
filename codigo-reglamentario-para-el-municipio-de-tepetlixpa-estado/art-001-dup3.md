@@ -1,0 +1,1 @@
+Artículo 1.3.- Conforme al objeto del Código Reglamentario, cuando alguna ley u otro ordenamiento jurídico mencionen a determinado reglamento o reglamentación municipal, se entenderá que se refiere al presente ordenamiento, en sus correspondientes títulos, capítulos, secciones o artículos.

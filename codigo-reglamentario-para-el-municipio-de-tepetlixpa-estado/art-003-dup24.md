@@ -1,0 +1,1 @@
+Artículo 3.23 A.- La Coordinación de Educación, Cultura y Deporte, creara, administrará y ampliará el acervo y cobertura de las bibliotecas y de la Casa de Cultura Municipal "Rosario de la Peña", manteniendo sus instalaciones en buen estado, además de promover el rescate de la (sic) que se encuentren indebidamente utilizadas por terceros.

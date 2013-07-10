@@ -1,0 +1,1 @@
+Artículo 2.8.- El Ayuntamiento sesionará cuando menos una vez a la semana. Podrá declararse en sesión permanente cuando la importancia del asunto lo requiera. En los períodos vacacionales que sean determinados por el Ayuntamiento, se suspenderán las sesiones ordinarias.

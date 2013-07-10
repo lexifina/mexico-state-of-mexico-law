@@ -1,0 +1,1 @@
+Artículo 4.34.- El Presidente Municipal es competente para identificar, investigar y determinar las responsabilidades administrativas en que pudiere incurrir el Contralor Municipal, así como para aplicarle las sanciones que correspondan, conforme a la ley de la materia.

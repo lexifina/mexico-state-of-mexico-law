@@ -1,0 +1,2 @@
+Artículo 3.14.- La Tesorería Municipal, para el cumplimiento de sus atribuciones, se auxiliará del Subtesorero, que tendrá las mismas atribuciones que el Tesorero Municipal, de la Coordinación de Administración, de la Dirección de Recursos Humanos, del Comité de Adquisiciones de Bienes Muebles, Inmuebles, Enajenaciones, Arrendamiento y Contratación de Servicio y de la Jefatura de Catastro.
+DE LA COORDINACIÓN DE ADMINISTRACIÓN.

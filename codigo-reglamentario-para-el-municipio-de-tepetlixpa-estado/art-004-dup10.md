@@ -1,0 +1,2 @@
+Artículo 4.10.- Las sanciones disciplinarias a los integrantes del cuerpo de seguridad pública municipal, a que se refiere la Ley de Seguridad Pública del Estado de México, se aplicarán por el Director de Seguridad Pública y por la Comisión de Honor y Justicia.
+En lo que toca a la remoción en el cargo, el procedimiento administrativo se tramitará y resolverá de acuerdo a los lineamientos que marca la ley en cita por la Contraloría Interna Municipal.

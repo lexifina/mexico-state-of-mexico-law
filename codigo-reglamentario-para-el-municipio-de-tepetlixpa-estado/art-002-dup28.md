@@ -1,0 +1,1 @@
+Artículo 2.28.- Las votaciones secretas, se harán por cedula asegurando el secreto del voto y se depositarán en un ánfora, cuando así lo acuerden las dos terceras partes de los miembros del Ayuntamiento presentes. El Secretario del Ayuntamiento procederá al recuento de la votación y manifestará en voz alta el resultado.

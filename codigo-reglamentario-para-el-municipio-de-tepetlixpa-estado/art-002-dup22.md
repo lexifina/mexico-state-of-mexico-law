@@ -1,0 +1,1 @@
+Artículo 2.22.- Cuando un dictamen, propuesta u ofrecimiento constare de más de un asunto, se procurará discutir primero en lo general y se declarará que ha lugar a votar. Se discutirá después cada asunto en lo particular. En el caso de ordenamientos reglamentarios, la votación en lo general y en lo particular podrá realizarse en diferentes sesiones.

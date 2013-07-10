@@ -1,0 +1,1 @@
+Artículo 6.69.- La inhumación e incineración de cadáveres procederá cuando así lo haya autorizado el Oficial del Registro Civil o el Agente del Ministerio Público, en caso de muerte violenta o de desconocidos.

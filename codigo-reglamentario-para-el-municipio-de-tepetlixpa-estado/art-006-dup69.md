@@ -1,0 +1,6 @@
+Artículo 6.70.- El horario para el funcionamiento de los panteones será de 8:30 a 18:00 horas diariamente, incluyendo domingos y días festivos, dentro del mismo lapso se iniciarán y terminarán todos los servicios que se presten con las siguientes excepciones:
+I. Las inhumaciones se realizarán de las 11:00 a las 17:00 horas; y
+II. Las exhumaciones, entre las 9:00 y las 11:00 horas.
+Toda persona ajena a la administración del panteón deberá abandonar el mismo a más tardar a las 18:00 horas, a excepción de las salas velatorias.
+En casos extraordinarios o de fuerza mayor, en que tenga que ser sepultado un cuerpo de inmediato, se hará siempre y cuando se cuente con la orden emitida por autoridad o médico competente.
+Los servicios mencionados con anterioridad deberán celebrarse dentro de los horarios fijados; la administración no contraerá ninguna responsabilidad en caso de que el cortejo fúnebre no llegue al panteón con la oportunidad debida.

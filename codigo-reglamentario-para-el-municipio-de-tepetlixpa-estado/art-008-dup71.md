@@ -1,0 +1,3 @@
+Artículo 8.71.- Las ferias y circos no podrán establecerse en plazas, jardines y parques, que a juicio de la autoridad municipal, sean inconvenientes para el ornato de los mismos o para su conservación.
+Las empresas que promuevan ferias, circos, carpas y similares, deberán conservar en buenas condiciones de higiene, las vías y lugares públicos que ocupen, evitando además su deterioro.
+La Jefatura de Reglamentos podrá en todo tiempo ordenar la suspensión de esta clase de diversiones, así como el retiro de las instalaciones, ya sea por motivo de queja o porque así lo estime conveniente para el interés público. Los permisionarios gozarán de un plazo improrrogable de 24 horas a partir del momento en que reciban la notificación oficial para realizar el retiro que se ordene.

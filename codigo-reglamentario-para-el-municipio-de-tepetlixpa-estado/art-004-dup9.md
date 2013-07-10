@@ -1,0 +1,1 @@
+Artículo 4.9.- Los elementos policiales tendrán derecho a vacaciones, que se otorgarán en forma escalonada, preferentemente en dos períodos de diez días laborables cada uno, siempre y cuando hayan cumplido seis meses en la corporación.

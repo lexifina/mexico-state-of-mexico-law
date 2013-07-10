@@ -1,0 +1,1 @@
+Artículo 6.32.- El aprovechamiento o reúso de aguas residuales provenientes del alcantarillado, previamente a su descarga en cuerpos receptores nacionales, por parte de los particulares, requiere permiso del Ayuntamiento y el pago de los derechos correspondientes.

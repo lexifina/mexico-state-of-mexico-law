@@ -1,0 +1,3 @@
+Artículo 7.78.- Procede la fe de erratas de las publicaciones en la Gaceta Municipal, por errores de impresión y por errores en el texto de los documentos originales.
+En los casos de errores de impresión, la Secretaría del Ayuntamiento, por sí o a petición del interesado, ordenará la inserción de la fe de erratas.
+Tratándose de errores de contenido en el documento original, la Secretaría del Ayuntamiento, a petición del responsable de la publicación, ordenará la inserción de la fe de erratas.

@@ -1,0 +1,1 @@
+Artículo 8.48.- La autoridad municipal tendrá la facultad para reubicar los tianguis existentes en el Municipio, cuando a su juicio lo requiera el orden público o medie otro motivo de interés general.

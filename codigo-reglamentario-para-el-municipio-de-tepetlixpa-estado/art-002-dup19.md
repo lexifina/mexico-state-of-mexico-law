@@ -1,0 +1,1 @@
+Artículo 2.19.- Las comisiones del Ayuntamiento participarán cuantas veces sea necesario en las discusiones de los asuntos de su competencia, para aclarar o ampliar la información en que sustenten sus dictámenes.

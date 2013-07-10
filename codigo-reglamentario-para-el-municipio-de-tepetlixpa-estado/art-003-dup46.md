@@ -1,0 +1,1 @@
+Artículo 3.43.- La organización y funcionamiento del Instituto Municipal de Cultura Física y Deporte de Tepetlixpa estarán sujetos a la Ley de Cultura Física y Deporte del Estado de México, la Ley Orgánica Municipal, el Bando Municipal, el presente ordenamiento, su reglamentación interna y demás preceptos jurídicos que resulten aplicables.

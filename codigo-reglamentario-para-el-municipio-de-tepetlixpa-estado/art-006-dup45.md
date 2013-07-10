@@ -1,0 +1,1 @@
+Artículo 6.46.- Es deber de las personas físicas o jurídicas colectivas, dar aviso a la autoridad municipal correspondiente, antes de iniciar cualquier actividad que pueda afectar la infraestructura del alumbrado público, para que se tomen las medidas necesarias.

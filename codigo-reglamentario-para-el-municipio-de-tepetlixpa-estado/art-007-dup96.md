@@ -1,0 +1,5 @@
+Artículo 7.96.- Una vez que haya declarado el promovente, se le proporcionará el primer citatorio dirigido a la contraparte, en el cual se señalará día y hora para que tenga verificativo la audiencia de mediación-conciliación, que se desarrollará de la siguiente forma:
+I. El Oficial abrirá la audiencia dando cuenta de la comparecencia de las partes.
+A la contraparte se le recabarán sus generales, protestándole en términos de ley para que se conduzca con verdad en la diligencia y se le hará saber el motivo por el cual fue citada, por medio de la lectura de la declaración del promovente; y
+II. El Oficial procederá a escuchar a las partes, exhortándolos a que lleguen a un acuerdo. El Oficial propondrá soluciones para terminar con el conflicto. En caso de que se logre un acuerdo, tomará constancia del mismo y suscribirá acta de mutuo respeto o convenio, según corresponda. Si por el contrario, no llegasen a un arreglo, se hará constar de ese modo, dejando a salvo los derechos de las partes.
+De cualquier actuación realizada en la audiencia se podrá expedir a las partes, copia certificada de ella, previa solicitud y pago de los derechos correspondientes.

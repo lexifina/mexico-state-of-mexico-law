@@ -1,0 +1,1 @@
+Artículo 2.26.- Serán votaciones nominales tratándose de la aprobación del Bando Municipal y sus reformas, así como de todos aquellos casos que así lo acuerden cuando menos las dos terceras partes de los miembros del Ayuntamiento que se encuentren presentes.

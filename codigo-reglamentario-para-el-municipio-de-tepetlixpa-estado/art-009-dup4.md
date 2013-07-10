@@ -1,0 +1,1 @@
+Artículo 9.4.- Para el otorgamiento de la licencia de uso específico de suelo de cualquier tipo de local comercial, industrial o de servicios, se deberá contar con la opinión favorable de la Dirección Reglamentos (sic) Municipal.

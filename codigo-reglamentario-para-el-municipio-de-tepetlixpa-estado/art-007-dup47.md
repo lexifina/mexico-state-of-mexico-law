@@ -1,0 +1,1 @@
+Artículo 7.47.- Los servidores públicos habilitados serán designados por el titular de cada dependencia de la Administración Pública Centralizada o de los organismos auxiliares, en su carácter de sujetos obligados.

@@ -1,0 +1,1 @@
+Artículo 9.3.- Para el otorgamiento de la licencia de construcción se deberá contar con el dictamen favorable de factibilidad de servicios de agua potable y drenaje, expedida por la Regiduría encargada de dicha comisión.

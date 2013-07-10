@@ -1,0 +1,1 @@
+Artículo 8.88.- Las tortillerías (sic) elaboradas en fondas, restaurantes, taquerías y bares, para su propio consumo no requieren licencia de funcionamiento. En caso de que un almacén o supermercado la solicite para instalar una tortillería en su interior, deberá cumplir con todas las disposiciones del presente capitulo.

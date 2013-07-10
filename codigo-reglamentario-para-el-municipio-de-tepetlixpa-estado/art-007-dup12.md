@@ -1,0 +1,3 @@
+SECCIÓN TERCERA
+DE LA PRESERVACIÓN Y FOMENTO DE LA VIDA SILVESTRE
+Artículo 7.12.- La preservación, conservación, restauración, recuperación, rehabilitación, protección y fomento para el aprovechamiento sostenible de la flora y fauna que coexistan en condiciones naturales, temporales, permanentes o en cautiverio, correspondientes a la competencia municipal, se regirán por la Constitución Federal, la Constitución Estatal, la Ley General de Vida Silvestre, el Libro Quinto del Código para la Biodiversidad del Estado, el Reglamento del Libro Quinto del Código para la Biodiversidad del Estado, la presente sección y demás disposiciones vinculadas.

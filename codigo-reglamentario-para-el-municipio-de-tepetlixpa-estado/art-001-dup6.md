@@ -1,0 +1,1 @@
+Artículo 1.6.- Los plazos fijados por el presente Código Reglamentario se computarán en días naturales, por lo que se entenderán comprendidos en ellos los días no laborables, salvo que alguna disposición del propio ordenamiento señale que se trate de días hábiles.

@@ -1,0 +1,1 @@
+Artículo 8.6.- Para obtener la autorización de cambio de giro es preciso que se solicite por escrito, en las formas que para tal efecto se expidan, en las que se asentarán los datos exigidos, bajo protesta de decir verdad.

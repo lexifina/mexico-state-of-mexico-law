@@ -1,0 +1,1 @@
+Artículo 4.35.- La responsabilidad patrimonial del Municipio y de sus servidores públicos, que con motivo de la actividad administrativa irregular cause daños en los bienes o derechos de los particulares, se ajustará a lo dispuesto en la Constitución Federal, el Código de Procedimientos Administrativos y otras normas jurídicas aplicables.

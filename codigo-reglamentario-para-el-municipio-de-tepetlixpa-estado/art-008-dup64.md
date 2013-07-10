@@ -1,0 +1,1 @@
+Artículo 8.64.- En cualquier tipo de evento, queda prohibido introducir armas de fuego, armas blancas o cualquier artefacto que a consideración de la autoridad municipal pueda ser utilizado para causar daños físicos o materiales a los asistentes, aun tratándose de militares y policías que no estén en servicio.

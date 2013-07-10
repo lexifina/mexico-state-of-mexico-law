@@ -1,0 +1,4 @@
+Artículo 6.27.- La distribución de agua potable en carros tanque se sujetará a lo siguiente:
+I. El agua potable que se distribuya deberá cumplir con los parámetros de potabilización establecidos en las normas oficiales mexicanas ambientales y sanitarias aplicables;
+II. Los carros pipa en que se distribuya agua potable deberán ser exclusivamente destinados a este servicio y cumplir con las normas oficiales mexicanas ambientales y sanitarias respectivas, así como las disposiciones que para tal efecto apruebe el Ayuntamiento; y
+III. Los usuarios no podrán utilizar, para la recepción y almacenamiento del agua potable, recipientes que hubiesen sido usados como contenedores de sustancias, materiales y residuos considerados como peligrosos o nocivos para la salud, conforme a las normas oficiales mexicanas correspondientes.

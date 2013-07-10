@@ -1,0 +1,3 @@
+Artículo 5.20.- En los casos de ausencia definitiva, de los Delegados y Subdelegados se llamará al suplente respectivo.
+En el supuesto de que éste no pudiera asumir el cargo, se llamará al que le siga en número.
+Si por alguna causa ninguno de los suplentes pudiera asumir el cargo, el Ayuntamiento designará a la persona que ejerza esa función.

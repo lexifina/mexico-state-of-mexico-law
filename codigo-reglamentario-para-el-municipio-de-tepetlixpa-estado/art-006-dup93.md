@@ -1,0 +1,4 @@
+Artículo 6.94.- La adecuada forestación de banquetas, camellones y aquellas áreas de donación que el Municipio determine en el procedimiento de autorización de conjuntos urbanos de nueva creación, deberá ser por cuenta del titular y se apegará a lo siguiente:
+I. Utilizar sólo especies adecuadas según la imagen urbana o la recomendada por la autoridad municipal;
+II. La planta utilizada deberá cumplir las características en cuanto a tamaño, salud y estado físico que marque la Regiduría con la comisión de Panteones, Jardines y Parques; y
+III. Las dimensiones y distancia entre las cepas, la preparación de las mismas, y la tierra a utilizar deberá ser según lo indique la propia autoridad municipal.

@@ -1,0 +1,2 @@
+Artículo 8.51.- Los puestos establecidos en los tianguis guardarán un orden y se ajustarán al espacio y diseño autorizado, debiendo reunir condiciones mínimas de seguridad, higiene y estética en su funcionamiento y presentación.
+Las cubiertas o lonas de los puestos de tianguis deberán tener una altura máxima de 2.40 metros y no podrán sujetarse en las edificaciones existentes, construcciones históricas, árboles o vegetación.

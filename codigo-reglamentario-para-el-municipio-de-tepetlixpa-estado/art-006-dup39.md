@@ -1,0 +1,1 @@
+Artículo 6.40.- Las obras de alumbrado público realizadas por particulares que tengan que ser recibidas por el Municipio, deberán apegarse a las disposiciones legales aplicables, así como a las especificaciones técnicas para los equipos de iluminación e infraestructura.

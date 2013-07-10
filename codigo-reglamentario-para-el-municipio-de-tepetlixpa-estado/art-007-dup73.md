@@ -1,0 +1,3 @@
+CAPÍTULO DÉCIMO TERCERO
+DE LA GACETA MUNICIPAL
+Artículo 7.73.- La Gaceta Municipal es el órgano informativo del Municipio, de carácter permanente, donde se publican el Bando Municipal, el presente Código Reglamentario Municipal, los acuerdos tomados por el Ayuntamiento y actos o resoluciones de interés del Presidente Municipal, dependencias administrativas, organismos auxiliares, autoridades auxiliares y particulares.

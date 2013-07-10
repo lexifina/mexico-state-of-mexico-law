@@ -1,0 +1,2 @@
+Artículo 7.91.- Todas las declaraciones se rendirán bajo protesta de decir verdad y bajo el apercibimiento de las penas en que incurren los que declaran falsamente ante alguna autoridad en el ejercicio de sus funciones.
+La expedición de copias certificadas y el levantamiento de actas informativas, las realizará el Oficial y serán certificadas por el Secretario de Acuerdos, previo pago de los derechos correspondientes en la Tesorería Municipal, conforme a lo que señala el Código Financiero.

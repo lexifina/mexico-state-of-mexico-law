@@ -1,0 +1,1 @@
+Artículo 6.61.- Los propietarios de terrenos baldíos tienen la obligación de conservarlos limpios y evitar que se conviertan en focos de contaminación del ambiente y de fauna nociva. La autoridad municipal podrá bardear dichos terrenos y cobrar los gastos al propietario a través del procedimiento administrativo de ejecución que regula el Código Financiero.

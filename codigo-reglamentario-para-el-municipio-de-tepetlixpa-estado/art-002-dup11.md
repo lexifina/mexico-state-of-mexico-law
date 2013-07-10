@@ -1,0 +1,1 @@
+Artículo 2.11.- Las sesiones ordinarias, extraordinarias y solemnes se celebrarán en el Salón de Cabildos del Palacio Municipal. Podrán realizarse en otro lugar, que previamente el Ayuntamiento haya declarado como recinto oficial para tal efecto.

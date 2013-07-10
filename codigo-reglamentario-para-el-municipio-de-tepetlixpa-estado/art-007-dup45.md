@@ -1,0 +1,1 @@
+Artículo 7.45.- El Comité de Información de la Administración Pública Municipal Centralizada, a que se refiere la Ley de Transparencia y Acceso a la Información Pública del Estado de México y Municipios, será integrado por el Titular de la Unidad de Información que lo presidirá, y el Contralor Municipal.

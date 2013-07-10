@@ -1,0 +1,8 @@
+Artículo 6.95.- El derribo, poda, extracción o remoción de vegetación de un área verde pública sólo podrá efectuarse previa autorización de la Regiduría con la comisión de Panteones, Jardines y Parques, en los casos de que:
+I. Ponga en riesgo la integridad física de personas, bienes o la infraestructura urbana;
+II. Quede comprobado que el vegetal está muerto o tenga enfermedad o plaga severa y con riesgos de contagio;
+III. Afecte significativamente la imagen urbana;
+IV. Compruebe que es de utilidad pública; y
+V. Queden plenamente justificados.
+Para efectos de la autorización, los interesados deberán presentar solicitud por escrito, en la que expresarán los motivos y circunstancias de su petición.
+Posteriormente la autoridad municipal realizará inspección en el lugar correspondiente, dictaminando lo conducente para proceder a otorgar o no la autorización.

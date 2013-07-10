@@ -1,0 +1,2 @@
+Artículo 5.18.- Las actividades que se realicen en la delegación o subdelegación por motivos sociales, culturales y festivos, con fines de lucro, requieren previamente el permiso de la autoridad municipal.
+Los Delegados y Subdelegados, en términos de sus atribuciones, deberán solicitar a la Tesorería Municipal por medio del Titular de la Jefatura de Reglamentos a que acuda a supervisar los eventos a que se refiere el párrafo anterior, e intervenirlos en su caso.

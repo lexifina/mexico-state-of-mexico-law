@@ -1,0 +1,1 @@
+Artículo 8.97.- Los interesados en obtener una licencia en funcionamiento de los molinos de nixtamal, tortillerías y molinos de nixtamal-tortillerías, deberán dirigir su solicitud al Presidente Municipal a través de la oficialía de partes, cubriendo todos los requisitos y llenando las formas autorizadas para tal efecto establecidas por la Tesorería Municipal.

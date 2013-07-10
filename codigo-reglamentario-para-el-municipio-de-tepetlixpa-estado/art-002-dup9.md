@@ -1,0 +1,1 @@
+Artículo 2.9.- Serán extraordinarias las sesiones que se celebren cuando algún asunto lo requiera, para ello bastará la convocatoria del Presidente Municipal o la solicitud de cuando menos, la mitad más uno de los miembros del Ayuntamiento.
