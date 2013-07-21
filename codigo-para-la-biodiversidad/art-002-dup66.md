@@ -17,8 +17,16 @@ XIII. Granjas agrícolas, acuícolas o pecuarias de explotación intensiva;
 XIV. Obras y actividades en áreas naturales protegidas de competencia estatal o municipal;
 XV. Centrales de abasto y mercados;
 XVI. Panteones y crematorios;
-XVII. Estaciones de servicio o gasolineras y estaciones de servicio de gas carburante, bodegas de almacenamiento de cilindros y contenedores de gas y actividades donde se manejen y almacenen sustancias riesgosas, cuando no sean competencia del Gobierno Federal; y
-XVIII. Las demás que se establezcan en el reglamento de este Libro que puedan causar impactos ambientales significativos de carácter adverso y que, por razón de la obra o actividad de que se trate no sean de jurisdicción federal.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCIÓN, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(REFORMADA, G.G. 18 DE JULIO DE 2013)
+XVII. Estaciones de servicio o gasolineras y estaciones de servicio de gas carburante, bodegas de almacenamiento de cilindros y contenedores de gas y actividades donde manejen y almacenen sustancias riesgosas, cuando no sean competencia del Gobierno Federal;
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCIÓN, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(ADICIONADA, G.G. 18 DE JULIO DE 2013)
+XVIII. La prestación del servicio de guarda, custodia, reparación o depósito de vehículos; con excepción de los estacionamientos públicos;
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCIÓN, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(ADICIONADA, G.G. 18 DE JULIO DE 2013)
+XIX. Comercio, guarda, almacenamiento o depósito de vehículos de desecho o autopartes usadas;
+XX. Las demás que se establezcan en el reglamento de este Libro que puedan causar impactos ambientales significativos de carácter adverso y que, por razón de la obra o actividad de que se trate no sean de jurisdicción federal.
 La Secretaría podrá eximir de la evaluación del impacto o riesgo ambiental a aquellos proyectos que, si bien se encuentren previstos en este artículo, no produzcan impactos ambientales significativos de carácter adverso o no causen desequilibrios a la biodiversidad y sus recursos asociados, debido a su ubicación, dimensiones o características, de acuerdo a la reglamentación de este Libro.
 Para el caso de la obra pública, el reglamento del presente libro establecerá el procedimiento y requisitos para la evaluación del impacto ambiental.
 La manifestación deberá contener, por lo menos, una descripción y evaluación de los efectos que previsiblemente podrá tener el proyecto específico en el o los ecosistemas, considerando el conjunto de los elementos que los conforman, así como las medidas preventivas, de mitigación y las necesarias para evitar y reducir al mínimo los efectos negativos sobre el ambiente. En el caso de las actividades riesgosas, la manifestación de impacto ambiental deberá de acompañarse de un estudio de riesgo.
