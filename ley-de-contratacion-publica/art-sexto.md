@@ -1,0 +1,1 @@
+ARTÍCULO SEXTO.- A partir del inicio de vigencia de este Decreto, las dependencias dispondrán de noventa días naturales para llevar a cabo las modificaciones a sus respectivos Reglamentos Interiores y demás disposiciones que deban adecuarse en virtud del presente Decreto.

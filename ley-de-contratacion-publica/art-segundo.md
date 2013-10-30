@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- El presente ordenamiento entrará en vigor a los ciento ochenta días naturales siguientes al de su publicación y deroga el Libro Décimo Tercero del Código Administrativo del Estado de México.

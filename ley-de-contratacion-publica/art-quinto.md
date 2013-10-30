@@ -1,0 +1,1 @@
+ARTÍCULO QUINTO.- Las disposiciones administrativas expedidas en esta materia, y sistemas informáticos vigentes al momento de la publicación de este ordenamiento, se seguirán aplicando en todo lo que no se oponga a la presente Ley, en tanto se expiden las disposiciones y sistemas que deban sustituirlos.

@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO.- Los procedimientos adquisitivos, de inconformidades y de aplicación de sanciones, así como los demás asuntos que se encuentren en trámite o pendientes de resolución se tramitarán y resolverán conforme a las disposiciones vigentes al momento en el que se iniciaron.
