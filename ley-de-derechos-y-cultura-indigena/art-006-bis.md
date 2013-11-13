@@ -1,0 +1,3 @@
+(ADICIONADO, G.G. 12 DE NOVIEMBRE DE 2013)
+Artículo 6 Bis.- La Legislatura del Estado de México, para efectos de otorgar precisión y certeza jurídica a los integrantes de los pueblos y comunidades indígenas y con la finalidad de que puedan acceder a los beneficios de las políticas públicas sectorizadas, integrará un catálogo, que no será limitativo, de las localidades con presencia indígena a partir de la información que le proporcione el Consejo Estatal para el Desarrollo Integral de los Pueblos Indígenas del Estado de México.
+Las localidades indígenas del Estado de México que la presente Ley reconoce, serán las que apruebe la Legislatura del Estado, con base en la información referida.

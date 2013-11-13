@@ -7,8 +7,8 @@ DECRETO NUMERO 94
 LA H. "LIV" LEGISLATURA DEL ESTADO DE MEXICO
 DECRETA:
 LEY DE DERECHOS Y CULTURA INDIGENA DEL ESTADO DE MEXICO
+(REFORMADA SU DENOMINACIÓN, G.G. 12 NOVIEMBRE DE 2013)
 TITULO PRIMERO
-De los Pueblos y las Comunidades
-Indígenas del Estado de México
+De los Pueblos, las Localidades y las Comunidades Indígenas del Estado de México
 CAPITULO I
 Disposiciones generales

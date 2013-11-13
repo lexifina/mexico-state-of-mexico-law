@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 12 DE NOVIEMBRE DE 2013)
+Artículo 6 Ter.- La presente Ley reconoce a los indígenas de origen nacional procedentes de otro estado de la república y avecindados en el Estado de México, quienes podrán acogerse en lo conducente a los beneficios que esta ley, el orden jurídico mexicano y los Tratados Internacionales les reconocen, respetando las tradiciones de las comunidades donde residan, pudiendo tener acceso a dichos beneficios en forma colectiva o individual.
