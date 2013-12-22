@@ -40,3 +40,5 @@ XXXVI. Promover e invertir en el mejoramiento de la infraestructura en las área
 XXXVII. Promover el desarrollo de plantaciones forestales comerciales incentivando la reconversión de aquellos terrenos de vocación forestal que actualmente están abandonados o dedicados a actividades agropecuarias marginales;
 XXXVIII. Fortalecer y ampliar la participación de la producción forestal en el crecimiento económico estatal; y
 XXXIX. Hacer del conocimiento de las autoridades competentes y denunciar las infracciones, faltas administrativas o delitos que se cometan en materia forestal.
+(ADICIONADA, G.G. 19 DE DICIEMBRE DE 2013)
+XL. Integrar e implementar el Sistema Estatal de Monitoreo, Registro y Verificación de reducción de emisiones, e incorporar su contenido al Sistema Nacional de Monitoreo, Registro y Verificación.

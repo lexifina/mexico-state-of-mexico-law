@@ -1,4 +1,4 @@
-Artículo 6.4. Las autoridades del Estado de México y la sociedad en general reconocen los siguientes principios:
+Articulo 6.4. Las autoridades del Estado de México y la sociedad en general reconocen los siguientes principios:
 l. Toda persona tiene la obligación de proteger a los animales;
 II. Ningún ser humano puede exterminar a los animales o explotarlos para ejecutar trabajos más allá de aquellos que por sus características de especie puedan realizar, con la obligación de ponerles la atención debida;
 III. Los dueños o poseedores de animales, tienen la obligación de brindarles la atención y cuidado que requieran;

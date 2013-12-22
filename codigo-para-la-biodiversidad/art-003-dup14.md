@@ -24,3 +24,5 @@ XX. Participar y coadyuvar en las acciones de prevención y combate de incendios
 XXI. Desarrollar viveros y apoyar programas de producción de plantas;
 XXII. Hacer del conocimiento a las autoridades competentes y denunciar las infracciones, faltas administrativas o delitos que se cometan en materia forestal; y
 XXIII. Regular y vigilar la disposición final de residuos provenientes de la extracción de materias primas forestales.
+(ADICIONADA, G.G. 19 DE DICIEMBRE DE 2013)
+XXIV. Coadyuvar con el Gobierno del Estado en la integración e implementación del Sistema Estatal de Monitoreo, Registro y Verificación de reducción de emisiones.

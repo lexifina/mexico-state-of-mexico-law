@@ -15,7 +15,8 @@ g) El manejo y disposición final de los residuos sólidos que no sean peligroso
 h) La regulación de las zonas estatales que tengan un valor escénico o de paisaje para protegerlas de la contaminación visual.
 i) Las demás acciones análogas en materia ambiental que se consideren necesarias.
 IV. Aplicar los criterios de la Federación en las obras e instalaciones municipales de tratamiento de aguas residuales a fin de que las descargas en los cuerpos y corrientes de agua que pasen al territorio de otro Estado satisfagan las normas oficiales mexicanas aplicables;
-V. Aprobar e instrumentar el ordenamiento ecológico del Territorio del Estado con la participación de los Ayuntamientos;
+(REFORMADA, G.G. 19 DE DICIEMBRE DE 2013)
+V. Aprobar e instrumentar el ordenamiento ecológico del Territorio del Estado con la participación de los ayuntamientos, considerando la información sobre las regiones o zonas geográficas vulnerables a los efectos adversos del cambio climático;
 VI. Celebrar convenios de coordinación con la Federación en las materias de este Libro para realizar actividades o ejercer facultades en bienes y zonas de jurisdicción federal de conformidad con las disposiciones aplicables, y celebrar acuerdos y convenios con Ayuntamientos sobre acciones de beneficio ambiental y ecológico;
 VII. Promover la concertación de acciones con los sectores social y privado en la materia del presente Libro;
 VIII. Imponer en el ámbito de su competencia a través de las dependencias y entidades que correspondan las sanciones administrativas que contempla este Libro; y

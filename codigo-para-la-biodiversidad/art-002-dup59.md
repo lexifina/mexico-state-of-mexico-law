@@ -1,10 +1,13 @@
 Artículo 2.59. Se consideran prioritarias para efectos del otorgamiento de los estímulos fiscales que se establezcan conforme a la Ley de Ingresos del Estado las actividades relacionadas con:
-I. La investigación, incorporación o utilización de mecanismos, equipos y tecnologías que tengan por objeto evitar, reducir o controlar la contaminación o deterioro ambiental, así como el uso eficiente de recursos naturales y de energía;
-II. La investigación e incorporación de sistemas de ahorro de energía y de utilización de fuentes de energía menos contaminantes;
+(REFORMADA, G.G. 19 DE DICIEMBRE DE 2013)
+I. La investigación, incorporación o utilización de mecanismos, equipos y tecnologías que tengan por objeto evitar, reducir o controlar la contaminación o deterioro ambiental, las emisiones de gases de efecto invernadero, así como el uso eficiente de recursos naturales y de energía;
+(REFORMADA, G.G. 19 DE DICIEMBRE DE 2013)
+II. La investigación e incorporación de sistemas de ahorro de energía, de utilización de fuentes de energía menos contaminantes y de energías renovables y tecnologías de bajas emisiones;
 III. El ahorro, uso, aprovechamiento sostenible y la prevención de la contaminación del agua;
 IV. La ubicación y reubicación de instalaciones agropecuarias, industriales, comerciales y de servicios en áreas ambientalmente adecuadas;
 V. El establecimiento, manejo y vigilancia de áreas naturales sometidas a las categorías especiales de protección a las que se refiere el presente Libro; y
-VI. En general aquellas actividades relacionadas con la preservación y restauración del equilibrio ecológico y la protección ambiental.
+(REFORMADA, G.G. 19 DE DICIEMBRE DE 2013)
+VI. En general aquellas actividades relacionadas con la preservación y restauración del equilibrio ecológico y la protección ambiental, y con la adaptación al cambio climático y la mitigación de emisiones de gases de efecto invernadero que lo provocan.
 SECCION SEGUNDA
 DE LA CONSERVACION, PRESERVACION, REMEDIACION, REHABILITACION Y RESTAURACION DEL EQUILIBRIO ECOLOGICO
 Artículo. 2.60. Para la conservación, preservación, remediación, rehabilitación y restauración del equilibrio ecológico en la Entidad se considerarán los siguientes criterios:

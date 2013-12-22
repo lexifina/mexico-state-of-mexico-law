@@ -5,5 +5,8 @@ III. Los tipos de vegetación forestal y de suelos su localización, formaciones
 IV. La dinámica de cambio de la vegetación forestal del Estado que permita conocer y evaluar las tasas de deforestación y las tasas de degradación y disturbio registrando sus causas principales;
 V. La cuantificación de los recursos forestales que incluya la valoración de los bienes y servicios ambientales que generen los ecosistemas forestales y los impactos que se ocasionen en los mismos;
 VI. Los criterios e indicadores de sostenibilidad y degradación de los ecosistemas forestales;
-VII. Los inventarios sobre la infraestructura forestal existente; y
-VIII. Los demás datos que señale el Reglamento de este Libro.
+VII. Los inventarios sobre la infraestructura forestal existente; y (sic)
+(REFORMADA [N. DE E. ADICIONADA], G.G. 19 DE DICIEMBRE DE 2013)
+VIII. La información basada en el Sistema Estatal de Monitoreo, Registro y Verificación de reducción de emisiones, derivadas de acciones de prevención y combate de la deforestación y degradación de los ecosistemas forestales;
+(ADICIONADA [N. DE E. REFORMADA], G.G. 19 DE DICIEMBRE DE 2013)
+IX. Los demás datos que señale el Reglamento de este Libro.

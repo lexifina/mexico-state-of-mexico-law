@@ -1,4 +1,4 @@
-Artículo 6.3. Son objeto de tutela y protección de este Libro todos los animales domésticos, tales como:
+Articulo 6.3. Son objeto de tutela y protección de este Libro todos los animales domésticos, tales como:
 I. Los de compañía;
 II. Los abandonados y callejeros;
 III. los deportivos;
