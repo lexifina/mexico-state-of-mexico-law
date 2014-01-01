@@ -1,6 +1,3 @@
-(REFORMADA SU DENOMINACIÓN, G.G. 6 DE DICIEMBRE DE 2002)
-SECCION OCTAVA
-DE LOS DERECHOS POR SERVICIOS PRESTADOS POR LA SECRETARIA DE TRANSPORTE
 (REFORMADO PRIMER PÁRRAFO, G.G. 26 DE DICIEMBRE DE 2007) (ACTUALIZADO EN SUS CUOTAS Y TARIFAS, G.G. 1 DE ENERO DE 2013)
 Artículo 97-B.- Por el otorgamiento de concesiones, permisos y autorizaciones, por su cesión (sic) de derechos o cambio de titular, por su prórroga o cambio de temporalidad, así como por los servicios conexos, de control vehicular y otros servicios, que sean de su competencia, se pagarán los siguientes derechos:
 TARIFA

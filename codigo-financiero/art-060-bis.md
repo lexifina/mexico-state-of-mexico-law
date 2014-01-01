@@ -1,2 +1,2 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
-Artículo 60 Bis.- (DEROGADO, G.G. 16 DE DICIEMBRE DE 2011)
+(REFORMADO [N. DE E. ADICIONADO], G.G. 2 DE DICIEMBRE DE 2013)
+Artículo 60 Bis.- Las personas físicas y jurídicas colectivas, que habitualmente se dediquen a la enajenación de vehículos nuevos, están obligadas a presentar ante la autoridad fiscal competente, declaración trimestral de las enajenaciones de vehículos realizadas en el periodo, dentro de los primeros 15 días siguientes al vencimiento del trimestre que se reporta, que deberá contener como mínimo el nombre, registro federal de contribuyentes y domicilio del adquirente, así como el número de serie y clave vehicular, conforme a las reglas de carácter general que emita la Secretaría y que habrán de publicarse en el Periódico Oficial.

@@ -1,3 +1,4 @@
+(DEROGADO ÚLTIMO PÁRRAFO, G.G. 2 DE DICIEMBRE DE 2013)
 N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (REFORMADO PRIMER PÁRRAFO, G.G. 16 DE DICIEMBRE DE 2011)
 Artículo 47 E.- Estará impedido para formular dictamen sobre la base, determinación y pago de las contribuciones establecidas en este Código, por afectar su independencia e imparcialidad, el dictaminador que:

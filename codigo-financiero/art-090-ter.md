@@ -1,6 +1,3 @@
-(ADICIONADA CON LOS ARTÍCULOS QUE LA INTEGRAN, G.G. 25 DE FEBRERO DE 2013)
-SUBSECCIÓN SEGUNDA
-DE LOS DERECHOS POR SERVICIOS PRESTADOS POR EL INSTITUTO DE LA FUNCIÓN REGISTRAL DEL ESTADO DE MÉXICO
 (ADICIONADO, G.G. 25 DE FEBRERO DE 2013) (REFORMADO EN SUS TARIFAS, G.G. 15 DE MARZO DE 2013)
 Artículo 90 Ter.- Por inscripción de documentos o actos relativos a bienes inmuebles se pagarán los siguientes derechos:
 I. Por inscripciones relativas a la propiedad o posesión originaria de bienes inmuebles:

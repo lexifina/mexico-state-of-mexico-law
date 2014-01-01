@@ -9,5 +9,6 @@ D) En un 50% del importe de las contribuciones retenidas o recaudadas y no enter
 (DEROGADO SEGUNDO PÁRRAFO, G.G. 29 DE DICIEMBRE DE 2006)
 (REFORMADA, G.G. 31 DE DICIEMBRE DE 2001)
 II. Se disminuirán:
-A). En un 20% de su monto, siempre que el infractor pague o devuelva el importe de las contribuciones omitidas con sus accesorios, o el beneficio indebido dentro de los quince días siguientes a la notificación de la resolución en la que se impuso el importe de la misma.
+(REFORMADO, G.G. 2 DE DICIEMBRE DE 2013)
+A). En un 20% de su monto, siempre que el infractor pague o devuelva el importe de las contribuciones omitidas con sus accesorios, o el beneficio indebido dentro de los diez días siguientes a la notificación de la resolución en la que se impuso el importe de la misma.
 B). En un 100% el importe de la multa fijada por la omisión en el pago de contribuciones y aprovechamientos, en los casos de devolución de cheques, siempre que se pague dicha contribución o aprovechamiento y en sus accesorios dentro de los cinco días siguientes a la fecha de notificación del requerimiento correspondiente.

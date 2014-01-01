@@ -1,15 +1,10 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE TARIFA, VÉASE SEGUNDO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
-(REFORMADO EN SU
-TARIFA, G.G. 19 DE
-DICIEMBRE DE 2012)
-TIPO DE VIVIENDAMONTO DE APORTACIÓN
-POR VIVIENDA
-DE INTERÉS SOCIAL$657
-POPULAR$983
-MEDIA$11,002
-RESIDENCIA$18,291
-RESIDENCIAL ALTO
-Y CAMPESTRE$31,204
+(REFORMADA SU TARIFA, G.G. 2 DE DICIEMBRE DE 2013)
+TIPO DE VIVIENDA MONTO DE APORTACIÓN POR VIVIENDA
+DE INTERÉS SOCIAL $689
+POPULAR $1,030
+MEDIA $11,530
+RESIDENCIAL $19,169
+RESIDENCIAL ALTO Y CAMPESTRE $32,702
 N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE SEGUNDO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (REFORMADO, G.G. 19 DE DICIEMBRE DE 2012)
 Artículo 216 F.- Estas Aportaciones para Obras de Impacto Vial, deberán pagarse en efectivo, debiendo enterarlas mediante declaración en la forma oficial aprobada, en cualquiera de los siguientes supuestos:
@@ -29,7 +24,8 @@ El Comité de Control y Vigilancia de las Aportaciones para Obras de Impacto Via
 I. Un representante del Poder Legislativo.
 II. Un representante de la Secretaría de Comunicaciones.
 III. Un representante de la Secretaría de Finanzas.
-IV. Dos representantes de los municipios de la entidad, que serán designados anualmente en el seno del Instituto Hacendario del Estado de México, debiendo ser municipios en los cuales se genere la aportación.
+(REFORMADA, G.G. 2 DE DICIEMBRE DE 2013)
+IV. Dos representantes de los Municipios de la entidad, que serán elegidos anualmente en el seno del Instituto Hacendario del Estado de México, en Sesión de su Consejo Directivo, utilizando el procedimiento de insaculación, debiendo ser Municipios en los cuales se genere la aportación.
 Este Comité será presidido por el representante de la Secretaría de Comunicaciones y tendrá, entre otras funciones, las siguientes:
 I. Dar seguimiento al ingreso que se obtenga por estas aportaciones.
 II. Vigilar el comportamiento de estas aportaciones de impacto vial y sus repercusiones y resultados.

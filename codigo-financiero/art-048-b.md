@@ -1,6 +1,7 @@
 (ADICIONADO, G.G. 26 DE DICIEMBRE DE 2007)
 Artículo 48-B.- Cuando las autoridades fiscales en el ejercicio de sus facultades de comprobación revisen el dictamen y la demás información y documentación con éste relacionada, a que se refieren los artículos 47 C, 47 G y 47 H de este Código, estarán a lo siguiente:
-I. La revisión se llevará a cabo con el Contador Público que haya formulado el dictamen, requiriéndole por escrito y con copia al contribuyente lo siguiente:
+(REFORMADO PRIMER PÁRRAFO, G.G. 2 DE DICIEMBRE DE 2013)
+l. La revisión se llevará a cabo con el Contador Público que haya formulado el dictamen, requiriéndole por escrito lo siguiente:
 A). La información que conforme a este Código deba estar incluida en los documentos dictaminados para efectos fiscales.
 B). La exhibición de los papeles de trabajo elaborados con motivo de la auditoría practicada los cuales, en todo caso, se entiende que son propiedad del Contador Público.
 C). Cualquier información y documentación que se considere pertinente, incluyendo el respaldo de la contabilidad, auxiliares y registros contables, para cerciorarse del cumplimiento de las obligaciones fiscales del contribuyente en relación al Impuesto sobre Erogaciones por Remuneraciones al Trabajo Personal.
