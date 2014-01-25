@@ -14,6 +14,8 @@ X. Participar en la vigilancia forestal del Municipio de conformidad con los acu
 XI. Participar y coadyuvar en los programas integrales de prevención y combate a la extracción ilegal, a la tala clandestina;
 XII. Crear el Consejo Municipal Forestal de acuerdo al Reglamento que para el efecto se expida;
 XIII. Otorgar las licencias de funcionamiento y de uso de suelo para la instalación de industrias forestales en su territorio;
+(ADICIONADA, G.G. 24 DE ENERO DE 2014)
+XIII Bis. Otorgar, en su caso, por acuerdo de cabildo del Ayuntamiento que se trate, la licencia de funcionamiento de los centros de almacenamiento y de transformación de materias primas forestales, previo Dictamen de Factibilidad de Transformación Forestal, emitido por el Consejo Rector.
 XIV. La atención de los demás asuntos que en materia de desarrollo forestal sostenible les conceda el presente Código u otros ordenamientos; y
 XV. Firmar convenios con PROBOSQUE para la coordinación de actividades en materia forestal.
 XVI. Participar en el Servicio Estatal Forestal;

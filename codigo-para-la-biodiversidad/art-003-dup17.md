@@ -15,4 +15,9 @@ IX. Inspeccionar y vigilar las zonas forestales, así como los aprovechamientos 
 X. Promover la organización productiva de los poseedores y propietarios forestales en el ámbito municipal, regional y estatal, así como gestionar la asesoría técnica y capacitación necesarias para el mejoramiento de sus procesos productivos;
 XI. Organizar los servicios técnicos y el registro y control de los peritos forestales;
 XII. Adquirir toda clase de bienes y realizar los actos que se requieran para el cumplimiento de su objeto; y
-XIII. Las demás que le atribuyan las disposiciones legales y los convenios o acuerdos en la materia.
+(REFORMADA [N. DE E. ADICIONADA], G.G. 24 DE ENERO DE 2014)
+XIII. Emitir dictamen de Factibilidad de Transformación Forestal, por conducto del Consejo Rector de Transformación Forestal.
+(REFORMADA [N. DE E. ADICIONADA], G.G. 24 DE ENERO DE 2014)
+XIV. Vigilar a través de visitas de verificación que los centros de almacenamiento o transformación de materias primas forestales, cumplan con lo establecido en el Dictamen de Factibilidad de Transformación Forestal, aplicando dentro del ámbito de sus atribuciones, las medidas de seguridad e imponiendo las infracciones que correspondan por su inobservancia.
+(REFORMADA , G.G. 24 DE ENERO DE 2014)
+XV. Las demás que le atribuyan las disposiciones legales y los convenios o acuerdos en la materia.
