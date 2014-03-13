@@ -1,0 +1,8 @@
+LEY QUE CREA EL ORGANISMO PÚBLICO DESCENTRALIZADO DENOMINADO INSTITUTO MUNICIPAL DE CULTURA FÍSICA Y DEPORTE DE SOYANIQUILPAN DE JUÁREZ, MÉXICO
+Ley publicada en la Sección Tercera del Periódico Oficial del Estado de México, el miércoles 12 de marzo del 2014.
+ERUVIEL ÁVILA VILLEGAS, Gobernador Constitucional del Estado Libre y Soberano de México, a sus habitantes sabed:
+Que la Legislatura del Estado, ha tenido a bien aprobar lo siguiente:
+DECRETO NÚMERO 205
+LA H. "LVIII" LEGISLATURA DEL ESTADO DE MÉXICO
+DECRETA:
+LEY QUE CREA EL ORGANISMO PÚBLICO DESCENTRALIZADO DENOMINADO INSTITUTO MUNICIPAL DE CULTURA FÍSICA Y DEPORTE DE SOYANIQUILPAN DE JUÁREZ, MÉXICO.
