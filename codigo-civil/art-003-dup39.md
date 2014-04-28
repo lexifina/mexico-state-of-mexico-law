@@ -1,9 +1,9 @@
-Artículo 3.39.- Pueden pedir la rectificación o modificación de un acta del estado civil:
-I. Las personas de cuyo estado se trata;
-II. Las personas que se mencionan en el acta como relacionadas con el estado civil de alguno;
-III. Los herederos de las personas comprendidas en las dos fracciones anteriores;
-(REFORMADA, G.G. 7 DE SEPTIEMBRE DEL 2004)
-IV. Los tutores o personas que ejerzan la patria potestad de los menores e incapaces; y
-(ADICIONADA, G.G. 7 DE SEPTIEMBRE DEL 2004)
-V. Las demás personas a las que la ley concede expresamente esta facultad.
-Forma del juicio sobre rectificación o modificación
+Artículo 3.38 bis.- La modificación o cambio del sustantivo propio registrado, por la afectación a su dignidad humana como consecuencia de la exposición al ridículo, podrá solicitarse ante el o la Oficial del Registro Civil donde está asentada el acta de nacimiento por:
+l. La persona interesada, si es mayor de edad;
+II. Los padres, el padre, la madre o quien ejerza la patria potestad del menor de doce años de edad o del incapaz;
+III. La persona menor de dieciocho pero mayor de doce años de edad, con el consentimiento de sus padres, de su padre, de su madre, de su representante legal, o en su caso, de la persona o institución que lo tuviere a su cargo.
+En caso de que la registrada o el registrado tenga dos o más nombres en el sustantivo propio, sólo surtirá efecto en el sustantivo propio expuesto al ridículo.
+La solicitud de modificación o cambio del sustantivo propio registrado por ser expuesto al ridículo será resuelta por el Consejo Dictaminador, en términos de lo dispuesto en los lineamientos que para el efecto emita el Consejo Dictaminador.
+De proceder la modificación o cambio del sustantivo propio se tendrá por entendido, para efectos legales, que se trata de la misma persona, lo que se hará constar en el documento que para tal efecto se expida.
+(ADICIONADO, G.G. 25 DE ABRIL DE 2014)
+Integración del Consejo Dictaminador

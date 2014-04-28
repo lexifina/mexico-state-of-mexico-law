@@ -1,2 +1,11 @@
-Artículo 3.40.- El juicio de rectificación o modificación de acta se seguirá en la forma que se establezca en el Código de Procedimientos Civiles.
-Aclaración de actas del estado civil
+Artículo 3.38 ter.- El Consejo Dictaminador será un órgano colegiado que se conformará con la única finalidad de resolver sobre las solicitudes de cambio de sustantivo propio que mediante solicitud expresa se haya formulado en términos del presente Código y demás disposiciones aplicables y estará integrado por las o los titulares de:
+l. La Consejería Jurídica del Ejecutivo Estatal, quien lo presidirá;
+ll. La Dirección General del Registro Civil con el carácter de Secretaría Técnica.
+Y como Vocales:
+III. El Poder Judicial del Estado de México;
+IV. La Universidad Autónoma del Estado de México;
+V. El Colegio de Notarios del Estado de México;
+VI. El Sistema Estatal para el Desarrollo Integral de la Familia del Estado de México;
+VII. La Comisión de Derechos Humanos del Estado de México.
+Cada integrante designará a su respectivo suplente.
+Legitimación para pedir la modificación o rectificación de acta
