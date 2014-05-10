@@ -1,4 +1,2 @@
-Artículo 2.12.- Las personas jurídicas colectivas se rigen por las leyes correspondientes, por su acto constitutivo y por sus estatutos; actúan y se obligan por medio de los órganos que las representan.
-TITULO CUARTO
-Del Nombre de las Personas
-Concepto del nombre de las personas
+Artículo 2.11.- Las personas jurídicas colectivas pueden ejercitar todos los derechos que sean necesarios para realizar su objeto, siempre y cuando no contravengan el interés público.
+Normas que rigen y órganos representativos de la persona jurídica colectiva

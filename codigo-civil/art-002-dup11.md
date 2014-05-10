@@ -1,2 +1,7 @@
-Artículo 2.11.- Las personas jurídicas colectivas pueden ejercitar todos los derechos que sean necesarios para realizar su objeto, siempre y cuando no contravengan el interés público.
-Normas que rigen y órganos representativos de la persona jurídica colectiva
+Artículo 2.10.- Son personas jurídicas colectivas:
+I. El Estado de México, sus Municipios y sus organismos de carácter público;
+II. Las asociaciones y las sociedades civiles;
+III. Las asociaciones y organizaciones políticas estatales;
+IV. Las instituciones de asistencia privada;
+V. Las reconocidas por las leyes federales y de las demás Entidades de la República.
+Derechos ejercitados por las personas jurídicas colectivas

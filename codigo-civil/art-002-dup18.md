@@ -1,2 +1,2 @@
-Artículo 2.18.- Se presume el propósito de establecerse permanentemente en un lugar, cuando se reside por más de seis meses en él, siempre y cuando no sea en perjuicio de terceros.
-Concepto de domicilio legal
+Artículo 2.17.- El domicilio de una persona física es el lugar donde reside con el propósito de establecerse en él; a falta de éste, el lugar en que tiene el principal asiento de sus negocios; y a falta de uno y otro, el lugar en que se halle.
+Domicilio presumible de las personas físicas

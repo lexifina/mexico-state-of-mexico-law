@@ -1,2 +1,2 @@
-Artículo 2.19.- El domicilio legal de una persona es el lugar donde la autoridad judicial competente o la ley le fija su residencia para el ejercicio de sus derechos y el cumplimiento de sus obligaciones.
-Personas físicas con domicilio legal
+Artículo 2.18.- Se presume el propósito de establecerse permanentemente en un lugar, cuando se reside por más de seis meses en él, siempre y cuando no sea en perjuicio de terceros.
+Concepto de domicilio legal

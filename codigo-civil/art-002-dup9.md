@@ -1,2 +1,9 @@
-Artículo 2.9.- Las personas jurídicas colectivas son las constituidas conforme a la ley, por grupos de individuos a las cuales el derecho considera como una sola entidad para ejercer derechos y asumir obligaciones.
-Personas jurídicas colectivas
+Artículo 2.8.- Ante la ausencia de voluntad expresa, la autorización a que se refieren los artículos anteriores, podrá ser otorgada por los parientes del donante, que se encuentren en el lugar del deceso, en el orden siguiente:
+I. El cónyuge o concubino;
+II. Los hijos mayores de edad;
+III. Los padres;
+IV. Los hermanos mayores de edad;
+V. Cualquier pariente consanguíneo hasta cuarto grado.
+TITULO TERCERO
+De las Personas Jurídicas Colectivas
+Concepto de persona jurídica colectiva

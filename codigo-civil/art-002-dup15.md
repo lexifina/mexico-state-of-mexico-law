@@ -1,2 +1,2 @@
-Artículo 2.15.- Para aspectos artísticos, literarios, científicos, deportivos o de otra índole similar se podrá utilizar un seudónimo, de conformidad con las leyes específicas de la materia.
-Composición del nombre de las personas jurídicas colectivas
+Artículo 2.14.- El nombre de las personas físicas se forma con el sustantivo propio y los apellidos paternos del padre y la madre. Cuando sólo lo reconozca uno de ellos, se formará con los apellidos de éste, con las salvedades que establece el Libro Tercero de este Código.
+Casos de uso de seudónimo

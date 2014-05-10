@@ -10,4 +10,5 @@ VI. La presencia estética;
 VII. Los afectivos derivados de la familia, la amistad y los bienes;
 (REFORMADA, G.G. 6 DE MARZO DE 2010)
 VIII. El respeto, salvaguarda y protección de la integridad física, psicológica y patrimonial.
-Capacidad de ejercicio para donar órganos
+(ADICIONADA SU DENOMINACIÓN, G.G. 9 DE MAYO DE 2014)
+Medios para acreditar la identidad de las personas físicas

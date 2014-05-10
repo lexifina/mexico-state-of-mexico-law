@@ -10,8 +10,8 @@ V. Organizar campañas permanentes para la prevención y combate de incendios, p
 VI. Realizar trabajos de restauración y reforestación, defensa contra la desertificación de suelos y otros encaminados a proteger y utilizar con mayor provecho los bosques, los suelos y las aguas y organizar a la sociedad en general para estos fines;
 VII. Realizar programas de investigación para el desarrollo de los recursos y especies forestales y el perfeccionamiento de sus técnicas, sistemas y procedimientos;
 VIII. Promover y coordinar con los sectores público, social y privado la creación de viveros y zonas de reforestación;
-(REFORMADA, G.G. 31 DE DICIEMBRE DE 2007)
-IX. Inspeccionar y vigilar las zonas forestales, así como los aprovechamientos autorizados, para lo cual podrá solicitar el apoyo y coadyuvancia de la Agencia de Seguridad Estatal;
+(REFORMADA, G.G. 9 DE MAYO DE 2014)
+IX. Inspeccionar y vigilar las zonas forestales, así como los aprovechamientos autorizados, para lo cual podrá solicitar el apoyo y coadyuvancia de la Secretaría de Seguridad Ciudadana;
 X. Promover la organización productiva de los poseedores y propietarios forestales en el ámbito municipal, regional y estatal, así como gestionar la asesoría técnica y capacitación necesarias para el mejoramiento de sus procesos productivos;
 XI. Organizar los servicios técnicos y el registro y control de los peritos forestales;
 XII. Adquirir toda clase de bienes y realizar los actos que se requieran para el cumplimiento de su objeto; y

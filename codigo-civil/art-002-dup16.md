@@ -1,4 +1,2 @@
-Artículo 2.16.- El nombre de las personas jurídicas colectivas se forma con la denominación o razón social, asignada en el acto de su constitución o en sus estatutos.
-TITULO QUINTO
-Del Domicilio
-Concepto de domicilio de las personas físicas
+Artículo 2.15.- Para aspectos artísticos, literarios, científicos, deportivos o de otra índole similar se podrá utilizar un seudónimo, de conformidad con las leyes específicas de la materia.
+Composición del nombre de las personas jurídicas colectivas

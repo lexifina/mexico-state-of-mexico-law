@@ -1,2 +1,4 @@
-Artículo 2.17.- El domicilio de una persona física es el lugar donde reside con el propósito de establecerse en él; a falta de éste, el lugar en que tiene el principal asiento de sus negocios; y a falta de uno y otro, el lugar en que se halle.
-Domicilio presumible de las personas físicas
+Artículo 2.16.- El nombre de las personas jurídicas colectivas se forma con la denominación o razón social, asignada en el acto de su constitución o en sus estatutos.
+TITULO QUINTO
+Del Domicilio
+Concepto de domicilio de las personas físicas
