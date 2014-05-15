@@ -1,4 +1,4 @@
-LEY QUE CREA EL ORGANISMO PUBLICO DESCENTRALIZADO DE CARACTER ESTATAL DENOMINADO INSTITUTO MEXIQUENSE DE LA PIROTECNIA
+LEY QUE CREA EL ORGANISMO PÚBLICO DESCENTRALIZADO DE CARÁCTER ESTATAL DENOMINADO INSTITUTO MEXIQUENSE DE LA PIROTECNIA
 Ley publicada en la Gaceta del Gobierno, el 15 de julio del 2003.
 ARTURO MONTIEL ROJAS, Gobernador Constitucional del Estado Libre y Soberano de México, a sus habitantes sabed:
 Que la Legislatura del Estado, ha tenido a bien aprobar lo siguiente:
