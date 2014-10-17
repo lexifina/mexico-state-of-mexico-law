@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 16 DE OCTUBRE DE 2014)
+Artículo 20 Sexies.- El Gobierno del Estado y los Ayuntamientos, a través de sus dependencias en el respectivo ámbito de su competencia, llevarán a cabo, mediante la aplicación de políticas públicas, las acciones necesarias tendientes a identificar, prevenir, atender y disminuir los factores que propician los fenómenos de violencia de pareja, en cualquiera de sus tipos y en consecuencia, erradicar los roles discriminatorios, estereotipos sexistas, resolución violenta de conflictos y la misoginia.
