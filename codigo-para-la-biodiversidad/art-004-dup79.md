@@ -3,5 +3,5 @@ I. Personal capacitado e informado sobre los riesgos que conlleva el manejo de l
 II. Registro o autorización de las autoridades competentes según corresponda;
 III. Programa de preparación y respuesta a emergencias y contingencias que puedan ocurrir en las plantas;
 IV. Bitácora en la cual se registren los residuos que se reciben indicando tipo, peso o volumen, destino, fecha de entrada y salida de los mismos;
-V. Área para segregar y almacenar temporalmente los residuos por tiempos acordes con lo que establezcan las disposiciones respectivas: y
+V. Area para segregar y almacenar temporalmente los residuos por tiempos acordes con lo que establezcan las disposiciones respectivas: y
 VI. Los demás requisitos que determine la normatividad aplicable.

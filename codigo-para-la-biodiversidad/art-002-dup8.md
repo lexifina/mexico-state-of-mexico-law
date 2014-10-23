@@ -4,13 +4,14 @@ Artículo 2.8. Corresponde a la Secretaría:
 I. Conducir y evaluar la política y los criterios ecológicos en el Estado acorde a las disposiciones legales de carácter federal y estatal que vinculen el crecimiento con los aspectos de protección al medio ambiente y al desarrollo sostenible;
 II. Aplicar en coordinación con las dependencias o entidades competentes los instrumentos de política ambiental y los programas a que se refiere el artículo 2.7 del presente Libro, propiciando para tal efecto la participación ciudadana en la aplicación de los instrumentos de política y gestión ambiental previstos en este mismo Libro y demás disposiciones jurídicas aplicables en la materia;
 III. Aplicar el Reglamento a que se refiere la fracción III del artículo 2.7 del presente Libro;
-IV. Elaborar y someter a consideración del titular del Poder Ejecutivo las declaratorias de las áreas naturales protegidas;
+(REFORMADA, G.G. 22 DE OCTUBRE DE 2014)
+IV. Elaborar y someter a consideración del titular del Poder Ejecutivo las declaratorias de las áreas naturales protegidas, de conformidad con el artículo 2.105 del presente Código;
 V. Formular y proponer al titular del Poder Ejecutivo del Estado todo lo relativo al medio ambiente e instrumentar en coordinación con las dependencias competentes y los Municipios el ordenamiento ecológico del Estado y sus programas estatales;
 VI. Preservar, conservar, remediar, recuperar, rehabilitar y restaurar el equilibrio ecológico, la protección al medio ambiente y al desarrollo sostenible en bienes y zonas del territorio del Estado;
 VII. Emitir criterios ecológicos para el aprovechamiento de los minerales o sustancias no reservadas a la Federación y que solo puedan utilizarse para la fabricación de materiales para la construcción, industria y ornamento;
 VIII. Prevenir y controlar la contaminación generada por el aprovechamiento de las sustancias no reservadas a la Federación que constituyan depósitos de naturaleza similar a los componentes de los terrenos, como rocas o productos de su descomposición y que solo puedan utilizarse para la fabricación de materiales para la construcción u ornamento de obras;
 IX. Evaluar y dictaminar en la competencia estatal el impacto ambiental de los proyectos, obras, acciones y servicios que se ejecuten o pretendan ejecutar en el Estado de conformidad con las normas oficiales mexicanas y las demás disposiciones aplicables;
-(REFORMADA G.G. 22 DE ENERO DE 2014)
+(REFORMADA, G.G. 22 DE ENERO DE 2014)
 X. Expedir los lineamientos necesarios para la regulación, administración y vigilancia de las áreas naturales protegidas del Estado;
 XI. Atender coordinadamente con la Federación los asuntos que afecten a la biodiversidad, el equilibrio ecológico del Estado y otra u otras Entidades Federativas en la prevención y control de emergencias o contingencias ambientales;
 XII. Celebrar convenios de coordinación, concertación y ejecución con la Federación, Entidades Federativas, Municipios, organizaciones sociales y particulares para la realización de acciones ambientales conforme a lo establecido en el presente Libro;
