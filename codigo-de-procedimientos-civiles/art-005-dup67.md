@@ -1,2 +1,4 @@
-Artículo 5.66.- El juez velará para que el convenio que se adjunte a la solicitud de divorcio por mutuo consentimiento, sea acorde con el interés superior de los menores e incapaces.
-Análisis del convenio
+Artículo 5.65.- (DEROGADO, G.G. 3 DE MAYO DE 2012)
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
+(REFORMADO, G.G. 9 DE AGOSTO DE 2012)
+Interés superior de menores e incapaces

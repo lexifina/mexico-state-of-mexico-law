@@ -1,4 +1,4 @@
-Artículo 3.38 ter.- El Consejo Dictaminador será un órgano colegiado que se conformará con la única finalidad de resolver sobre las solicitudes de cambio de sustantivo propio que mediante solicitud expresa se haya formulado en términos del presente Código y demás disposiciones aplicables y estará integrado por las o los titulares de:
+Artículo 3.38 Ter.- El Consejo Dictaminador será un órgano colegiado que se conformará con la única finalidad de resolver sobre las solicitudes de cambio de sustantivo propio que mediante solicitud expresa se haya formulado en términos del presente Código y demás disposiciones aplicables y estará integrado por las o los titulares de:
 l. La Consejería Jurídica del Ejecutivo Estatal, quien lo presidirá;
 ll. La Dirección General del Registro Civil con el carácter de Secretaría Técnica.
 Y como Vocales:

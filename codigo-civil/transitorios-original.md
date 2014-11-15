@@ -1,5 +1,5 @@
 TRANSITORIOS
-PRIMERO.- Publíquese el presente decreto en el periódico Oficial "Gaceta del Gobierno".
+PRIMERO.- Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
 SEGUNDO.- Este decreto entrará en vigor a los quince días siguientes al de su publicación.
 TERCERO.- Se abroga el Código Civil del Estado de México del 29 de diciembre de 1956.
 CUARTO.- Cuando en otros ordenamientos se haga mención a personas morales, deberá entenderse a las personas jurídicas colectivas, conforme a las disposiciones de este Código.

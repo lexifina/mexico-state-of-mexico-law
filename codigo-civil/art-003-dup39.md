@@ -1,4 +1,4 @@
-Artículo 3.38 bis.- La modificación o cambio del sustantivo propio registrado, por la afectación a su dignidad humana como consecuencia de la exposición al ridículo, podrá solicitarse ante el o la Oficial del Registro Civil donde está asentada el acta de nacimiento por:
+Artículo 3.38 Bis.- La modificación o cambio del sustantivo propio registrado, por la afectación a su dignidad humana como consecuencia de la exposición al ridículo, podrá solicitarse ante el o la Oficial del Registro Civil donde está asentada el acta de nacimiento por:
 l. La persona interesada, si es mayor de edad;
 II. Los padres, el padre, la madre o quien ejerza la patria potestad del menor de doce años de edad o del incapaz;
 III. La persona menor de dieciocho pero mayor de doce años de edad, con el consentimiento de sus padres, de su padre, de su madre, de su representante legal, o en su caso, de la persona o institución que lo tuviere a su cargo.

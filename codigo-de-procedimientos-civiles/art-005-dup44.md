@@ -3,7 +3,8 @@ Artículo 5.43.- En el auto admisorio de demanda, si el juez considera acreditad
 El Juez deberá dictar el auto admisorio de demanda, a más tardar al día siguiente en que haya recibido el escrito de demanda.
 (ADICIONADO, G.G. 6 DE SEPTIEMBRE DE 2011)
 El Juez girará oficio al centro laboral del demandado, al Instituto de la Función Registral del Estado de México, a las instituciones de seguridad social o a la Secretaría de Hacienda y Crédito Público, para que informen sobre sueldos, prestaciones, ingresos y bienes declarados por el deudor alimentario.
-La orden de descuento de los alimentos o el informe solicitado, se atenderá de inmediato por el responsable de la fuente laboral o del área de recursos humanos, y dará respuesta dentro del término de tres días, con el apercibimiento que de no hacerlo se les aplicará una multa o arresto de hasta treinta y seis horas; sin perjuicio de la responsabilidad solidaria con el deudor alimentario.
+(REFORMADO, G.G. 14 DE NOVIEMBRE DE 2014)
+La orden de descuento de los alimentos o el informe solicitado, se atenderá de inmediato por el responsable de la fuente laboral o del área de recursos humanos, y dará respuesta dentro del término de tres días, con el apercibimiento que de no hacerlo se les aplicará una multa de arresto de hasta treinta y seis horas; sin perjuicio de la responsabilidad solidaria con el deudor alimentario y de su inscripción en el Registro de Deudores Alimentarios Morosos.
 Cuando no se acredite la capacidad económica del deudor alimentario, en atención a las circunstancias especiales del caso, se fijará en salarios mínimos, sin que pueda ser inferior a uno.
 Fuera de los casos anteriores, se ordenará requerir al deudor alimentario sobre el pago inmediato de dicha pensión provisional, embargando, en su caso, bienes de su propiedad que garanticen su cumplimiento.
 N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
