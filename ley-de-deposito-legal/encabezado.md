@@ -1,4 +1,4 @@
-LEY DE DEPOSITO LEGAL PARA EL ESTADO DE MEXICO
+LEY DE DEPÓSITO LEGAL PARA EL ESTADO DE MÉXICO
 Ley publicada en la Sección Tercera a la Gaceta Oficial del Estado de México, el miércoles 13 de abril de 2011.
 PODER EJECUTIVO DEL ESTADO
 ENRIQUE PEÑA NIETO, Gobernador Constitucional del Estado Libre y Soberano de México, a sus habitantes sabed:

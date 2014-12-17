@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE OCTUBRE DE 2018)
+Artículo 38 Bis.- Se fomentará la participación de los municipios en el desarrollo rural, y el papel de los distritos de desarrollo rural, impulsando la simplificación administrativa de la Secretaría y la delegación de funciones para la atención expedita a productores rurales y jornaleros agrícolas, mediante la creación de la ventanilla única de atención municipal, la cual deberá contar con la información actualizada referente a los programas y acciones destinadas a este sector.
