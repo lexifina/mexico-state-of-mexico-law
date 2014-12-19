@@ -11,7 +11,7 @@ SEXTO.- Las disposiciones del presente Código no tendrán efecto retroactivo. P
 4. Los derechos a la herencia del que hubiese fallecido, con testamento o sin él, antes de la entrada en vigor del presente Código, se regirán por la legislación anterior.
 LO TENDRA ENTENDIDO EL GOBERNADOR DEL ESTADO, HACIENDO QUE SE PUBLIQUE Y SE CUMPLA.
 Dado en el Palacio del Poder Legislativo, en la ciudad de Toluca de Lerdo, capital del Estado de México, a los treinta y un días del mes de mayo de 2002.- Diputado Presidente.- C. Roberto Modesto Flores González.- Diputados Secretarios.- C. Víctor Ernesto González Huerta.- C. Andrea María del Rocío Merlos Nájera.- Rúbricas.
-Por lo tanto mando se publique, circule, observe y se le dé el debido cumplimiento
+Por lo tanto mando se publique, circule, observe y se lé de el debido cumplimiento
 Toluca de Lerdo, Méx., a 7 de junio del 2002.
 EL GOBERNADOR CONSTITUCIONAL DEL ESTADO DE MEXICO
 ARTURO MONTIEL ROJAS
