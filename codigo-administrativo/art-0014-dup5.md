@@ -5,4 +5,5 @@ II. Suscribir acuerdos y convenios de coordinación y colaboración en materia d
 III. Suscribir acuerdos y convenios con los ayuntamientos del Estado de México, para el desarrollo, establecimiento y operación de los sistemas y servicios municipales, en términos de este Libro y que se apliquen normas técnicas y principios homogéneos;
 IV. Aprobar el programa Estatal como sustento del Sistema de Planeación Democrática para el Desarrollo del Estado de México y Municipios;
 V. Las demás que expresamente le determine este Libro y otros ordenamientos aplicables.
-El Gobernador del Estado ejercerá estas atribuciones por si o a través del Secretario de Finanzas, Planeación y Administración, o por conducto del Director General de IGECEM.
+(REFORMADO, G.G. 14 DE MAYO DE 2014)
+El Gobernador del Estado ejercerá estas atribuciones por sí o a través del Secretario de Finanzas o por conducto del Director General de IGECEM.
