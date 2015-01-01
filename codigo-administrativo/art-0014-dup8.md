@@ -18,5 +18,7 @@ XIV. Integrar, conservar y mantener actualizados los acervos de información geo
 XV. Normar y practicar los procesos de valuación y levantamientos topográficos de inmuebles localizados en territorio del estado;
 XVI. Nombrar y remover al personal del IGECEM;
 XVII. Fungir o designar al secretario técnico de los comités sectoriales, regionales y municipales;
-XVIII. Las demás que le confieran otros ordenamientos.
+(ADICIONADA, G.G. 17 DE JULIO DE 2013)
+XVIII. Emitir el documento que acredite la inscripción en el Registro Estatal de Especialistas en Valuación Inmobiliaria y en Levantamiento Topográfico Catastral;
+XIX. Las demás que le confieran otros ordenamientos.
 Para el cumplimiento de estas atribuciones el Director General del IGECEM contará con las unidades administrativas necesarias en las materias de administración, planeación, informática, geografía, estadística, catastro y servicios de información.
