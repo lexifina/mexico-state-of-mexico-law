@@ -1,0 +1,6 @@
+G.G. 14 DE MAYO DE 2014.
+DECRETO NÚMERO 225, POR EL QUE SE REFORMAN LOS ARTÍCULOS 5.14, TERCER PÁRRAFO, 5.36, 5.38, FRACCIONES II Y VIII, 5.41, PRIMER PÁRRAFO, 5.50, PRIMER PÁRRAFO, 5.54, PRIMER PÁRRAFO, 5.57, TERCER PÁRRAFO, 5.63, FRACCIÓN IV, INCISOS A) Y B), SE ADICIONA AL ARTÍCULO 5.38, FRACCIÓN XI, INCISO C), Y SE DEROGA EL ÚLTIMO PÁRRAFO DEL INCISO D) DE LA FRACCIÓN X DEL ARTÍCULO 5.38, TODOS DEL CÓDIGO ADMINISTRATIVO DEL ESTADO DE MÉXICO.
+PRIMERO.- Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
+SEGUNDO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "Gaceta del Gobierno".
+TERCERO.- El Estado continuará prestando las funciones relacionadas con la expedición de las licencias de uso del suelo, cédulas informativas de zonificación, cambios de uso del suelo, coeficiente de ocupación del suelo y coeficiente de utilización del suelo, densidad de vivienda, así como de altura de edificaciones, en tanto se firmen los convenios de transferencia de funciones a los municipios.
+CUARTO.- Los procedimientos administrativos que se encuentren en trámite al entrar en vigor el presente Decreto, se substanciarán y resolverán conforme a las disposiciones del Libro Quinto del Código Administrativo del Estado de México vigentes al momento de haber iniciado.
