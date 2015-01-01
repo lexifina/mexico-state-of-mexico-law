@@ -10,7 +10,8 @@ VII. Solicitar el apoyo del Gobierno Federal para el auxilio y recuperación en 
 VIII. Aplicar los recursos estatales y federales a las acciones de prevención, de auxilio y de recuperación;
 IX. Informar al Sistema Nacional de Protección Civil de la ocurrencia de riesgos y desastres en el territorio del Estado para la concertación y coordinación de acciones;
 X. Apoyar la creación, desarrollo y consolidación de los Consejos Municipales de Protección Civil, grupos voluntarios y grupos de ayuda mutua, así como el fomento de acciones que mejoren y dignifiquen la actuación de los cuerpos de bomberos en la entidad, incluyendo la creación y/o el otorgamiento de reconocimientos en dinero o en especie; así mismo establecer el premio estatal de Protección Civil a quien por medios propios deba recibirlo;
-XI. Promover la creación, desarrollo y actualización permanente, de los atlas municipales de riesgos;
+(REFORMADA, G.G. 19 DE DICIEMBRE DE 2013)
+XI. Promover la creación, desarrollo y actualización permanente, de los atlas municipales de riesgos, considerando los criterios que emita el Gobierno Federal en materia de adaptación al cambio climático;
 XII. Proponer la adquisición de equipo especializado de transporte, comunicación, prevención y atención de desastres con cargo a los fondos disponibles;
 XIII. Ejecutar las acciones de protección civil en coordinación con los municipios, grupos voluntarios y unidades internas;
 XIV. Coordinar las acciones con las dependencias del Estado y de los municipios, para atender las emergencias y contingencias provocadas por fenómenos perturbadores de origen natural y apoyar el restablecimiento de servicios públicos, mediante el fondo estatal de atención a los desastres y siniestros ambientales;
@@ -19,7 +20,8 @@ XVI. Investigar, estudiar y evaluar riesgos y daños provenientes de elementos, 
 XVII. Promover, desarrollar, vigilar y evaluar los programas de capacitación que permitan la acreditación de conocimientos y profesionalización del personal responsable y servidores públicos, que desarrollan funciones en la materia;
 XVIII. Asesorar y apoyar a las dependencias, organismos auxiliares y fideicomisos públicos estatales, a los municipios y a las instituciones, personas, grupos y asociaciones de carácter civil y privado en materia de protección civil;
 XIX. Establecer, operar y/o enlazarse con redes de detección, monitoreo, pronóstico y medición de riesgos, en coordinación con otras autoridades en el que se consideren los efectos del cambio climático;
-XX. Desarrollar, actualizar y difundir el Atlas de Riesgos del Estado de México;
+(REFORMADA, G.G. 19 DE DICIEMBRE DE 2013)
+XX. Desarrollar, actualizar y difundir los Atlas de Riesgos del Estado de México, de conformidad con los criterios que emita el Gobierno Federal en materia de adaptación al cambio climático;
 XXI. Expedir, actualizar y vigilar la aplicación de normas técnicas estatales y demás disposiciones en materia de protección civil;
 Las normas técnicas se deberán expedir de conformidad con las disposiciones aplicables de las leyes federales, estatales y municipales correspondientes, así como con los convenios internacionales;
 Su actualización deberá ser cada cinco años.

@@ -7,6 +7,8 @@ c) La eficiente interrelación y la conectividad de los centros de población;
 d) La mitigación de los efectos negativos en el ambiente derivados del crecimiento urbano;
 e) El ordenamiento de las regiones y zonas metropolitanas; y
 f) El impulso de centros de población que presenten condiciones favorables para absorber flujos de población.
+(ADICIONADO, G.G. 19 DE DICIEMBRE DE 2013)
+g) La información sobre las regiones o zonas geográficas vulnerables a los efectos adversos del cambio climático contenida en los Atlas de Riesgos del Estado de México y en los Atlas municipales de riesgos.
 II. El desarrollo urbano de los centros de población garantizará:
 a) La vinculación armónica entre la ciudad y el campo, desde el punto de vista ambiental, social y cultural;
 b) La integración de usos, destinos y aprovechamientos diversificados del suelo que favorezcan el desarrollo eficiente de las diferentes actividades de la población;
@@ -18,7 +20,8 @@ g) La seguridad jurídica de los propietarios y poseedores de inmuebles en cuant
 h) La conservación, rehabilitación o mejoramiento de las áreas urbanas;
 i) La construcción de obras de urbanización, infraestructura y equipamiento urbanos, así como la prestación de servicios urbanos, su conservación y mejoramiento;
 j) La prevención de asentamientos humanos irregulares;
-k) La prevención y control de riesgos y contingencias por causas antropogénicas y naturales;
+(REFORMADO, G.G. 19 DE DICIEMBRE DE 2013)
+k) La prevención y control de riesgos y contingencias por causas antropogénicas y naturales y la adaptación al cambio climático;
 l) El crecimiento de los centros de población hacia zonas física y geográficamente aptas para ser urbanizadas;
 m) La incorporación ordenada de las áreas de crecimiento a la estructura urbana de los centros de población;
 n) El establecimiento de Reservas;
