@@ -1,2 +1,2 @@
-(REFORMADO, G.G. 1 DE SEPTIEMBRE DE 2011)
-Artículo 11.5.- Corresponde al Sistema para el Desarrollo Integral de la Familia del Estado de México normar y coordinar las actividades relativas a la prevención de la discapacidad y la rehabilitación e integración social de las personas con discapacidad.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+Artículo 11.5.- (DEROGADO POR TRANSITORIO TERCERO DE LA LEY PARA LA PROTECCIÓN, INTEGRACIÓN Y DESARROLLO DE LAS PERSONAS CON DISCAPACIDAD DEL ESTADO DE MÉXICO, G.G. 31 DE AGOSTO DE 2012)

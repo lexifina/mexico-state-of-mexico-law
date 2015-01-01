@@ -1,2 +1,2 @@
-(REFORMADO, G.G. 1 DE SEPTIEMBRE DE 2011)
-Artículo 11.4.- Las Secretarías General de Gobierno, a través de la Agencia de Seguridad Estatal, de Salud, del Trabajo, de Educación, de Desarrollo Urbano, del Agua y Obra Pública, de Comunicaciones y de Transporte, el Instituto de Salud del Estado de México, así como las autoridades de Tránsito y Desarrollo Urbano Municipales, en el ámbito de su respectiva competencia, tendrán atribuciones para lograr la integración a la sociedad de las personas con discapacidad, de conformidad con lo establecido en este Libro.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+Artículo 11.4.- (DEROGADO POR TRANSITORIO TERCERO DE LA LEY PARA LA PROTECCIÓN, INTEGRACIÓN Y DESARROLLO DE LAS PERSONAS CON DISCAPACIDAD DEL ESTADO DE MÉXICO, G.G. 31 DE AGOSTO DE 2012)

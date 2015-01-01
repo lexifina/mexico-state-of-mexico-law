@@ -1,2 +1,2 @@
-(REFORMADO, G.G. 1 DE SEPTIEMBRE DE 2011)
-Artículo 11.6.- El Gobierno del Estado de México procurará que se elimine toda barrera física, social, cultural y económica que implique discriminación en contra de las personas con discapacidad, con el objeto de garantizar su derecho a la igualdad de oportunidades.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+Artículo 11.6.- (DEROGADO POR TRANSITORIO TERCERO DE LA LEY PARA LA PROTECCIÓN, INTEGRACIÓN Y DESARROLLO DE LAS PERSONAS CON DISCAPACIDAD DEL ESTADO DE MÉXICO, G.G. 31 DE AGOSTO DE 2012)
