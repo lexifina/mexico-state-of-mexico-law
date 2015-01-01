@@ -10,4 +10,4 @@ VII. Analizar y, en su caso, aprobar los estados financieros del IGECEM;
 VIII. Aprobar los ingresos y egresos ordinarios y extraordinarios, necesarios para cumplir el objeto del IGECEM;
 IX. Aprobar la tarifa de los servicios y productos que genere el IGECEM y su publicación en la "Gaceta del Gobierno";
 X. Aprobar la instalación de delegaciones regionales y la circunscripción territorial que a cada una corresponda;
-XI. La (sic) demás necesarias para el ejercicio de las facultades anteriores, en términos de los ordenamientos jurídicos aplicables.
+XI. La (sic) demás necesidades para el ejercicio de las facultades anteriores, en términos de los ordenamientos jurídicos aplicables.
