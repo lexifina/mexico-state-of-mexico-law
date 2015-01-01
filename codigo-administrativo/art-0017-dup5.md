@@ -4,5 +4,6 @@ I. El Gobernador del Estado;
 II. El Secretario de Comunicaciones:
 III. La Junta de Caminos del Estado de México;
 IV. El Sistema de Autopistas, Aeropuertos, Servicios Conexos y Auxiliares del Estado de México;
-V. El Sistema de Transporte Masivo del Estado de México; y
+(REFORMADA, G.G. 22 DE FEBRERO DE 2013)
+V. El Sistema de Transportes Masivo y Teleférico del Estado de México; y
 VI. Los municipios.

@@ -9,7 +9,13 @@ a) Infraestructura Vial Primaria.- La integrada por carreteras, pasos vehiculare
 b) Infraestructura Vial Local.- La integrada por pasos vehiculares, avenidas, calzadas, calles y cerradas que permiten la comunicación al interior del municipio y la integración con la red vial primaria.
 VI. Publicidad Exterior.- A toda forma de difusión de mensajes mediante el uso de anuncios, carteles o cualquier otro medio de comunicación visual que sean observados desde la Infraestructura Vial Primaria, instalada en dicha infraestructura, su derecho (sic) vía y su zona de seguridad;
 VII. Secretaría.- A la Secretaría de Comunicaciones del Estado de México;
+(ADICIONADA, G.G. 22 DE FEBRERO DE 2013)
+VII Bis. Sistema Teleférico.- Conjunto de cables, sistema de apoyos, anclajes, sistema motriz y eléctrico que requiere el transporte teleférico;
 VIII. Transporte Masivo o de Alta Capacidad.- Al que se presta en vías específicas y/o confinadas, con equipos electrónicos de recaudo y despacho centralizado, con rodamiento técnico especializado y/o con equipo vehicular capaz de transportar a más de cien personas a la vez; incluyendo los accesos, vestíbulos, líneas de conducción, andenes, trenes, autobuses de alta capacidad, equipos electromecánicos, vías, carril confinado, talleres, depósitos de vehículos, locales técnicos, sistemas electrónicos de recaudo y despacho y demás construcciones e instalaciones destinadas al servicio público de transporte de alta capacidad;
+(ADICIONADA, G.G. 22 DE FEBRERO DE 2013)
+VIII Bis. Transporte Teleférico.- El que se presta a través de un sistema elevado de elementos estructurales, mecánicos y eléctricos que integran el sistema del teleférico y que por consiguiente no utiliza camino terrestre de rodadura, en la mayor parte de su recorrido;
+(ADICIONADA, G.G. 22 DE FEBRERO DE 2013)
+VIII Ter. Zona de Influencia.- Es la extensión, que en relación al teleférico, se determinará en cada caso, atendiendo a la topografía y a la naturaleza geológica del terreno, a las peculiares instalaciones del teleférico y a las características de utilización pública o privada de la zona afectada; y
 IX. Zona de Seguridad.- Al predio lindante con el derecho de vía de anchura variable determinada en las normas técnicas que emita la Secretaría de Comunicaciones, cuya preservación y restricción de uso, son necesarios para evitar riesgos a los usuarios de la infraestructura vial.
 (ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, G.G. 31 DE MARZO DE 2011)
 CAPITULO SEGUNDO
