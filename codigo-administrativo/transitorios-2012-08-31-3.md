@@ -1,7 +1,8 @@
 G.G. 31 DE AGOSTO DE 2012.
 DECRETO NÚMERO 524 POR EL QUE SE EXPIDE LA LEY DE PROTECCIÓN CIVIL DEL ESTADO LIBRE Y SOBERANO DE MÉXICO, Y EN SU TRANSITORIO TERCERO SE DEROGA EL LIBRO SEXTO DEL CÓDIGO ADMINISTRATIVO DEL ESTADO DE MÉXICO.
 ARTÍCULO PRIMERO.- Publíquese la presente Ley en el Periódico Oficial "Gaceta del Gobierno".
-ARTÍCULO SEGUNDO.- La presente Ley entrará en vigor a los 30 días naturales siguientes al de la publicación en el Periódico Oficial "Gaceta del Gobierno".
+(F. DE E., G.G. 3 DE SEPTIEMBRE DE 2012)
+ARTÍCULO SEGUNDO.- La presente Ley entrará en vigor a los 90 días naturales siguientes al de la publicación en el Periódico Oficial "Gaceta del Gobierno".
 ARTÍCULO TERCERO.- Se deroga el Libro Sexto del Código Administrativo del Estado de México, expedido mediante Decreto número 41, publicado en el Periódico Oficial "Gaceta del Gobierno" en fecha 13 de Diciembre del 2001.
 ARTÍCULO CUARTO.- Se derogan las disposiciones legales y reglamentarias que se opongan a la presente Ley.
 ARTÍCULO QUINTO.- El Ejecutivo del Estado, expedirá dentro de los 90 días hábiles siguientes a la entrada en vigor de la presente Ley, el Reglamento correspondiente para su aplicación e interpretación. En tanto eso sucede, se aplicará la disposición reglamentaria en vigor, que no sea contraria a lo previsto en esta Ley.

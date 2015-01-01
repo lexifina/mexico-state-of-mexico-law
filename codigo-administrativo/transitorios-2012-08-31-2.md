@@ -8,4 +8,3 @@ QUINTO.- El Gobernador del Estado deberá expedir la convocatoria para la integr
 SEXTO.- La Junta de Gobierno deberá quedar constituida en un plazo no mayor a sesenta días hábiles a partir de la entrada en vigor de la Ley.
 SÉPTIMO.- El Reglamento Interno del Instituto, deberá formularse y aprobarse por la Junta de Gobierno en un plazo no mayor de noventa días.
 OCTAVO.- El Ejecutivo del Estado proveerá lo necesario para transcribir la presente Ley en escritura braille, remitiendo por lo menos un ejemplar de ésta a las organizaciones civiles de invidentes y a las bibliotecas públicas o a quien lo solicite.
-N. DE E. PARA CONSULTAR LA VERSIÓN CORREGIDA DE ESTOS TRANSITORIOS, DE CONFORMIDAD CON LA FE DE ERRATAS PUBLICADA EL 3 DE SEPTIEMBRE DE 2012 EN EL G.G. DEL ESTADO DE MÉXICO, SE RECOMIENDA ACUDIR AL TEXTO QUE SE VISUALIZA DENTRO DE LA CRONOLOGÍA CORRESPONDIENTE A DICHA FECHA, EN EL ÍNDICE RESPECTIVO DE SU HISTORIA LEGISLATIVA.
