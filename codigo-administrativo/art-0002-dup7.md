@@ -1,4 +1,6 @@
-Artículo 2.6.- La dirección y administración del Instituto está a cargo de un consejo interno y un director general.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(REFORMADO PRIMER PÁRRAFO, G.G. 9 DE MAYO DE 2013)
+Artículo 2.6.- La dirección y administración del Instituto de Salud del Estado de México, estará a cargo de un consejo interno y de un director general.
 El consejo interno se integra en los términos previstos en la Ley para la Coordinación y Control de Organismos Auxiliares y Fideicomisos del Estado de México y cuenta con nueve vocales que son los representantes de las secretarías de Finanzas y Planeación, del Trabajo y de la Previsión Social, de Educación, Cultura y Bienestar Social, de Desarrollo Urbano y Obras Públicas, de Desarrollo Agropecuario, de Administración y de Ecología, así como un representante de la Secretaría de Salud del Gobierno Federal y otro de los trabajadores designado por el Comité Ejecutivo Nacional del Sindicato Nacional de Trabajadores de la Secretaría de Salud.
 (REFORMADO, G.G. 25 DE ENERO DE 2010) (F. DE E., G.G. 4 DE FEBRERO DE 2010)
 El director general será nombrado por el Gobernador del Estado y deberá ser preferentemente ciudadano mexiquense y con experiencia en materias de salud pública y administración de servicios de salud; médico cirujano; de reconocida calidad moral, buena conducta, y honorabilidad manifiesta.
