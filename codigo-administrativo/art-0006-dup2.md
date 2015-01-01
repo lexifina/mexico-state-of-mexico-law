@@ -1,1 +1,2 @@
-Artículo 6.2.- Las disposiciones de este Libro tienen como finalidad la prevención, auxilio y recuperación de la población en caso de riesgo o desastre.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO SEGUNDO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+Artículo 6.2.- (DEROGADO POR ARTÍCULO TERCERO TRANSITORIO DE LA LEY DE PROTECCIÓN CIVIL DEL ESTADO LIBRE Y SOBERANO DE MÉXICO, G.G. 31 DE AGOSTO DE 2012)

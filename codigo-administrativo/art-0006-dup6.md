@@ -1,6 +1,2 @@
-Artículo 6.6.- El sistema estatal de protección civil, se integra por:
-I. El Gobernador del Estado;
-II. El Consejo Estatal de Protección Civil;
-III. Los sistemas y consejos municipales de protección civil;
-IV. Las unidades internas;
-V. Los grupos voluntarios.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO SEGUNDO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+Artículo 6.6.- (DEROGADO POR ARTÍCULO TERCERO TRANSITORIO DE LA LEY DE PROTECCIÓN CIVIL DEL ESTADO LIBRE Y SOBERANO DE MÉXICO, G.G. 31 DE AGOSTO DE 2012)
