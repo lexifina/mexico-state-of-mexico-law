@@ -7,3 +7,5 @@ IV. El Sistema de Autopistas, Aeropuertos, Servicios Conexos y Auxiliares del Es
 (REFORMADA, G.G. 22 DE FEBRERO DE 2013)
 V. El Sistema de Transportes Masivo y Teleférico del Estado de México; y
 VI. Los municipios.
+(ADICIONADO, G.G. 22 DE ENERO DE 2014)
+Las autoridades a que se refiere el presente artículo sólo podrán emitir y ejecutar actos administrativos en el ámbito de su competencia.

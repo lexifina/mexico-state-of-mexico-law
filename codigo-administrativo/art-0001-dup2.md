@@ -1,2 +1,3 @@
-Artículo 1.2.- Los actos y procedimientos que dicten o ejecuten las autoridades en las materias reguladas por este Código, así como los procesos administrativos que se susciten por la aplicación del mismo, se emitirán, tramitarán y resolverán conforme a las disposiciones de este Código y el de Procedimientos Administrativos del Estado de México.
+(REFORMADO PRIMER PÁRRAFO, G.G. 22 DE ENERO DE 2014)
+Artículo 1.2.- Los actos, procedimientos y convenios que dicten, ejecuten o suscriban las autoridades en las materias reguladas por este Código, así como los procesos administrativos que se susciten por la aplicación del mismo, se emitirán, tramitarán y resolverán conforme a las disposiciones de este Código y el de Procedimientos Administrativos del Estado de México. Serán nulos cuando se emitan en contravención a dichas disposiciones.
 Tratándose de la planeación de las materias que regula este Código, se estará a lo dispuesto en la ley especial.

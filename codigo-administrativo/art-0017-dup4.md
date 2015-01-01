@@ -7,7 +7,12 @@ IV. Estación de Transferencia Modal.- Instalaciones con equipo tecnológico don
 V. Infraestructura de Jurisdicción Local.- Conjunto de vías jerarquizadas que facilitan la comunicación entre las diferentes áreas de la actividad económica y se clasifican en:
 a) Infraestructura Vial Primaria.- La integrada por carreteras, pasos vehiculares, avenidas, calzadas y calles que comunican a dos o más municipios de la entidad, permitiendo los viajes de largo recorrido y aquellas que por sus características de ubicación, operación y vocación de servicio permitan la integración de la red vial primaria, así como las que comuniquen a instalaciones estratégicas estatales;
 b) Infraestructura Vial Local.- La integrada por pasos vehiculares, avenidas, calzadas, calles y cerradas que permiten la comunicación al interior del municipio y la integración con la red vial primaria.
-VI. Publicidad Exterior.- A toda forma de difusión de mensajes mediante el uso de anuncios, carteles o cualquier otro medio de comunicación visual que sean observados desde la Infraestructura Vial Primaria, instalada en dicha infraestructura, su derecho (sic) vía y su zona de seguridad;
+(REFORMADA, G.G. 22 DE ENERO DE 2014)
+VI. Publicidad Exterior.- Toda forma de difusión de mensajes mediante el uso de anuncios, carteles o cualquier otro medio de comunicación visual o auditiva que para su instalación requieran el concurso de diversos elementos, tales como estructuras, soportes, cartelera, pantalla, equipamientos u otros, que siempre serán considerados como una unidad integral y estén colocados o instalados dentro del derecho de vía o su zona de seguridad y puedan ser observados o escuchados desde la infraestructura vial primaria sea de cuota, libre de peaje o de uso restringido y local incluyendo sus elementos complementarios;
+(ADICIONADA, G.G. 22 DE ENERO DE 2014)
+VI bis. Responsable de un Inmueble.- Persona física o jurídica colectiva que tenga la propiedad, posesión, administración, disposición, uso o disfrute de un bien inmueble y permita la instalación de un anuncio con o sin estructura en su interior, dentro del derecho de vía; quien será responsable solidario en los términos del capítulo tercero de este Libro;
+(ADICIONADA, G.G. 22 DE ENERO DE 2014)
+VI. ter. Anunciante.- Persona física o jurídica colectiva que difunda o publicite productos, bienes, servicios o actividades, haciendo uso de cualquier elemento que corresponda a la publicidad exterior que se encuentre instalada dentro del derecho de vía;
 VII. Secretaría.- A la Secretaría de Comunicaciones del Estado de México;
 (ADICIONADA, G.G. 22 DE FEBRERO DE 2013)
 VII Bis. Sistema Teleférico.- Conjunto de cables, sistema de apoyos, anclajes, sistema motriz y eléctrico que requiere el transporte teleférico;
