@@ -1,6 +1,5 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO SEGUNDO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
-Artículo 6.5.- (DEROGADO POR ARTÍCULO TERCERO TRANSITORIO DE LA LEY DE PROTECCIÓN CIVIL DEL ESTADO LIBRE Y SOBERANO DE MÉXICO, G.G. 31 DE AGOSTO DE 2012)
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE CAPÍTULO, VÉASE ARTÍCULO SEGUNDO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
-(DEROGADO CON LOS ARTÍCULOS QUE LO INTEGRAN, POR ARTÍCULO TERCERO TRANSITORIO DE LA LEY DE PROTECCIÓN CIVIL DEL ESTADO LIBRE Y SOBERANO DE MÉXICO, G.G. 31 DE AGOSTO DE 2012)
+(ADICIONADO, G.G. 19 DE DICIEMBRE DE 2012)
+Artículo 6.5.- Los sistemas de protección civil se constituyen por el conjunto de órganos, instrumentos, métodos y procedimientos que establecen las dependencias, organismos y entidades del sector público estatal o municipal, según corresponda, con la participación de los sectores social y privado, para la ejecución coordinada de acciones de protección civil.
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, G.G. 19 DE DICIEMBRE DE 2012)
 CAPITULO SEGUNDO
 Del Sistema Estatal de Protección Civil

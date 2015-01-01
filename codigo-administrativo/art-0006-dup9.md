@@ -1,2 +1,2 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO SEGUNDO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
-Artículo 6.9.- (DEROGADO POR ARTÍCULO TERCERO TRANSITORIO DE LA LEY DE PROTECCIÓN CIVIL DEL ESTADO LIBRE Y SOBERANO DE MÉXICO, G.G. 31 DE AGOSTO DE 2012)
+(ADICIONADO, G.G. 19 DE DICIEMBRE DE 2012)
+Artículo 6.9.- El Consejo Estatal de Protección Civil es un órgano de consulta y de coordinación del Gobierno del Estado para convocar, concertar, inducir e integrar las actividades de los participantes e interesados en la materia, a fin de garantizar el cumplimiento del objeto del Sistema Estatal de Protección Civil.

@@ -1,2 +1,5 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO SEGUNDO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
-Artículo 6.8.- (DEROGADO POR ARTÍCULO TERCERO TRANSITORIO DE LA LEY DE PROTECCIÓN CIVIL DEL ESTADO LIBRE Y SOBERANO DE MÉXICO, G.G. 31 DE AGOSTO DE 2012)
+(ADICIONADO, G.G. 19 DE DICIEMBRE DE 2012)
+Artículo 6.8.- Corresponde al Estado y a los municipios, promover la incorporación de la Gestión Integral de Riesgos en el desarrollo local y regional, estableciendo estrategias y políticas basadas en el análisis de los riesgos, con el fin de evitarlos a futuro y promover acciones para reducir los existentes.
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, G.G. 19 DE DICIEMBRE DE 2012)
+CAPITULO TERCERO
+Del Consejo Estatal de Protección Civil
