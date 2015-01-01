@@ -7,4 +7,4 @@ QUINTO.- Instalado el Consejo, deberá convocar a su primera reunión dentro de 
 SEXTO.- Realizada la primera reunión del Consejo, en los términos del artículo anterior, las reuniones siguientes se sujetarán a lo dispuesto por el artículo 14 de esta Ley.
 SÉPTIMO.- El Sistema Único de Gestión Empresarial seguirá funcionando en los términos del Acuerdo de su creación, hasta en tanto se emita el Reglamento de la presente Ley. Los plazos a que se refiere el artículo 59 fracción III, serán obligatorios seis meses después a la entrada en vigor del presente decreto.
 OCTAVO.- El Ejecutivo Estatal publicará el Catálogo Mexiquense de Actividades Industriales, Comerciales y de Servicios, dentro de los sesenta días naturales siguientes a la entrada en vigor de la presente Ley.
-NOVENO.- En tanto se expida el nuevo Reglamento, se aplicarán las disposiciones reglamentarias vigentes en lo que no se oponga a los establecido en el presente Decreto.
+NOVENO.- En tanto se expida el nuevo Reglamento, se aplicarán las disposiciones reglamentarias vigentes en lo que no se oponga a los (sic) establecido en el presente Decreto.
