@@ -1,0 +1,9 @@
+G.G. 29 DE AGOSTO DE 2013.
+DECRETO NÚMERO 132, POR EL QUE SE REFORMAN LOS ARTÍCULOS 2.3; LA FRACCIÓN VII BIS DEL ARTÍCULO 2.39; EL PÁRRAFO PRIMERO Y LAS FRACCIONES I Y VI DEL ARTÍCULO 2.47 BIS; LAS FRACCIONES I Y II DEL ARTÍCULO 2.47 TER; LA FRACCIÓN II Y EL ÚLTIMO PÁRRAFO DEL ARTÍCULO 2.48; EL SEGUNDO PÁRRAFO DEL ARTÍCULO 2.53 BIS; LA FRACCIÓN X DEL ARTÍCULO 2.68. SE ADICIONAN LA FRACCIÓN VII Y CUARTO PÁRRAFO AL ARTÍCULO 2.47 BIS; EL ARTÍCULO 2.47 QUÁTER; LOS ARTÍCULOS 2.48 BIS; 2.48 TER; 2.48 QUÁTER; 2.48 QUINTUS; 2.48 SEXIES; 2.48 SEPTIES; LA FRACCIÓN V AL ARTÍCULO 2.72; LA FRACCIÓN V AL ARTÍCULO 2.72 BIS; EL SÉPTIMO PÁRRAFO DEL ARTÍCULO 2.72 TER. SE DEROGA LA FRACCIÓN IV DEL ARTÍCULO 2.65 Y LA FRACCIÓN VIII AL ARTÍCULO 2.75 DEL CÓDIGO ADMINISTRATIVO DEL ESTADO DE MÉXICO.
+PRIMERO.- Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
+SEGUNDO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "Gaceta del Gobierno".
+TERCERO.- Los Ayuntamientos en el ámbito de su competencia, proveerán lo necesario para dar cumplimiento al presente Decreto, expidiendo al efecto, las disposiciones respectivas.
+CUARTO.- El Consejo Rector de Impacto Sanitario, deberá de estar instalado en un término de quince días naturales a partir de la entrada en vigor del presente Decreto.
+QUINTO.- Se establece un término de diez días naturales posteriores a la instalación del Consejo Rector de Impacto Sanitario para que puedan sesionar sobre los asuntos correspondientes a la emisión del Dictamen de Factibilidad de Impacto Sanitario.
+SEXTO.- El Ejecutivo del Estado deberá expedir en un término de quince días naturales a partir de la entrada en vigor del presente Decreto las disposiciones reglamentarias respectivas.
+SÉPTIMO.- Se derogan las disposiciones jurídicas de igual o menor jerarquía que se opongan a lo dispuesto por el presente Decreto.
