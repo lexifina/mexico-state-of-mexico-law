@@ -1,4 +1,5 @@
 CÓDIGO ADMINISTRATIVO DEL ESTADO DE MÉXICO
+N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN LA G.G. DE 30 DE OCTUBRE DE 2013.
 Código publicado en la Gaceta del Gobierno del Estado de México, el jueves 13 de diciembre de 2001.
 ARTURO MONTIEL ROJAS, Gobernador Constitucional del Estado Libre y Soberano de México, a sus habitantes sabed:
 Que la Legislatura del Estado, ha tenido a bien aprobar lo siguiente:
