@@ -6,5 +6,5 @@ III. Las subdivisiones y fusiones de predios sin construcción ni aprovechamient
 IV. Los orfanatorios, asilos de ancianos e indigentes y albergues.
 V. La extracción de minerales metálicos y no metálicos.
 VI. Los inmuebles para captación y distribución de agua, diques, presas, represas, canales, arroyos, ríos, tratamiento, conducción y distribución de agua, operación de plantas potabilizadoras, plantas de tratamiento de aguas negras, lagunas de oxidación, de control y de regulación, zonas de transferencia de basura y rellenos sanitarios, así como estaciones y subestaciones eléctricas.
-VII. Los inmuebles destinados a actividades agrícolas, ganaderas, silvícola o piscícolas.
+VII. Los inmuebles destinados a actividades agrícolas, ganaderas, silvícolas o piscícolas.
 VIII. Los estacionamientos, terminales de autobuses urbanos y foráneos, torres o sitios celulares denominados radiobases.
