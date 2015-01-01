@@ -1,10 +1,10 @@
 (ADICIONADO, G.G. 22 DE AGOSTO DE 2005)
-Artículo 14.7.- Compete al consejo Directivo del IGECEM:
+Artículo 14.7.- Compete al Consejo Directivo del IGECEM:
 I. Aprobar las normas técnicas para captar, procesar, integrar, resguardar y divulgar el acervo de información geográfica, estadística y catastral;
 II. Fijar las políticas, normas y criterios de organización y administración que oriente las actividades del IGECEM;
 III. Aprobar la estructura orgánica del IGECEM;
 IV. Aprobar el Reglamento Interior del IGECEM;
-V. Revisar, aprobar y evaluar el programa Estatal;
+V. Revisar, aprobar y evaluar el Programa Estatal;
 VI. Revisar y aprobar el proyecto del presupuesto anual del IGECEM;
 VII. Analizar y, en su caso, aprobar los estados financieros del IGECEM;
 VIII. Aprobar los ingresos y egresos ordinarios y extraordinarios, necesarios para cumplir el objeto del IGECEM;
