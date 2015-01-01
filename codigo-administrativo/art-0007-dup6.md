@@ -2,5 +2,5 @@
 Artículo 7.6.- La Secretaría de Transporte expedirá las normas técnicas relativas a las características de los equipos, sistemas, dispositivos y accesorios de seguridad con que deberán contar los vehículos de su competencia que transiten por la infraestructura vial, así como sobre los demás conceptos que regula el presente Libro, incluyendo la eficiencia y sustentabilidad del transporte, y podrá así mismo, expedir al respecto disposiciones de carácter general cuando lo estime procedente.
 (ADICIONADO, G.G. 23 DE OCTUBRE DE 2014)
 La Secretaría de Transporte en coordinación con la del Medio Ambiente, establecerá un programa de reducción de contaminantes que incluirá los indicadores que sean necesarios.
-(REFORMADO, G.G. 31 DE MARZO DE 2011)
-Con la finalidad de garantizar la seguridad de los pasajeros, los vehículos de transporte de pasajeros colectivo, de alta capacidad o masivo, individual y mixto, deberá contar con sistemas moderadores de velocidad, denominados gobernadores de velocidad.
+(REFORMADO, G.G. 16 DE DICIEMBRE DE 2014)
+Con la finalidad de garantizar la seguridad de los pasajeros, los vehículos de transporte de pasajeros colectivo, de alta capacidad o masivo, individual y mixto, deberán contar con sistemas moderadores de velocidad, denominados gobernadores de velocidad y con sistemas de videograbación que deberán almacenar su contenido en dispositivos de almacenamiento extraíbles, los que deberán colocarse en zonas de difícil acceso para las personas.
