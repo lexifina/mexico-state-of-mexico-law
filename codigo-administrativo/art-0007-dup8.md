@@ -1,2 +1,3 @@
-(REFORMADO, G.G. 31 DE MARZO DE 2011)
-Artículo 7.8.- Corresponde a la Secretaría de Finanzas matricular los vehículos destinados al transporte de uso particular, expidiendo las placas de matriculación, calcomanías, tarjetas de circulación y demás elementos de identificación que se estimen necesarios.
+(REFORMADO, G.G. 16 DE OCTUBRE DE 2014)
+Artículo 7.8.- Corresponde a la Secretaría de Finanzas matricular los vehículos destinados al transporte de uso particular, expidiendo las placas de matriculación, calcomanías, tarjetas de circulación y demás elementos de identificación que se estimen necesarios; así como realizar todos aquellos trámites de control vehicular que modifiquen y actualicen el registro del vehículo.
+Para tal efecto, la Secretaría de Finanzas emitirá Reglas de Carácter General a través de las cuales se definan los procedimientos y requisitos para trámites de control vehicular, considerando, en su caso, el uso de medios electrónicos, debiendo publicarse en el Periódico Oficial "Gaceta del Gobierno".
