@@ -1,0 +1,5 @@
+G.G. 26 DE ENERO DE 2015.
+DECRETO NÚMERO 394, POR EL QUE SE REFORMAN LOS ARTÍCULOS 137 BIS EN SU FRACCIÓN II DEL SEGUNDO PÁRRAFO, 193 EN SUS PÁRRAFOS PRIMERO Y TERCERO, 229 EN SUS PÁRRAFOS SEGUNDO, TERCERO Y CUARTO, 266 EN SUS PÁRRAFOS PRIMERO Y SEGUNDO, 290 EN SUS FRACCIONES I EN SU PRIMER PÁRRAFO, II EN SU PRIMER PÁRRAFO, III, V, XVIII Y EL 292 EN SU SEGUNDO PÁRRAFO Y SE ADICIONA AL 193 UN CUARTO PÁRRAFO DEL CÓDIGO PENAL DEL ESTADO DE MÉXICO.
+PRIMERO. Publíquese el presente Decreto en el periódico oficial "Gaceta del Gobierno".
+SEGUNDO. El presente Decreto entrara en vigor al día siguiente de su publicación en el Periódico Oficial "Gaceta del Gobierno", con excepción de la reforma al párrafo tercero del artículo 193 del Código Penal del Estado de México, por el que se impone de tres meses a un año de prisión al que maneje o utilice un vehículo de motor sin ambas placas de circulación o la autorización para circular, la cual, entrará en vigor a los seis meses posteriores a la publicación del presente Decreto.
+TERCERO. Se derogan las disposiciones de igual o menor jerarquía que se opongan a lo establecido por el presente Decreto.
