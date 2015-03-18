@@ -1,2 +1,2 @@
-Artículo 6.97. En el caso de haber reincidencia en la violación a las disposiciones del presente libro la sanción se duplicará y podrá imponerse arresto del responsable legal o administrativo hasta por treinta y seis horas inconmutables.
+Artículo 6.97. En el caso de haber reincidencia en la violación a las disposiciones del presente Libro la sanción se duplicará y podrá imponerse arresto del responsable legal o administrativo hasta por treinta y seis horas inconmutables.
 Para efectos del presente Libro se reincide, cuando habiendo quedado firme una resolución que imponga una sanción se cometa una nueva falta dentro de los doce meses contados a partir de aquélla.
