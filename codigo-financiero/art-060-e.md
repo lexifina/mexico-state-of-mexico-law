@@ -2,10 +2,10 @@ N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE SUBSECCIÓN, VÉASE
 (ADICIONADA CON LOS ARTÍCULOS QUE LA INTEGRAN, G.G. 16 DE DICIEMBRE DE 2011)
 SUBSECCION II
 DEL CALCULO DEL IMPUESTO
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+N. DE E. PARA CONSULTAR LAS CUOTAS O TARIFAS, APLICABLES DURANTE EL EJERCICIO FISCAL 2015, VÉASE LA INFORMACIÓN FISCAL EMITIDA POR LA SECRETARÍA DE FINANZAS DEL GOBIERNO DEL ESTADO Y PUBLICADA EN LA G.G. DE 1 DE ENERO DE 2015, PÁGINAS DE LA 1 A LA 2.
 (ADICIONADO, G.G. 16 DE DICIEMBRE DE 2011)
 Artículo 60 E.- Este impuesto se calculará como a continuación se indica:
-(ACTUALIZADA EN SUS CUOTAS Y TARIFAS, G.G. 1 DE ENERO DE 2014)
+(ACTUALIZADO EN SUS CUOTAS Y TARIFAS, G.G. 1 DE ENERO DE 2014)
 I. En el caso de automóviles destinados al transporte particular de hasta quince pasajeros, motocicletas y embarcaciones, el impuesto será el que resulte de aplicar el procedimiento siguiente:
 A). El valor total del vehículo se multiplicará por el factor de depreciación, de acuerdo al año modelo del vehículo, de conformidad con la siguiente:
 TABLA
