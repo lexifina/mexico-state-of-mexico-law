@@ -1,4 +1,18 @@
-Artículo 3.30.- Cuando el oficial del Registro Civil presuma que la muerte fue violenta, lo denunciará al Ministerio Público.
-Cuando éste conozca de un fallecimiento, dará parte al oficial del Registro Civil para que asiente el acta respectiva. Si se ignora la identidad del difunto, se asentarán las señas de éste, las de los vestidos y objetos que con él se hubieren encontrado y, en general, todo lo que pueda conducir a su identificación.
-Si el Ministerio Público tuviese conocimiento superviniente de datos que conduzcan a la identificación del cadáver, los hará saber desde luego al oficial del Registro Civil para su anotación marginal.
-Acta de defunción de quien no aparece su cadáver
+(REFORMADO PRIMER PÁRRAFO, G.G. 7 DE MAYO DE 2015)
+Artículo 3.29.- La defunción es la cesación completa y definitiva de los signos vitales de una persona física, que puede producirse de manera natural o de forma violenta.
+(ADICIONADO [N. DE E. REUBICADO ANTES PRIMER PÁRRAFO], G.G. 7 DE MAYO DE 2015)
+El acta de defunción contendrá:
+(REFORMADA, G.G. 7 DE MAYO DE 2015)
+l. Datos generales del finado.
+ll. (DEROGADA, G.G. 7 DE MAYO DE 2015)
+III. Nombre de los padres del difunto, si se supieren;
+IV. (DEROGADA, G.G. 7 DE MAYO DE 2015)
+V. La causa de la muerte;
+(REFORMADA, G.G. 7 DE MAYO DE 2015)
+VI. El destino final del cadáver y en su caso, el número de la orden de inhumación o cremación.
+VII. Fecha, hora y lugar de la muerte y todos los informes que se tengan en caso de muerte violenta;
+(REFORMADA, G.G. 7 DE MAYO DE 2015)
+VIII. Nombre, número de cédula profesional, domicilio del médico que certifique la defunción y folio del certificado de defunción.
+(REFORMADA, G.G. 7 DE MAYO DE 2015)
+IX. Datos generales del declarante.
+Aviso al Ministerio Público de muerte violenta

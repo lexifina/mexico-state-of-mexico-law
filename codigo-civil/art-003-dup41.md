@@ -1,9 +1,11 @@
-Artículo 3.39.- Pueden pedir la rectificación o modificación de un acta del estado civil:
-I. Las personas de cuyo estado se trata;
-II. Las personas que se mencionan en el acta como relacionadas con el estado civil de alguno;
-III. Los herederos de las personas comprendidas en las dos fracciones anteriores;
-(REFORMADA, G.G. 7 DE SEPTIEMBRE DEL 2004)
-IV. Los tutores o personas que ejerzan la patria potestad de los menores e incapaces; y
-(ADICIONADA, G.G. 7 DE SEPTIEMBRE DEL 2004)
-V. Las demás personas a las que la ley concede expresamente esta facultad.
-Forma del juicio sobre rectificación o modificación
+Artículo 3.38 Ter.- El Consejo Dictaminador será un órgano colegiado que se conformará con la única finalidad de resolver sobre las solicitudes de cambio de sustantivo propio que mediante solicitud expresa se haya formulado en términos del presente Código y demás disposiciones aplicables y estará integrado por las o los titulares de:
+l. La Consejería Jurídica del Ejecutivo Estatal, quien lo presidirá;
+ll. La Dirección General del Registro Civil con el carácter de Secretaría Técnica.
+Y como Vocales:
+III. El Poder Judicial del Estado de México;
+IV. La Universidad Autónoma del Estado de México;
+V. El Colegio de Notarios del Estado de México;
+VI. El Sistema Estatal para el Desarrollo Integral de la Familia del Estado de México;
+VII. La Comisión de Derechos Humanos del Estado de México.
+Cada integrante designará a su respectivo suplente.
+Legitimación para pedir la modificación o rectificación de acta

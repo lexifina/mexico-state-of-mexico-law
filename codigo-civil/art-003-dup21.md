@@ -1,3 +1,7 @@
-(REFORMADO, G.G. 15 DE MAYO DE 2012)
-Artículo 3.21.- Si el reconocimiento se hace por alguno de los otros medios establecidos en este Código, se presentará al Oficial del Registro Civil, el original o copia certificada del documento que lo compruebe. En el acta se insertará la parte relativa de dicho documento, observándose las demás prescripciones contenidas en este capítulo y en el relativo a las actas de nacimiento, sin perjuicio de las disposiciones contenidas en el artículo 3.4 de este Código.
-Omisión de registro de reconocimiento de hijo
+Artículo 3.20.- Si el reconocimiento del hijo fuera de matrimonio se hiciere después de haber sido registrado su nacimiento, se formará acta separada en la que, además de los requisitos a que se refiere este Código, se observarán, en sus respectivos casos, los siguientes:
+I. Si el hijo es mayor de edad, se expresará en el acta su consentimiento para ser reconocido;
+(REFORMADA, G.G. 7 DE MAYO DE 2015)
+II. Si el hijo es menor de edad, pero mayor de catorce años, se expresará su consentimiento y el de quien ejerza la patria potestad o en su caso el de la persona o institución que lo tuviere a su cargo.
+(REFORMADA, G.G. 7 DE MAYO DE 2015)
+III. Si el hijo es menor de catorce años, se expresará solo el consentimiento de quien ejerza la patria potestad o en su caso de la persona o institución que lo tuviere a su cargo.
+Otras actas de reconocimiento

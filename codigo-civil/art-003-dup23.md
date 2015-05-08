@@ -1,3 +1,6 @@
-Artículo 3.23.- Dictada la resolución definitiva que autorice la adopción, el adoptante dentro del plazo de quince días, presentará al Oficial del Registro Civil, copia certificada de las diligencias relativas, a fin de que se asiente el acta de nacimiento correspondiente.
+Artículo 3.22.- La omisión del registro, no quita los efectos legales al reconocimiento hecho conforme a las disposiciones de este Código.
+(REFORMADA SU DENOMINACIÓN, G.G. 15 DE MAYO DE 2012)
+CAPITULO III
+De las Actas de Adopción
 (REFORMADO, G.G. 15 DE MAYO DE 2012)
-Contenido y efectos del acta de adopción
+Plazo y documentos para levantar el acta de adopción
