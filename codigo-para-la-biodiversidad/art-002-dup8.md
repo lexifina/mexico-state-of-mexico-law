@@ -42,9 +42,11 @@ XXXV. Promover el establecimiento de estímulos e incentivos a la población que
 XXXVI. Organizar el Sistema Estatal de Atención a la Denuncia Ciudadana Ambiental;
 (REFORMADA, G.G. 30 DE AGOSTO DE 2012)
 XXXVII. Fomentar la incorporación, en los distintos niveles educativos, de programas de contenido ecológico y de educación ambiental, de investigación científica y tecnológica, que incluyan el tema del cambio climático para la prevención y difusión de sus efectos, pudiendo crear institutos de estudios ambientales y organismos necesarios para su cumplimiento;
-XXXVIII. Imponer las sanciones correspondientes por infracciones a este Libro en el ámbito de su competencia;
-XXXIX. Hacer cumplir el presente Libro, su Reglamento y demás ordenamientos aplicables; y
+(ADICIONADA, G.G. 19 DE JUNIO DE 2015)
+XXXVIII. Promover, a través de convenios de coordinación, concertación y ejecución con la Federación, secretarías de Estado, municipios, organizaciones sociales y privadas, la implementación de proyectos productivos que beneficien directamente a la población de aquellos municipios que cuenten con áreas naturales protegidas y zonas forestales, conforme a lo establecido en el presente Código.
+XXXIX. Imponer las sanciones correspondientes por infracciones a este Libro en el ámbito de su competencia;
+XL. Hacer cumplir el presente Libro, su Reglamento y demás ordenamientos aplicables; y
 (ADICIONADA, P.O. 31 DE MARZO DE 2011)
-XL. Determinar el uso restringido de la infraestructura vial; y
+XLI. Determinar el uso restringido de la infraestructura vial; y
 (REFORMADA, P.O. 31 DE MARZO DE 2011)
-XLI. Las demás que conforme a este libro y otras disposiciones aplicables le correspondan.
+XLII. Las demás que conforme a este libro y otras disposiciones aplicables le correspondan.
