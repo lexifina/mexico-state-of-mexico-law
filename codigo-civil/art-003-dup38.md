@@ -1,3 +1,5 @@
-(REFORMADO, G.G. 7 DE MAYO DE 2015)
-Artículo 3.37.- La rectificación, modificación o nulidad de las actas de los hechos o actos del estado civil, solo procede mediante resolución judicial, con excepción del reconocimiento voluntario que un padre haga de su hijo y de lo dispuesto en el artículo 3.38 bis de este Código.
-Causas de rectificación o modificación de actas
+(REFORMADO, G.G. 15 DE MAYO DE 2012)
+Artículo 3.36.- Cuando se recobre la capacidad o concluya la limitación legal para administrar bienes, se revoque la tutela, se declare nulo un divorcio o se presente la persona declarada ausente o cuya muerte se presumía, se dará aviso al Oficial del Registro Civil por la autoridad que corresponda, para que cancele el acta o inscripción respectiva.
+CAPITULO VII
+De la rectificación de las Actas del Estado Civil
+Rectificación de actas del estado civil

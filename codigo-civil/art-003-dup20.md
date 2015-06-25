@@ -1,2 +1,3 @@
-Artículo 3.19 Bis.- Si la madre, el padre o ambos, de un hijo nacido fuera de matrimonio, lo reconocieren al presentarlo para que se registre su nacimiento, el acta contendrá los requisitos establecidos en los artículos anteriores. Ésta surtirá los efectos del reconocimiento.
-Reconocimiento de hijo después de registrado su nacimiento
+Artículo 3.19.- El reconocimiento es el acto jurídico en virtud del cual, el que reconoce asume a favor del reconocido todos los derechos y obligaciones que se derivan de la filiación.
+(ADICIONADO, G.G. 7 DE MAYO DE 2015)
+Reconocimiento de hijo al declarar su nacimiento

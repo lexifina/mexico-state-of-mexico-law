@@ -1,4 +1,7 @@
-Artículo 3.8.- El registro oportuno es el hecho que se declara dentro del primer año de ocurrido el nacimiento.
-El registro extemporáneo es aquel que se declara después de un año de ocurrido el nacimiento.
-Los registros extemporáneos de nacimiento de personas originarias del Estado de México que viven en el extranjero, se harán conforme a lo dispuesto en el Reglamento del Registro Civil vigente en la entidad.
-Personas obligadas a declarar el nacimiento
+Artículo 3.7 Bis.- Toda persona puede solicitar la expedición gratuita de la constancia de origen que se emitirá en un plazo no mayor de 24 horas, cuando los familiares o personas relacionadas con los migrantes así lo soliciten, conforme al Reglamento del Registro Civil.
+TITULO SEGUNDO
+De las Actas
+CAPITULO I
+De las Actas de Nacimiento
+(REFORMADO, G.G. 7 DE MAYO DE 2015)
+Del registro de nacimiento

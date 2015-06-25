@@ -1,3 +1,3 @@
 (REFORMADO, G.G. 7 DE MAYO DE 2015)
-Artículo 3.16.- El nacimiento podrá registrarse en el lugar en que ocurra o en el domicilio de los padres, según las reglas antes establecidas.
-Actas simultáneas de nacimiento y muerte
+Artículo 3.15.- En las actas relativas a los casos de los dos artículos anteriores, se anotarán su sexo, el nombre que se le ponga y si se supiere, fecha, lugar y hora de nacimiento, así como datos que se desprendan de la Carpeta de Investigación.
+Lugar del registro del nacimiento
