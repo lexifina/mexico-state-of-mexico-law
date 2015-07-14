@@ -1,2 +1,2 @@
-(ADICIONADO, G.G.17 DE AGOSTO DE 2009)
+(ADICIONADO, G.G. 17 DE AGOSTO DE 2009)
 ARTICULO DECIMO QUINTO BIS.- Los servidores públicos del organismo además de las atribuciones señaladas en la presente Ley, tendrán las funciones y atribuciones contenidas en sus reglamentos interiores, manuales, acuerdos, circulares y otras disposiciones legales que tiendan a regular el funcionamiento del Organismo y serán responsables del ejercicio de las funciones propias de su competencia.
