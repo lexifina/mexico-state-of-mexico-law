@@ -2,7 +2,8 @@
 ARTICULO DECIMO TERCERO BIS E.- La Presidencia tendrá las atribuciones y obligaciones siguientes:
 I. Cumplir los objetivos, funciones y labores sociales del Organismo;
 II. Ejecutar los acuerdos y disposiciones de la Junta de Gobierno;
-III. Dictar las medidas y acuerdos necesarios para la protección de la infancia, el senescente, el discapacitado y la integración de la familia; así como para cumplir con los objetivos del Organismo;
+(REFORMADA, G.G. 6 DE AGOSTO DE 2015)
+III. Dictar las medidas y acuerdos necesarios para la protección de niñas, niños y adolescentes, adultos mayores, las personas con discapacidad y para la integración de la familia, así como para cumplir con los objetivos del organismo.
 IV. Proponer a la Junta de Gobierno el Reglamento Interno del Organismo y sus modificaciones; así como los manuales de organización, de procedimientos y de servicios al público;
 V. Proponer a la Junta de Gobierno los planes y programas de trabajo del Organismo;
 VI. Celebrar los convenios necesarios con las dependencias y entidades públicas para el cumplimiento de los objetivos del Organismo;

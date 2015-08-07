@@ -1,6 +1,5 @@
-Artículo 3.7.- Para vender o gravar bienes que pertenezcan a menores o sujetos a interdicción, será necesaria autorización judicial si corresponden a las siguientes clases:
-I. Bienes inmuebles y derechos reales sobre ellos;
-II. Alhajas y muebles valiosos;
-III. Acciones sobre personas jurídicas colectivas, cuando la suma de sus valores exceda de quinientas veces el salario mínimo;
-IV. Derechos de patentes, marcas, autorales y otros análogos.
-Requisitos para conceder la autorización
+Artículo 3.6.- Las providencias dictadas en procedimientos judiciales no contenciosos, son apelables con efecto suspensivo si el recurso lo interpone el promovente y en el efecto no suspensivo, cuando las recurra un tercero.
+CAPITULO II
+De la Autorización para Vender, Gravar Bienes y Transigir
+Derechos de Menores o Sujetos a Interdicción
+Autorización judicial para vender o gravar

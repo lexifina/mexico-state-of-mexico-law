@@ -1,2 +1,2 @@
-Artículo 3.24.- Comprobada debidamente la posesión, el Juez declarará que el poseedor se ha convertido en propietario.
-Inscripción de la posesión.
+Artículo 3.23.- Para recibir la información, previamente se publicarán edictos con los datos necesarios de la solicitud del promovente, por dos veces con intervalos de por lo menos dos días, en el periódico oficial "Gaceta del Gobierno" y en otro periódico de circulación diaria.
+Pronunciamiento de la resolución

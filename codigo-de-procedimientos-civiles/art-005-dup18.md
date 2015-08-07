@@ -1,4 +1,4 @@
-Artículo 5.18.- las audiencias se registrarán en video, audiograbación o cualquier medio apto, a juicio del juez, para producir seguridad en las actuaciones e información que permitan garantizar su fidelidad, integridad, conservación, reproducción de su contenido y acceso, a quienes de acuerdo a la ley tuvieren derecho a ello.
+Artículo 5.17.- Las partes podrán de común acuerdo, por una sola vez, solicitar la suspensión de la audiencia, para lo cual, el juez señalará nuevo día y hora para su celebración dentro de un plazo que no excederá de quince días hábiles.
 N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Limitación en el uso de la palabra
+Registro de audiencias

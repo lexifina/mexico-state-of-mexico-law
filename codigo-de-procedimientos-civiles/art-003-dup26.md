@@ -1,2 +1,2 @@
-Artículo 3.26.- Para recibir la testimonial, previamente se citará a las autoridades y personas y se hará la publicación conforme a lo dispuesto para la información de dominio.
-Oposición a la información de dominio o posesoria
+Artículo 3.25.- La posesión apta para prescribir bienes inmuebles no inscritos en el Registro Público de la Propiedad, podrá ser objeto de registro; para cuyo efecto el interesado acompañará a su solicitud los documentos que se exigen para la información de dominio.
+Información posesoria

@@ -8,4 +8,5 @@ TITULO SEGUNDO
 Sucesiones
 CAPITULO I
 Disposiciones Generales
+(REFORMADO, G.G. 6 DE AGOSTO DE 2015)
 Medidas urgentes en caso de fallecimiento

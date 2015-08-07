@@ -1,2 +1,3 @@
-Artículo 3.13.- El precio de la venta o crédito del gravamen se destinará para los fines autorizados, lo que deberá justificarse ante el Juez, quedando responsable de ello el que obtenga la autorización.
-Transacción sobre derechos de menores o sujetos a interdicción
+Artículo 3.12.- El Juez determinará si conviene o no, la subasta de bienes, atendiendo a la utilidad que pueda resultar a favor del menor.
+Cuando se decrete el remate de los bienes, se realizará conforme a lo que se dispone en este Código.
+Destino del precio

@@ -3,5 +3,5 @@ TITULO SEGUNDO
 De las Actas
 CAPITULO I
 De las Actas de Nacimiento
-(REFORMADO, G.G. 7 DE MAYO DE 2015)
-Del registro de nacimiento
+(REFORMADA SU DENOMINACIÓN, G.G. 6 DE AGOSTO DE 2015)
+Presentación de la persona para declarar su nacimiento

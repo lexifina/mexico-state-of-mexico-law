@@ -1,3 +1,3 @@
-Artículo 1.80.- La gestión judicial es admisible para representar al actor, al demandado o a un tercero.
-El gestor debe sujetarse a lo que dispone el Código Civil.
-Garantía para ser gestor judicial
+Artículo 1.79 Bis.- A falta de quienes ejerzan la representación originaria de niñas, niños y adolescentes, o cuando por otra causa así lo determine el órgano jurisdiccional competente, con base en el interés superior de la niñez, la representación en suplencia corresponderá a la Procuraduría de Protección de Niñas, Niños y Adolescentes del Estado de México y las procuradurías de protección municipales.
+Cuando existan indicios de conflicto de intereses entre quienes ejerzan la representación originaria o de estos con niñas, niños y adolescentes o por una representación deficiente o dolosa, a petición del Ministerio Público, de la Procuraduría de Protección de Niñas, Niños y Adolescentes del Estado de México o de oficio, el órgano jurisdiccional que conozca del asunto deberá sustanciar por vía incidental, un procedimiento sumario de restricción, suspensión o revocación de la representación originaria, según sea el caso, para efectos de que la Procuraduría de Protección competente ejerza la representación en suplencia.
+Gestión judicial

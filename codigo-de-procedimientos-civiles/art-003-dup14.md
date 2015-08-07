@@ -1,4 +1,2 @@
-Artículo 3.14.- Lo dispuesto en este capítulo se aplicará, en lo conducente, a las transacciones de derechos de menores o sujetos a interdicción.
-CAPITULO III
-De la Adopción
-Requisitos de la adopción
+Artículo 3.13.- El precio de la venta o crédito del gravamen se destinará para los fines autorizados, lo que deberá justificarse ante el Juez, quedando responsable de ello el que obtenga la autorización.
+Transacción sobre derechos de menores o sujetos a interdicción

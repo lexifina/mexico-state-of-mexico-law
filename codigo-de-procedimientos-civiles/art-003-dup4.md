@@ -1,5 +1,2 @@
-Artículo 3.4.- Se notificará a la persona que sea necesario oírla, haciendo de su conocimiento que quedan las actuaciones a su vista; igualmente se le dará a conocer la fecha para recibir pruebas o para la práctica de las diligencias decretadas.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
-(ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-En asuntos del derecho familiar, en su caso, se señalará fecha dentro de los cinco días siguientes para la audiencia de recepción de pruebas o para la práctica de las diligencias respectivas.
-Oposición a proceso no contencioso
+Artículo 3.3 Bis.- La Procuraduría de Protección de Niñas, Niños y Adolescentes del Estado de México será oída cuando se refiera a la persona o bienes de niñas, niños o adolescentes, cuando carezcan de representante legal o el Juez advierta que es omiso o actúa en contra de los intereses de aquellos. Asimismo, será oída cuando el Juez lo considere necesario o lo dispongan las leyes.
+Audiencia previa

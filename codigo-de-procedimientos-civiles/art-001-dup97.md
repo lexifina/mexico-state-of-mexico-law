@@ -1,6 +1,3 @@
-Artículo 1.95.- Los Tribunales exigirán la presentación de la cédula de ejercicio profesional de los abogados patronos o asesores, la cual registrarán en el libro respectivo. Quienes no la presenten por ningún motivo se les permitirá figurar en audiencias o diligencias, ni enterarse de actuaciones o revisar expedientes. Los servidores judiciales que lo consintieren incurrirán en responsabilidad administrativa conforme a la ley.
-TITULO SEPTIMO
-Actos Procesales en General
-CAPITULO I
-De las Formalidades Judiciales
-Forma de las actuaciones y promociones
+(REFORMADO, G.G. 10 DE JULIO DE 2014)
+Artículo 1.94.- Los Licenciados en Derecho podrán autorizar con su firma toda promoción escrita o verbal de sus clientes, para justificar su patrocinio. La falta de firma del profesional, no impedirá que se les dé curso; en los juicios de violencia familiar y de alimentos el Juez tomará las medidas necesarias a efecto de que el demandante de violencia familiar y de alimentos no quede en estado de indefensión cuando no cuente con licenciado en derecho que lo patrocine y para ello, tomará la medida citada en el artículo anterior y el defensor público lo asistirá en las diligencias en la que deba intervenir.
+Exhibición de cédula profesional

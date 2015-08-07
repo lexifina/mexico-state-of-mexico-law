@@ -1,5 +1,4 @@
-Artículo 5.12.- Sólo durante las audiencias podrán reclamarse las nulidades que de ellas se originen; las cuales previa vista a la contraria, se resolverán en el propio acto.
-La nulidad producida en la audiencia principal deberá reclamarse durante ésta, antes de que el juez pronuncie la sentencia definitiva.
+Artículo 5.11.- Las diligencias de desahogo de pruebas que deban verificarse fuera del juzgado pero dentro de su ámbito de competencia territorial, serán presididas por el juez; se registrarán conforme a lo dispuesto para las audiencias en el juzgado.
 N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Notificación en audiencia
+Nulidad de una actuación

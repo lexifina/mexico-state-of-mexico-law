@@ -1,3 +1,3 @@
-Artículo 3.12.- El Juez determinará si conviene o no, la subasta de bienes, atendiendo a la utilidad que pueda resultar a favor del menor.
-Cuando se decrete el remate de los bienes, se realizará conforme a lo que se dispone en este Código.
-Destino del precio
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
+Artículo 3.11.- (DEROGADO, G.G. 19 DE FEBRERO DE 2009)
+Subasta de los bienes

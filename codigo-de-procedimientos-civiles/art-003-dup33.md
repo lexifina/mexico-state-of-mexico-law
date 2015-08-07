@@ -1,2 +1,7 @@
-Artículo 3.33.- A la solicitud se acompañarán los planos, títulos de propiedad y demás documentos que sean necesarios para la práctica de la diligencia.
-Notificación a los colindantes y señalamiento de fecha y lugar para la diligencia.
+Artículo 3.32.- La solicitud de apeo o deslinde deberá contener:
+I. La ubicación del inmueble y su denominación, si la tuviere;
+II. En su caso, la parte o partes específicas sobre las que se pretenda llevar a cabo;
+III. Los nombres de los colindantes;
+IV. El sitio donde están y donde deban colocarse las señales, y si éstas no existen, el lugar donde estuvieron;
+V. Designación de un perito.
+Documentos y planos

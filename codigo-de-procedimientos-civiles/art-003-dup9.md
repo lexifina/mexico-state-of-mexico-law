@@ -1,2 +1,2 @@
-Artículo 3.9.- Quien solicite la venta o gravamen, deberá proponer las bases del remate en lo correspondiente a la cantidad que deba darse de contado, el plazo, interés y garantías para el pago del saldo.
-Substanciación de la solicitud de venta o gravamen
+Artículo 3.8.- En la solicitud deberá expresarse el motivo de la venta o gravamen y destino al que se aplicará el producto de la operación, exponiendo las razones justificadas por las que se estime conveniente la enajenación.
+Solicitud de venta o gravamen

@@ -1,5 +1,4 @@
-Artículo 5.28.- La facultad de las partes para realizar determinados actos procesales en las audiencias, producirá su preclusión de no hacerse valer en la fase correspondiente.
-El juez determinará el inicio y la conclusión de cada una de las etapas de las audiencias, precluyendo los derechos procesales que debieron ejercitarse en las anteriores.
+Artículo 5.27.- De cada audiencia se instrumentará acta que contendrá la fecha, lugar, hora de inicio y término, el nombre de los servidores públicos y personas que hubieren intervenido, la relación de los actos procesales celebrados y la mención sucinta de requerimientos, citaciones, apercibimientos y cualquier otro acto que el juez determine deba comunicarse a las partes o terceros que no asistieron; la cual será firmada por el juez y el secretario.
 N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Protesta de decir verdad
+Preclusión

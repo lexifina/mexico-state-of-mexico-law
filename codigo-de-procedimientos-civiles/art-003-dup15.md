@@ -1,2 +1,4 @@
-Artículo 3.15.- El que pretenda adoptar, deberá acreditar los requisitos señalados en el Código Civil.
-Requisitos de la solicitud
+Artículo 3.14.- Lo dispuesto en este capítulo se aplicará, en lo conducente, a las transacciones de derechos de menores o sujetos a interdicción.
+CAPITULO III
+De la Adopción
+Requisitos de la adopción

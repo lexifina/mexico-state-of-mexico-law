@@ -4,7 +4,8 @@ I. El honor, la dignidad, el crédito y el prestigio;
 (REFORMADA, G.G. 6 DE MARZO DE 2010)
 II. El aseguramiento de una vida privada y familiar libre de violencia;
 III. El respeto a la reproducción de la imagen y voz;
-IV. Los derivados del nombre o del seudónimo y de la identidad personal;
+(REFORMADA, G.G. 6 DE AGOSTO DE 2015)
+IV. Los derivados del nombre o del seudónimo, de la nacionalidad, de la pertenencia cultural, de la filiación, de su origen y de su identidad.
 V. El domicilio;
 VI. La presencia estética;
 VII. Los afectivos derivados de la familia, la amistad y los bienes;

@@ -1,4 +1,7 @@
-Artículo 5.74.- Los autos y decretos dictados fuera de audiencia serán revocables conforme a las reglas generales.
+Artículo 5.73.- (DEROGADO, G.G. 3 DE MAYO DE 2012)
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, G.G. 19 DE FEBRERO DE 2009)
+CAPITULO VIII
+De los Recursos
 N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-De la revocación en audiencia
+Revocación fuera de audiencia

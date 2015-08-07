@@ -1,3 +1,3 @@
-(REFORMADO, G.G. 10 DE JULIO DE 2014)
-Artículo 1.94.- Los Licenciados en Derecho podrán autorizar con su firma toda promoción escrita o verbal de sus clientes, para justificar su patrocinio. La falta de firma del profesional, no impedirá que se les dé curso; en los juicios de violencia familiar y de alimentos el Juez tomará las medidas necesarias a efecto de que el demandante de violencia familiar y de alimentos no quede en estado de indefensión cuando no cuente con licenciado en derecho que lo patrocine y para ello, tomará la medida citada en el artículo anterior y el defensor público lo asistirá en las diligencias en la que deba intervenir.
-Exhibición de cédula profesional
+(REFORMADO, G.G. 24 DE ABRIL DE 2012)
+Artículo 1.93.- Todo interesado en cualquier actividad judicial debe tener el patrocinio de un Licenciado en Derecho o su equivalente con título y cédula de ejercicio profesional legalmente expedidos; salvo en materia de violencia familiar y de alimentos, donde el Juez, en su caso, le designará un defensor público.
+Autorización de las promociones

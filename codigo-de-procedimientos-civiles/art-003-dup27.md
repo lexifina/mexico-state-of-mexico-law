@@ -1,2 +1,2 @@
-Artículo 3.27.- Quien se sienta afectado con la información de dominio o de posesión, lo alegará por escrito y se suspenderá el curso del expediente de información, si éste estuviera ya concluido y aprobado, deberá el Juez poner la demanda en conocimiento del Registrador para que suspenda la inscripción y si ya estuviere hecha, para que anote dicha demanda.
-Caducidad de la oposición
+Artículo 3.26.- Para recibir la testimonial, previamente se citará a las autoridades y personas y se hará la publicación conforme a lo dispuesto para la información de dominio.
+Oposición a la información de dominio o posesoria

@@ -1,6 +1,7 @@
-Artículo 5.40.1.- Las controversias de alimentos podrán iniciarse a través del formato de demanda que instrumentará el Poder Judicial del Estado y que será distribuido en las Oficialías del Registro Civil, Oficialías Calificadoras y las Mediadora-Conciliadoras en los Municipios, Coordinaciones Municipales de Derechos Humanos, Sistemas Estatal y Municipales de Desarrollo Integral de la Familia, Ministerios Públicos, Defensoría Pública y Juzgados de lo Familiar.
-Esta demanda podrá ser presentada por quien tenga derecho a los alimentos o por su representante. Para el caso de que no se cuente con el patrocinio de abogado, el Juez de Oficio le designará un Defensor Público.
-Igualmente el Poder Judicial del Estado distribuirá un formato de consignación de alimentos en los términos del primer párrafo, en el que bastará la firma del promovente.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
-(ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Presentación de documentos
+Artículo 5.40.- La demanda, la reconvención y contestación a éstas, se regularán por lo previsto en el Libro Segundo, en lo que no se oponga al presente capítulo.
+(ADICIONADO, G.G. 6 DE SEPTIEMBRE DE 2011)
+En las controversias de la fracción I del artículo 5.2 del presente ordenamiento no se requerirán formalidades especiales para acudir ante el Juez, y los jueces y tribunales deberán suplir la deficiencia de la queja en sus planteamientos de derecho.
+En la demanda, reconvención y contestación a éstas, se ofrecerán las pruebas respectivas.
+Además de los medios de prueba que este código establece, las partes podrán ofrecer la declaración de parte, sin más requisitos que los establecidos en este capítulo.
+(ADICIONADO, G.G. 24 DE ABRIL DE 2012)
+Del formato de demanda de alimentos

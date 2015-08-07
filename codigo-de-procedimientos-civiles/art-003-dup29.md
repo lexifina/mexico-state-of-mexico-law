@@ -1,4 +1,2 @@
-Artículo 3.29.- Las informaciones se protocolizarán ante el Notario que designe el interesado y se inscribirán en el Registro Público de la Propiedad.
-CAPITULO V
-Del Apeo o Deslinde
-Procedencia
+Artículo 3.28.- Si el opositor deja transcurrir seis meses sin promover en el procedimiento de oposición, quedará éste sin efecto, haciéndose, en su caso, la cancelación que proceda.
+Protocolización de las informaciones

@@ -1,5 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
-(REFORMADO PRIMER PÁRRAFO, G.G. 19 DE FEBRERO DE 2009)
-Artículo 3.17.- Cumplidos los requisitos del artículo anterior y obtenido el consentimiento del que legalmente deba darlo, el juez citará a una audiencia dentro de los cinco días siguientes en la que resolverá lo procedente.
-La resolución es apelable con efecto suspensivo.
-Revocación de la adopción
+(REFORMADO, G.G. 7 DE SEPTIEMBRE DE 2004)
+Artículo 3.16.- En la solicitud deberá manifestarse el nombre y edad del menor o incapacitado, nombre y domicilio de quienes ejerzan sobre él la patria potestad o la tutela; o de la persona o institución pública o privada que lo haya acogido; debiéndose anexar el certificado de idoneidad expedido por el Sistema para el Desarrollo Integral de la Familia del Estado de México, que contendrá los estudios médico, psicológico, socioeconómico y de trabajo social realizados por el Sistema o por quien éste autorice.
+Resolución

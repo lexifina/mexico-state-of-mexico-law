@@ -1,3 +1,6 @@
-Artículo 5.64.- El juez ordenará el desahogo de las pruebas admitidas que no hayan sido recibidas en la audiencia principal por causas ajenas al oferente; y señalará nuevo día y hora para la continuación de la audiencia, en un plazo no mayor a cinco días.
-El juez dictará las providencias necesarias para su desahogo.
-Cuando se hayan solicitado informes de autoridades o particulares, se les requerirá para que, a la brevedad, los rindan. Una vez agotadas las medidas de apremio que se estimen conducentes, el juez podrá tenerlas por desiertas y señalará fecha dentro de los cinco días siguientes para la continuación de la audiencia.
+Artículo 5.63.- Los incidentes se formularán con ofrecimiento de pruebas durante la audiencia y previa vista a la contraria, se resolverán en la propia audiencia.
+Sólo será admisible la documental y presuncional, salvo que el juez estime el desahogo de algún otro medio de prueba para mejor proveer.
+El incidente de nulidad no suspende la citación para sentencia.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
+(ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
+Recepción de pruebas después de la audiencia principal

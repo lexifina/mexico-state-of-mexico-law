@@ -1,8 +1,7 @@
-Artículo 5.16.- El interés superior de los menores y su derecho a ser escuchado, son principios rectores que el juez debe tener siempre como consideración primordial en la tramitación y resolución del asunto sometido a su conocimiento.
-Al resolver una controversia, el juez podrá dictar las medidas que estime pertinentes para salvaguardar el interés superior del menor, entre otras, ordenar terapia médica, psicológica o social a sus progenitores o quienes integren el grupo familiar.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
-(ADICIONADO, G.G. 9 DE AGOSTO DE 2012)
-En los asuntos en que estén involucrados menores o incapaces, el juez deberá suplir la deficiencia de la queja en beneficio de éstos.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
-(ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Suspensión de la audiencia
+Artículo 5.15.- Dos o más controversias deben acumularse cuando la decisión de cada una exige la comprobación, la constitución, o la modificación de relaciones jurídicas que derivan en todo o en parte del mismo hecho, de manera que éste tiene necesariamente que comprobarse en todo caso, o tienden, en todo o en parte, al mismo efecto; o cuando en dos o más juicios deba resolverse totalmente o parcialmente una misma controversia.
+La acumulación procederá en cualquier etapa del proceso hasta la fase de alegatos.
+La acumulación se hará a favor del que prevenga en el conocimiento de los juicios.
+Los asuntos conexos se acumularán a instancia de parte o de manera oficiosa, a fin de evitar sentencias contradictorias.
+En la acumulación de juicios orales a ordinarios o viceversa, una vez concluida la fase de alegatos, se remitirán al que, por razón de prevención, le corresponda el conocimiento y decisión del asunto para que en una misma sentencia se resuelvan ambos.
+(REFORMADO, G.G. 6 DE AGOSTO DE 2015)
+Interés superior de niñas, niños y adolescentes

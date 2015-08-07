@@ -1,2 +1,2 @@
-Artículo 3.35.- Si fuere necesario identificar alguno o algunos de los puntos de deslinde, los interesados podrán presentar dos testigos de identificación por cada uno, a quienes se examinará en el lugar y hora de la diligencia.
-Diligencia de apeo o deslinde
+Artículo 3.34.- Presentada la promoción, el Juez la mandará notificar a los colindantes, para que dentro de tres días exhiban los títulos o documentos de su posesión y nombren perito si quisieren hacerlo, y señalará día, hora y lugar para que tenga verificativo la diligencia de apeo o deslinde.
+Identificación de puntos

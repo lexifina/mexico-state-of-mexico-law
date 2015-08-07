@@ -1,2 +1,6 @@
-Artículo 3.8.- En la solicitud deberá expresarse el motivo de la venta o gravamen y destino al que se aplicará el producto de la operación, exponiendo las razones justificadas por las que se estime conveniente la enajenación.
-Solicitud de venta o gravamen
+Artículo 3.7.- Para vender o gravar bienes que pertenezcan a menores o sujetos a interdicción, será necesaria autorización judicial si corresponden a las siguientes clases:
+I. Bienes inmuebles y derechos reales sobre ellos;
+II. Alhajas y muebles valiosos;
+III. Acciones sobre personas jurídicas colectivas, cuando la suma de sus valores exceda de quinientas veces el salario mínimo;
+IV. Derechos de patentes, marcas, autorales y otros análogos.
+Requisitos para conceder la autorización

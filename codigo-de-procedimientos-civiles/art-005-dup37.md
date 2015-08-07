@@ -1,6 +1,5 @@
-Artículo 5.37.- De existir imposiblidad (sic) para presentar a los testigos, el juez ordenará su citación personal con el apercibimiento que de no asistir se les impondrá una multa o arresto a juicio del juzgador y se ordenará su presentación a través de la policía ministerial.
-Sólo una vez se ordenará la presentación del testigo; de no lograrse, se declarará desierta.
-El juez cuidará la indivisibilidad de la prueba.
+Artículo 5.36.- La objeción de documentos será necesariamente al contestar la demanda, al reconvenir o al contestar ésta, o en su caso, en la fase de admisión y preparación de pruebas de la audiencia inicial, con el ofrecimiento de los medios de convicción que la acrediten; la de los exhibidos en audiencia, se hará en ésta.
+El juez proveerá lo conducente para recibir en la audiencia principal las probanzas admitidas.
 N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Reglas para la recepción de pruebas
+Citación de testigos

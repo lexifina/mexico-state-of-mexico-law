@@ -1,4 +1,5 @@
-Artículo 5.29.- Al inicio de las audiencias, el juez tomará la protesta de ley a quienes vayan a declarar.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
-(REFORMADO, G.G. 9 DE AGOSTO DE 2012)
-Intervención del Ministerio Público
+Artículo 5.28.- La facultad de las partes para realizar determinados actos procesales en las audiencias, producirá su preclusión de no hacerse valer en la fase correspondiente.
+El juez determinará el inicio y la conclusión de cada una de las etapas de las audiencias, precluyendo los derechos procesales que debieron ejercitarse en las anteriores.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
+(ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
+Protesta de decir verdad

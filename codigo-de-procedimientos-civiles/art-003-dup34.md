@@ -1,2 +1,2 @@
-Artículo 3.34.- Presentada la promoción, el Juez la mandará notificar a los colindantes, para que dentro de tres días exhiban los títulos o documentos de su posesión y nombren perito si quisieren hacerlo, y señalará día, hora y lugar para que tenga verificativo la diligencia de apeo o deslinde.
-Identificación de puntos
+Artículo 3.33.- A la solicitud se acompañarán los planos, títulos de propiedad y demás documentos que sean necesarios para la práctica de la diligencia.
+Notificación a los colindantes y señalamiento de fecha y lugar para la diligencia.

@@ -1,7 +1,7 @@
-Artículo 5.40.- La demanda, la reconvención y contestación a éstas, se regularán por lo previsto en el Libro Segundo, en lo que no se oponga al presente capítulo.
-(ADICIONADO, G.G. 6 DE SEPTIEMBRE DE 2011)
-En las controversias de la fracción I del artículo 5.2 del presente ordenamiento no se requerirán formalidades especiales para acudir ante el Juez, y los jueces y tribunales deberán suplir la deficiencia de la queja en sus planteamientos de derecho.
-En la demanda, reconvención y contestación a éstas, se ofrecerán las pruebas respectivas.
-Además de los medios de prueba que este código establece, las partes podrán ofrecer la declaración de parte, sin más requisitos que los establecidos en este capítulo.
-(ADICIONADO, G.G. 24 DE ABRIL DE 2012)
-Del formato de demanda de alimentos
+Artículo 5.39.- Se tendrán por ciertos los hechos que pretendan acreditar las partes al ofrecer los medios de prueba: cuando su contraria impida u obstaculice de cualquier forma su desahogo, no presente a los menores que tenga bajo su custodia y cuando no exhiba algún documento o instrumento de acreditarse que los tiene a su disposición.
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, G.G. 19 DE FEBRERO DE 2009)
+CAPITULO IV
+De la Demanda
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
+(ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
+De la demanda, reconvención y su contestación

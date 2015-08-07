@@ -1,7 +1,4 @@
-Artículo 5.20.- En cada audiencia el secretario de acuerdos hará saber a las partes, comparecientes y público asistente, el orden, decoro y. respeto que deberán observar así como los nombres de los servidores públicos jurisdiccionales y demás participantes.
-Corresponde al secretario verificar la identidad de los que intervendrán en las audiencias; hará constar la inasistencia de alguna de las partes.
-Si una parte o los terceros llegan al recinto oficial después de iniciada la audiencia, podrán incorporarse a partir de ese momento, sin embargo, tendrán por precluido el derecho para hacer valer las manifestaciones y demás actos referentes a las actuaciones ya celebradas.
-El Secretario hará constar el momento de su incorporación.
+Artículo 5.19.- El juez podrá limitar el tiempo en el uso excesivo de la palabra; asumirá en todo momento la dirección del proceso y aplicará las correcciones disciplinarias que estime pertinentes, incluso ordenar el retiro de la sala de audiencias.
 N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Recesos
+Disciplina en la Sala de Audiencias
