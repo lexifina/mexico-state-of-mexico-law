@@ -6,7 +6,5 @@ IV. El establecimiento de servicios de consultoría, asesoría e información pa
 V. La adopción de esquemas modernos de acopio, distribución y comercialización;
 VI. La formación y capacitación de árbitros, así como la constitución de unidades de arbitraje para dar certidumbre respecto de las transacciones en materia agropecuaria, acuícola y forestal;
 VII. La integración de cadenas productivas, y mecanismos que permitan la obtención de financiamientos con tasas preferenciales, en materia de comercialización.
-CAPITULO TERCERO
-De la investigación, transferencia de tecnología y capacitación
 SECCION PRIMERA
 De las facultades de la Secretaría de Desarrollo Agropecuario
