@@ -1,1 +1,5 @@
-Artículo 5.97. En los casos en que, durante la realización de actos de inspección no fuera posible encontrar en el lugar persona alguna a fin de que ésta pudiera ser designada como testigo el inspector deberá asentar esta circunstancia en el acta administrativa que al efecto se levante si media el consentimiento del inspeccionado, se podrá llevar a cabo la diligencia en ausencia de testigos sin que ello afecte la validez del acto de inspección.
+Artículo 5.96. En la práctica de actos de inspección a vehículos será suficiente que en la orden de inspección se establezca:
+l. La autoridad que la expide;
+II. El motivo y fundamento que le dé origen;
+III. El lugar, zona o región en donde se practique la inspección; y
+IV. El objeto y alcance de la diligencia.

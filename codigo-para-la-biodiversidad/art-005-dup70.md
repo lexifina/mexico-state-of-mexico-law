@@ -1,5 +1,1 @@
-TITULO SEPTIMO
-DEL APROVECHAMIENTO SOSTENIBLE DE LA VIDA SILVESTRE
-CAPITULO I
-DEL APROVECHAMIENTO EXTRACTIVO
-Artículo 5.70. Solamente se podrá realizar aprovechamiento extractivo de la vida silvestre en las condiciones de sostenibilidad prescritas en los siguientes artículos y a sugerencia de la Secretaría a la Federación.
+Artículo 5.69. Cuando no sea posible realizar acciones de repoblación ni de reintroducción la Secretaría propondrá a la Federación la autorización de liberación de ejemplares de la vida silvestre al hábitat natural en el marco de proyectos de traslocación que incluyan los mismos componentes señalados en los dos artículos anteriores. Los ejemplares que se liberen deberán en lo posible pertenecer a la especie o subespecie más cercana genética y fisonómicamente a la especie o subespecie desaparecida.

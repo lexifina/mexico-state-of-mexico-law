@@ -1,2 +1,5 @@
-Artículo 5.71. El aprovechamiento extractivo de ejemplares, partes y derivados de la vida silvestre requiere de una autorización previa de la Secretaría en la que se establecerá la tasa de aprovechamiento y su temporalidad.
-Los aprovechamientos a que se refiere el párrafo anterior podrán autorizarse para actividades cinegéticas, de colecta o captura con fines de reproducción, restauración, recuperación, repoblación, reintroducción, traslocación, económicos o de educación ambiental.
+TITULO SEPTIMO
+DEL APROVECHAMIENTO SOSTENIBLE DE LA VIDA SILVESTRE
+CAPITULO I
+DEL APROVECHAMIENTO EXTRACTIVO
+Artículo 5.70. Solamente se podrá realizar aprovechamiento extractivo de la vida silvestre en las condiciones de sostenibilidad prescritas en los siguientes artículos y a sugerencia de la Secretaría a la Federación.

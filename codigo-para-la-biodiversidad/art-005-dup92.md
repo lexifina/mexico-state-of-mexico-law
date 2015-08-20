@@ -1,6 +1,4 @@
-Artículo 5.92. Cualquier persona física o jurídica colectiva podrá denunciar ante la Secretaría daños a la vida silvestre y su hábitat sin necesidad de demostrar que sufre una afectación personal y directa en razón de dichos daños.
-La Secretaría evaluará cuidadosamente la información presentada en la denuncia y ejercerá de manera exclusiva la acción de responsabilidad por daño a la vida silvestre y su hábitat la cual será objetiva y solidaria.
-En el caso de que el demandado sea algún órgano de la administración pública o una empresa de participación estatal mayoritaria la acción de responsabilidad por daño a la vida silvestre y su hábitat podrá ser ejercida por cualquier persona directamente ante el tribunal competente.
-Esta acción podrá ser ejercitada sin perjuicio de la acción indemnizatoria promovida por los directamente afectados y prescribirá en treinta y cinco años contados a partir del día en que cesa la acción u omisión generadora del daño o afectación.
-Para el caso de acciones u omisiones de carácter continuado o sucesivo el periodo de treinta y cinco años empezará a contar desde el día en que hubiera tenido lugar la última de dichas acciones u omisiones.
-No se entenderá conocido el daño o el deterioro ambiental sino cuando se conozcan o sea exigible que se conozcan las consecuencias principales que pueden derivarse de la acción u omisión generadora de la responsabilidad al tiempo en que una u otra hayan tenido lugar.
+CAPITULO II
+DE LOS DAÑOS
+Artículo 5.91. Sin perjuicio de las demás disposiciones aplicables toda persona que cause daños a la vida silvestre o su hábitat en contravención de lo establecido en el presente Libro, en el Libro Segundo de éste Código o en la Ley General del Equilibrio Ecológico y la Protección al Ambiente estará obligada a repararlos en los términos del presente ordenamiento, y su Reglamento.
+Los propietarios y legítimos poseedores de los predios o los terceros que realicen el aprovechamiento serán responsables solidarios de los efectos negativos que éste pudiera tener para la conservación de la vida silvestre y su hábitat.

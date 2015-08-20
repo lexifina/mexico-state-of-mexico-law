@@ -1,4 +1,1 @@
-CAPITULO II
-DE LOS DAÑOS
-Artículo 5.91. Sin perjuicio de las demás disposiciones aplicables toda persona que cause daños a la vida silvestre o su hábitat en contravención de lo establecido en el presente Libro, en el Libro Segundo de éste Código o en la Ley General del Equilibrio Ecológico y la Protección al Ambiente estará obligada a repararlos en los términos del presente ordenamiento, y su Reglamento.
-Los propietarios y legítimos poseedores de los predios o los terceros que realicen el aprovechamiento serán responsables solidarios de los efectos negativos que éste pudiera tener para la conservación de la vida silvestre y su hábitat.
+Artículo 5.90. Se crearán de conformidad con lo establecido en el Reglamento comités mixtos de vigilancia con la participación de las autoridades municipales con el objeto de supervisar la aplicación de las medidas de control y de seguridad previstas en este Título de conformidad a lo que prevean los acuerdos o convenios de coordinación a los que hace alusión los artículos 5.11, 5.12 y 5.13 de este Libro.

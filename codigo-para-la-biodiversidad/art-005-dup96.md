@@ -1,5 +1,3 @@
-Artículo 5.96. En la práctica de actos de inspección a vehículos será suficiente que en la orden de inspección se establezca:
-l. La autoridad que la expide;
-II. El motivo y fundamento que le dé origen;
-III. El lugar, zona o región en donde se practique la inspección; y
-IV. El objeto y alcance de la diligencia.
+CAPITULO III
+DE LAS VISITAS DE INSPECCION
+Artículo 5.95. Las personas que realicen actividades de reproducción, captura, transformación, tratamiento, preparación, comercialización, exhibición, traslado, importación, exportación y las demás relacionadas con la conservación y aprovechamiento de la vida silvestre deberán otorgar al personal debidamente acreditado de la Secretaría las facilidades indispensables para el desarrollo de los actos de inspección antes señalados. Asimismo deberán aportar la documentación que ésta les requiera para verificar el cumplimiento de las disposiciones de este Libro y de las que del presente Código se deriven.

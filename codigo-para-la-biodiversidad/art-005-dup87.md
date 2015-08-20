@@ -1,3 +1,1 @@
-CAPITULO V
-DEL APROVECHAMIENTO NO EXTRACTIVO
-Artículo 5.87. El aprovechamiento no extractivo de vida silvestre requiere una autorización previa de la Federación a petición de la Secretaría que se solicitará de conformidad con las disposiciones establecidas en el presente Capítulo para garantizar el bienestar de los ejemplares de especies silvestres, la continuidad de sus poblaciones y la conservación de sus hábitats.
+Artículo 5.86. Las personas autorizadas para realizar una colecta científica deberán en los términos que establezca el Reglamento presentar informes de actividades y destinar al menos un duplicado del material biológico colectado a instituciones o colecciones científicas estatales, salvo que la Secretaría determine lo contrario por existir representaciones suficientes y en buen estado de dicho material en las mencionadas instituciones o colecciones.

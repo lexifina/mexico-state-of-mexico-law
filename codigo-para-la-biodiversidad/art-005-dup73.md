@@ -1,3 +1,6 @@
-Artículo 5.73. Solamente se podrá autorizar el aprovechamiento de ejemplares de especies en riesgo cuando se dé prioridad a la colecta y captura para actividades de redoblamiento, reproducción y reintroducción. Cualquier otro aprovechamiento en el caso de poblaciones en peligro de extinción estará sujeto a que se demuestre que se ha cumplido satisfactoriamente cualquiera de las tres actividades mencionadas anteriormente y que:
-I. Los ejemplares sean producto de la reproducción controlada que a su vez contribuya con el desarrollo de poblaciones en programas, proyectos o acciones avalados por la Secretaría cuando éstos existan en el caso de ejemplares en confinamiento; y
-II. Contribuya con el desarrollo de poblaciones mediante reproducción controlada en el caso de ejemplares de especies silvestres en vida libre.
+Artículo 5.72 Al solicitar la autorización para llevar a cabo el aprovechamiento extractivo sobre especies silvestres que se distribuyen de manera natural en el territorio del Estado los interesados deberán demostrar a la Federación con apoyo de la Secretaría:
+I. Que las tasas solicitadas son menores a la de renovación natural de las poblaciones sujetas a aprovechamiento en el caso de ejemplares de especies silvestres en vida libre;
+II. Que son producto de reproducción controlada en el caso de ejemplares de la vida silvestre en confinamiento;
+III. Que no tendrá efectos negativos sobre las poblaciones y no modificará el ciclo de vida del ejemplar en el caso de aprovechamiento de partes de ejemplares; y
+IV. Que no tendrá efectos negativos sobre las poblaciones ni existirá manipulación que dañe permanentemente al ejemplar en el caso de derivados de ejemplares.
+La autorización para el aprovechamiento de ejemplares incluirá el aprovechamiento de sus partes y derivados de conformidad con lo establecido en el Reglamento, las normas oficiales mexicanas y normas técnicas estatales que para tal efecto se expidan.
