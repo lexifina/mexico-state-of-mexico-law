@@ -3,7 +3,5 @@ Se entiende por productor rural la persona física que directa o indirectamente 
 (REFORMADA SU DENOMINACIÓN, G.G. 3 DE MAYO DE 2006)
 TITULO SEGUNDO
 Del fomento y desarrollo de las actividades agropecuarias y acuícolas
-CAPITULO TERCERO
-De la investigación, transferencia de tecnología y capacitación
 CAPITULO PRIMERO
 De la producción y transformación
