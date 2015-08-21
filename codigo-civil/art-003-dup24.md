@@ -2,5 +2,5 @@ Artículo 3.22.- La omisión del registro, no quita los efectos legales al recon
 (REFORMADA SU DENOMINACIÓN, G.G. 15 DE MAYO DE 2012)
 CAPITULO III
 De las Actas de Adopción
-(REFORMADO, G.G. 15 DE MAYO DE 2012)
+(REFORMADO, G.G. 20 DE AGOSTO DE 2015)
 Plazo y documentos para levantar el acta de adopción
