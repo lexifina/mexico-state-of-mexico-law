@@ -5,7 +5,7 @@ TERCERO.- Se ratifican las retenciones efectuadas al amparo de los artículos 23
 CUARTO.- El Registro Estatal de Especialistas en Valuación y en Levantamiento Topográfico Catastral se creará dentro de plazo de un año contado a partir de la entrada en vigor del presente Decreto; mientras tanto, para los efectos del artículo 390 segundo párrafo, se estará a lo dispuesto en el segundo párrafo del artículo 410 del presente Código, hasta en tanto se establezca el citado Registro.
 QUINTO.- En los casos en que este Código y otras disposiciones legales refieran al Impuesto Sobre Tenencia o Uso de Vehículos Automotores (ISTUVA), se entenderá que se refiere al Impuesto contenido en la Sección Segunda del Capítulo Primero del Título Tercero de este Código.
 SEXTO.- El artículo 60-E no será aplicable para vehículos cuyo año modelo sea más antiguo que 2002. Los contribuyentes obligados al pago del Impuesto Sobre Tenencia o Uso de Vehículos establecido en la Sección Segunda del Capítulo Primero del Título Tercero del Código Financiero del Estado de México y Municipios respecto de estos vehículos, lo calcularán conforme a lo siguiente:
-l. En el caso de vehículos de uso particular, la determinación será atendiendo al número de cilindros del motor, conforme a lo siguiente:
+I. En el caso de vehículos de uso particular, la determinación será atendiendo al número de cilindros del motor, conforme a lo siguiente:
 NÚMERO DE CILINDROSTARIFA
 Hasta 4$249
 De 5 a 6$745

@@ -1,6 +1,6 @@
 (REFORMADO, G.G. 31 DE MARZO DE 2011)
 Artículo 7.5.- El transporte que se realiza en la infraestructura vial se clasifica en:
-l. De pasajeros, que puede ser:
+I. De pasajeros, que puede ser:
 a) Colectivo, que es el que se ofrece al público en general, de manera colectiva, uniforme y permanente;
 b) Masivo o de alta capacidad, que es aquel que se presta en vías específicas o confinadas y/o con equipo vehicular capaz de transportar a más de cien personas a la vez y con tecnologías para su control y operación;
 c) Individual, que es el que se presta a uno o más pasajeros en vehículos denominados taxis;
