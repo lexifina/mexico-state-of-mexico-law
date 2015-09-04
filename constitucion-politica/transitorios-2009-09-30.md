@@ -3,7 +3,7 @@ ARTÍCULO PRIMERO.- Publíquese el Decreto en el Periódico Oficial "Gaceta del 
 ARTÍCULO SEGUNDO.- Este Decreto entrará en vigor en los siguientes términos:
 I. El uno de octubre del año dos mil nueve en los distritos judiciales de Toluca, Lerma, Tenancingo y Tenango del Valle;
 II. El uno de abril del año dos mil diez entrará en vigor en los distritos judiciales de Chalco, Otumba y Texcoco;
-III. El uno de octubre del año dos mil diez entrará en vigor en los distritos judiciales de Nezahualcoyotl, El Oro, Ixtlahuaca, Sultepec y Temascaltepec;
+III. El uno de octubre del año dos mil diez entrará en vigor en los distritos judiciales de Nezahualcóyotl, El Oro, Ixtlahuaca, Sultepec y Temascaltepec;
 IV. El uno de abril del año dos mil once entrará en vigor en los distritos judiciales de Tlalnepantla, Cuautitlán y Zumpango; y
 V. El uno de octubre del año dos mil once entrará en vigor en los distritos judiciales de Ecatepec de Morelos. Jilotepec y Valle de Bravo.
 ARTÍCULO TERCERO.- Las averiguaciones previas, procesos y recursos que se refieran a hechos ocurridos antes de la entrada en vigor del nuevo sistema de justicia penal, se sujetarán hasta su conclusión definitiva, a las disposiciones que se reforman o abrogan.
