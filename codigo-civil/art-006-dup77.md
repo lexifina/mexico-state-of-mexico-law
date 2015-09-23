@@ -1,2 +1,2 @@
-Artículo 6.78.- Los gastos necesarios para la entrega del bien legado serán a cargo del legatario salvo disposición en contrario del testador.
-Preceptos que rigen los legados
+Artículo 6.77.- El bien legado deberá ser entregado con todos sus accesorios y en el estado en el que se halle al morir el testador.
+Gastos de entrega del legado

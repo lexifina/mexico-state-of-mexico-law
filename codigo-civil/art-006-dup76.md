@@ -1,2 +1,2 @@
-Artículo 6.77.- El bien legado deberá ser entregado con todos sus accesorios y en el estado en el que se halle al morir el testador.
-Gastos de entrega del legado
+Artículo 6.76.- El testador puede gravar con legados a los herederos y a los legatarios.
+Forma de entregar el bien legado
