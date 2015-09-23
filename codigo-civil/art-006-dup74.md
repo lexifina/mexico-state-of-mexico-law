@@ -1,2 +1,2 @@
-Artículo 6.74.- Cuando no haya disposiciones especiales, los legatarios se rigen por los mismos preceptos que para los herederos.
-Modos de instituir legatarios
+Artículo 6.75.- El legado puede instituirse a titulo gratuito, con modalidad o con carga.
+Herederos y legatarios gravados con legados

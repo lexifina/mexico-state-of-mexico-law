@@ -1,2 +1,2 @@
-Artículo 6.75.- El legado puede instituirse a titulo gratuito, con modalidad o con carga.
-Herederos y legatarios gravados con legados
+Artículo 6.76.- El testador puede gravar con legados a los herederos y a los legatarios.
+Forma de entregar el bien legado
