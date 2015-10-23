@@ -7,7 +7,7 @@ III. Dictar las medidas y acuerdos necesarios para la protección de niñas, ni�
 IV. Proponer a la Junta de Gobierno el Reglamento Interno del Organismo y sus modificaciones; así como los manuales de organización, de procedimientos y de servicios al público;
 V. Proponer a la Junta de Gobierno los planes y programas de trabajo del Organismo;
 VI. Celebrar los convenios necesarios con las dependencias y entidades públicas para el cumplimiento de los objetivos del Organismo;
-VII.- Otorgar poder general o especial en nombre del organismo, previo acuerdo de la Junta de Gobierno;
+VII. Otorgar poder general o especial en nombre del organismo, previo acuerdo de la Junta de Gobierno;
 VIII. Presidir el Patronato a que se refiere el artículo 19 de la presente Ley y proponer a la Junta de Gobierno a las personas que puedan integrarlo.
 IX. Proponer a la Junta de Gobierno los nombramientos y remociones del personal del Organismo;
 X. Presentar a la Junta de Gobierno los proyectos de presupuestos, informes de actividades y de estados financieros anuales para su aprobación;
