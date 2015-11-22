@@ -7,4 +7,6 @@ Así mismo, también se encuentran exceptuadas para el cálculo del 2% señalado
 N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (REFORMADO, G.G. 16 DE DICIEMBRE DE 2011)
 En este caso, deberá integrar en el más próximo informe, de los referidos en el artículo 352 Bis de este Código, un apartado especial que contenga la información sobre estas ampliaciones, incluyendo el dictamen de asignación de recursos adicionales que deberá reunir los mismos criterios que los planteados en el artículo 317 Bis para los dictámenes de reconducción.
-El Ejecutivo Estatal, al presentar la cuenta pública del ejercicio fiscal que corresponda, informará de las erogaciones que eventualmente se efectúen, de acuerdo a lo dispuesto en este artículo.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
+(REFORMADO, G.G. 19 DE NOVIEMBRE DE 2015)
+El Ejecutivo Estatal, al presentar la cuenta pública del ejercicio fiscal que corresponda, informará de las erogaciones que eventualmente se efectúen, de acuerdo a lo dispuesto en este artículo. Asimismo se enviará un informe mensual a la Legislatura de los ingresos excedentes conforme a este artículo.

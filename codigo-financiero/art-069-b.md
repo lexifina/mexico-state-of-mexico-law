@@ -1,2 +1,4 @@
-(ADICIONADO, G.G. 2 DE DICIEMBRE DE 2013)
-Artículo 69 B.- El impuesto se determinará aplicando la tasa del 4% sobre el monto total de la contraprestación por el servicio de hospedaje, sin considerar, el importe de los alimentos y demás servicios relacionados con los mismos.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
+(REFORMADO, G.G. 19 DE NOVIEMBRE DE 2015)
+Artículo 69 B.- El impuesto se determinará aplicando la tasa del 4% sobre el monto total de la contraprestación por el servicio de hospedaje, sin considerar el Impuesto al Valor Agregado, el importe de los alimentos y demás servicios relacionados con los mismos.
+Cuando los contribuyentes convengan la prestación de servicios de hospedaje e incluyan servicios accesorios, tales como transportación, comida, uso de instalaciones, u otros similares y no desglosen y comprueben la prestación de estos últimos, se entenderá que el valor de la contraprestación respectiva corresponde a servicios de hospedaje.
