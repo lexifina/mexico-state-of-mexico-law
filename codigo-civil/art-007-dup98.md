@@ -1,2 +1,2 @@
-Artículo 7.98.- Las palabras que puedan tener distintas acepciones serán entendidas en aquélla que sea más conforme a la naturaleza y objeto del contrato.
-El uso y la costumbre para la interpretación
+Artículo 7.97.- Las cláusulas de los contratos deben interpretarse las unas por las otras, atribuyendo a las dudosas el sentido que resulte del conjunto de todas.
+Palabras con distintas acepciones

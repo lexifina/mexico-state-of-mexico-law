@@ -1,2 +1,2 @@
-Artículo 1.28.- El ejercicio de la jurisdicción que la ley encomienda a los Tribunales judiciales, debe reclamarse ante la autoridad competente.
-Reglas determinantes de la competencia
+Artículo 1.26.- Los demás servidores judiciales, desempeñarán las funciones que les encomienda la Ley Orgánica del Poder Judicial.
+Fe pública de otros servidores judiciales

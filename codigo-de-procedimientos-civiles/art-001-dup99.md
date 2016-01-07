@@ -1,3 +1,3 @@
-Artículo 1.96.- Las actuaciones judiciales y promociones pueden efectuarse en cualquier forma, salvo que la ley señale una especial.
-Deberán escribirse con material indeleble; además de que las promociones cuando presenten correcciones, a través de tachaduras, enmendaduras o entrerrenglonados deberán salvarse con firma del interesado, lo que se hará constar por el servidor judicial al momento de su recepción.
-Firmas de promociones y actuaciones judiciales
+(REFORMADO, G.G. 6 DE ENERO DE 2016)
+Artículo 1.94. Los Licenciados en derecho autorizarán con su firma autógrafa o electrónica avanzada toda promoción escrita o verbal de sus clientes, para justificar su patrocinio. La falta de firma del profesional, no impedirá que se les dé curso en los juicios de violencia familiar y de alimentos. El Juez tomará las medidas necesarias a efecto de que el demandante de violencia familiar y de alimentos, no quede en estado de indefensión cuando no cuente con licenciado en derecho que lo patrocine y para ello, tomará la medida citada en el artículo anterior y el defensor público lo asistirá en las diligencias en la que deba intervenir.
+Exhibición de cédula profesional

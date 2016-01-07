@@ -1,2 +1,2 @@
-Artículo 1.34.- Es Juez competente, aquél al que los interesados se hubieren sometido expresa o tácitamente, si se trata de competencia prorrogable.
-Sometimiento expreso
+Artículo 1.32.- Ningún Tribunal puede negarse a conocer de un asunto sino por considerarse incompetente. En este caso debe expresar en su resolución los fundamentos legales en que se apoye.
+Competencia prorrogable

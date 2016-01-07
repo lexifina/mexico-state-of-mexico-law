@@ -1,2 +1,2 @@
-Artículo 1.24.- En los locales de los Tribunales, las notificaciones pueden realizarlas, indistintamente el Secretario o el Notificador.
-Notificaciones urgentes
+Artículo 1.23.- Los notificadores harán las notificaciones de las resoluciones judiciales, en los términos de este Código y de las leyes federales aplicables.
+Notificaciones en oficinas de los Tribunales

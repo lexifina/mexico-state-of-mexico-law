@@ -1,2 +1,2 @@
-Artículo 7.41.- Ninguna persona puede contratar a nombre de otra sin estar autorizada por ella o por la ley.
-Ratificación de contratos celebrados por quien no es representante
+Artículo 7.40.- El capaz para contratar, puede hacerlo por sí o por medio de otro legalmente autorizado.
+Autorización para contratar a nombre de otro

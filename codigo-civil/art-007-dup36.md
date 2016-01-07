@@ -1,6 +1,2 @@
-Artículo 7.36.- Los acontecimientos extraordinarios a que se refiere el artículo anterior, serán:
-I. El desarrollo y disponibilidad de nuevas tecnologías, que hagan excesivamente oneroso en el proceso productivo, el uso de los bienes o servicios a los que se refirió el contrato;
-II. La modificación substancial y generalizada de los precios que en el mercado corriente tuviere el suministro o uso de los bienes, o la prestación del servicio, objeto del contrato.
-Se entenderá por modificación substancial, toda variación de los precios en un porcentaje no menor al treinta por ciento;
-III. La modificación substancial de cualquiera otra condición determinante de la voluntad de las partes, señalada expresamente en el contrato.
-Invocación infundada de acontecimientos extraordinarios
+Artículo 7.35.- En cualquier momento de la ejecución de los contratos a que se refiere el artículo anterior, y siempre que las partes hubieren consignado las circunstancias que sustentaron los motivos determinantes de su voluntad para celebrarlos, si tales circunstancias varían por acontecimientos extraordinarios sobrevenidos y de tal variación resulta oneroso en exceso el cumplimiento del contrato para una de ellas, la parte afectada podrá pedir la rescisión o la nulidad relativa del contrato, o la reducción equitativa de la obligación.
+Acontecimiento extraordinario

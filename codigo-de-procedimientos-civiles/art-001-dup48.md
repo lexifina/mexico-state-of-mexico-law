@@ -1,2 +1,2 @@
-Artículo 1.46.- Para determinar la competencia por la cuantía del negocio, se tomará en cuenta el valor de la prestación principal que reclame el interesado.
-Cuantía en arrendamiento y prestaciones periódicas
+Artículo 1.44.- De las tercerías conocerá el Juez del principal; si el valor de la tercería excede de la competencia, se estará a lo dispuesto en el artículo anterior.
+Competencia para providencias precautorias urgentes

@@ -1,2 +1,2 @@
-Artículo 1.57.- Una vez realizada la excusa, el Juez remitirá los autos a quien deba conocer de éstos, en términos de la Ley Orgánica del Poder Judicial del Estado.
-Si se excusa el Secretario, el Juez ordenará que otro Secretario conozca del asunto, y a falta de éste, designará a otro funcionario del mismo Tribunal.
+Artículo 1.55.- Los Magistrados, Jueces y Secretarios deben excusarse de conocer de los negocios cuando haya algún impedimento legal, aún cuando los interesados no los recusen, expresando la causa de excusa.
+Plazo para excusarse

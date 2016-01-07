@@ -1,2 +1,2 @@
-Artículo 1.75.- Si se declara procedente la recusación de Magistrado, la Sala se integrará legalmente. Si se trata de un Juez se remitirán los autos al Juzgado que corresponda, remitiéndose copia de la resolución al recusado.
-Efectos de la recusación improcedente
+Artículo 1.73.- Si se declara improcedente la recusación, se impondrá al recusante una multa hasta de doscientos días de salario mínimo vigente en la región de adscripción del recusado; misma que se aplicará al Fondo Auxiliar para la Administración de Justicia.
+Es inimpugnable la resolución sobre recusación

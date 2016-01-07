@@ -1,2 +1,2 @@
-Artículo 1.21.- El Ejecutor no conocerá de acciones, excepciones, o promociones de los interesados o de terceros; se limitará a hacer constar las que fueren presentadas en el momento de la diligencia, para dar cuenta al Juez.
-Suspensión de la ejecución
+Artículo 1.20.- Todas las diligencias de ejecución serán revisadas de oficio por el Juez, quien ordenará subsanar los errores, declarando, en su caso, insubsistente la actuación que se practicare con violación de la ley.
+Límite de las funciones del Ejecutor

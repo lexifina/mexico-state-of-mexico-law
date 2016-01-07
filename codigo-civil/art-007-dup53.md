@@ -1,2 +1,2 @@
-Artículo 7.53.- El error de derecho o de hecho invalida el contrato cuando recae sobre el motivo determinante de la voluntad de cualquiera de los que contratan, si en el acto de la celebración se declara ese motivo o si se prueba por las circunstancias del mismo contrato que se celebró éste en el falso supuesto que lo motivó y no por otra causa.
-Error de cálculo o aritmético
+Artículo 7.52.- El consentimiento no es válido si se sufre lesión, si se da por error, arrancado por violencia o sorprendido por dolo o mala fe.
+Error de hecho o derecho

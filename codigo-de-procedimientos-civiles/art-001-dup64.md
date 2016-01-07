@@ -1,7 +1,6 @@
-(REFORMADO PRIMER PÁRRAFO, G.G. 8 DE MAYO DE 2003)
-Artículo 1.62.- En casos de recusación, conocerán:
-(REFORMADA, G.G. 8 DE MAYO DE 2003)
-I. De los Magistrados, la Sala Colegiada de la que formen parte, la que se integrará conforme a la ley; tratándose de un magistrado unitario, conocerá la sala colegiada de su jurisdicción.
-II. De los Jueces, la Sala de su adscripción;
-III. De los Secretarios, el titular del Tribunal de que se trate.
-Recusación improcedente
+Artículo 1.60.- Sólo podrán hacer uso de la recusación:
+I. Las partes;
+II. En los concursos, el síndico o interventor;
+III. En los juicios sucesorios, el interventor o albacea;
+IV. Cuando en un negocio intervengan varias personas antes de nombrarse albacea, interventor o representante común, se tendrán como una sola para el efecto de la recusación. Habiendo representante común sólo él puede recusar. No habiéndolo, la recusación se admitirá sólo cuando la proponga la mayoría, en proporción a la parte que representa. No habiendo mayoría se desechará la recusación.
+Oportunidad para interponer la recusación

@@ -1,2 +1,2 @@
-Artículo 7.45.- Cuando la oferta se haga a una persona presente, sin fijación de plazo para aceptarlo, el autor de la oferta queda desligado si la aceptación no se hace inmediatamente. La misma regla se aplicará a la oferta hecha por teléfono o cualquier otro medio electrónico.
-Oferta a persona no presente sin fijar plazo
+Artículo 7.44.- La persona que propone a otra la celebración de un contrato fijándole un plazo para aceptar, queda ligada por su oferta hasta la expiración del plazo.
+Oferta a persona presente sin fijar plazo

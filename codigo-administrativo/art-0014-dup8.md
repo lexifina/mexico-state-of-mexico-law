@@ -20,5 +20,8 @@ XVI. Nombrar y remover al personal del IGECEM;
 XVII. Fungir o designar al secretario técnico de los comités sectoriales, regionales y municipales;
 (ADICIONADA, G.G. 17 DE JULIO DE 2013)
 XVIII. Emitir el documento que acredite la inscripción en el Registro Estatal de Especialistas en Valuación Inmobiliaria y en Levantamiento Topográfico Catastral;
-XIX. Las demás que le confieran otros ordenamientos.
+(REFORMADA, G.G. 6 DE ENERO DE 2016)
+XIX. Ejecutar las acciones que el IGECEM deberá seguir para llevar a cabo la implementación de instrumentos tecnológicos que permitan la eficiencia en la investigación y generación de información geográfica, estadística y catastral, dictando las medidas para su cumplimiento;
+(ADICIONADO, G.G. 6 DE ENERO DE 2016)
+XX. Las demás que le confieran otros ordenamientos.
 Para el cumplimiento de estas atribuciones el Director General del IGECEM contará con las unidades administrativas necesarias en las materias de administración, planeación, informática, geografía, estadística, catastro y servicios de información.

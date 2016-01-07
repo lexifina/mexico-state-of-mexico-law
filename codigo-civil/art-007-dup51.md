@@ -1,4 +1,2 @@
-Artículo 7.51.- La propuesta y aceptación hechas por telégrafo, fax o medio electrónico, producen efectos si los contratantes con anterioridad habían estipulado por escrito esta manera de contratar, y si los originales de los respectivos telegramas, fax o medio electrónico contienen las firmas autógrafas de los contratantes y los signos convencionales establecidos entre ellos.
-CAPITULO V
-Vicios del Consentimiento
-Vicios del consentimiento
+Artículo 7.50.- El proponente quedará liberado de su oferta cuando la respuesta que reciba no sea una aceptación lisa o llana, sino que importe modificación de la inicial. En este caso la respuesta se considerará como nueva proposición que se regirá por lo dispuesto en los artículos anteriores.
+Oferta y aceptación por telégrafo u otro medio

@@ -1,2 +1,2 @@
-Artículo 7.96.- Si alguna cláusula de los contratos admite diversos sentidos, deberá entenderse en el más adecuado para que produzca efecto.
-Interrelación de las cláusulas
+Artículo 7.95.- Cualquiera que sea la generalidad de los términos de un contrato, no deberán entenderse comprendidos en él, bienes distintos y casos diferentes de aquellos sobre los que los interesados se propusieron contratar.
+Cláusulas con varios sentidos

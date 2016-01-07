@@ -1,6 +1,5 @@
-Artículo 1.60.- Sólo podrán hacer uso de la recusación:
-I. Las partes;
-II. En los concursos, el síndico o interventor;
-III. En los juicios sucesorios, el interventor o albacea;
-IV. Cuando en un negocio intervengan varias personas antes de nombrarse albacea, interventor o representante común, se tendrán como una sola para el efecto de la recusación. Habiendo representante común sólo él puede recusar. No habiéndolo, la recusación se admitirá sólo cuando la proponga la mayoría, en proporción a la parte que representa. No habiendo mayoría se desechará la recusación.
-Oportunidad para interponer la recusación
+Artículo 1.58.- Si alguna de las partes estima que la excusa no está legalmente fundada, o que no es cierto el motivo o impedimento aducido, podrá denunciarlo en la forma que establece la Ley Orgánica del Poder Judicial del Estado de México.
+Si se declara injustificada la excusa, el servidor será sancionado en términos de la propia Ley.
+CAPITULO III
+De las Recusaciones
+Expresión de la causa de recusación

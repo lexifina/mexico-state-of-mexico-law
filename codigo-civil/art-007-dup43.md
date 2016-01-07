@@ -1,2 +1,5 @@
-Artículo 7.43.- El consentimiento puede ser expreso o tácito. Es expreso cuando se manifiesta verbalmente, por escrito o por signos inequívocos. El tácito resultará de hechos o de actos que lo presupongan o que autoricen a presumirlo, excepto en los casos en que por ley o por convenio la voluntad deba manifestarse expresamente.
-Oferta sujeta a plazo
+Artículo 7.42.- Los contratos celebrados a nombre de otro por quien no sea su legítimo representante, serán válidos si la persona a cuyo nombre fueren celebrados, los ratifica antes de que se retracte la otra parte. La ratificación debe ser hecha con las mismas formalidades que para la celebración del contrato exige la ley.
+Si no se obtiene la ratificación, el otro contratante tendrá derecho de exigir daños y perjuicios a quien indebidamente contrató.
+CAPITULO IV
+Del Consentimiento
+Clases de consentimiento

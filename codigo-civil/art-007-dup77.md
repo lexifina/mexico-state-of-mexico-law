@@ -1,2 +1,2 @@
-Artículo 7.77.- El contrato es bilateral, cuando las partes se obligan recíprocamente.
-Contrato oneroso y gratuito
+Artículo 7.76.- El contrato es unilateral cuando una sola de las partes se obliga hacia la otra sin que ésta le quede obligada.
+Contrato bilateral

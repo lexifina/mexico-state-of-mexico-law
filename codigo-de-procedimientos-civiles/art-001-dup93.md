@@ -1,2 +1,2 @@
-Artículo 1.90.- Si el nombramiento no fuere hecho por las partes, lo hará de oficio el Juez de entre los interesados.
-Facultades del representante común
+Artículo 1.88.- El Juez al examinar la demanda o reconvención prevendrá al actor para que la amplié contra las personas que formen litisconsorcio necesario.
+Nombramiento de representante común

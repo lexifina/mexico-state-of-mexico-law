@@ -1,2 +1,2 @@
-Artículo 7.81.- Los contratantes pueden estipular alguna prestación como pena para el caso de que la obligación deje de cumplirse de la manera convenida. Si tal estipulación se hace, no podrán reclamarse daños y perjuicios.
-Nulidad de la cláusula penal
+Artículo 7.80.- Los contratantes pueden establecer las cláusulas que crean convenientes; pero las que se refieren a requisitos esenciales del contrato o sean consecuencia de su naturaleza ordinaria, se tendrán por puestas aunque no se expresen, a no ser que las segundas sean renunciadas en los casos y términos permitidos por la ley.
+Cláusula penal

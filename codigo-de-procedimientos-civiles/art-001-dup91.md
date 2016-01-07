@@ -1,2 +1,2 @@
-Artículo 1.88.- El Juez al examinar la demanda o reconvención prevendrá al actor para que la amplié contra las personas que formen litisconsorcio necesario.
-Nombramiento de representante común
+Artículo 1.86.- Es necesario el litisconsorcio, cuando las cuestiones que en el juicio se ventilan, afectan a más de dos personas, de tal manera que no sea posible pronunciar sentencia válida, sin oírlas a todas ellas.
+Estudio oficioso de litisconsorcio necesario

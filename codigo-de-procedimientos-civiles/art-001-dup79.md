@@ -1,3 +1,2 @@
-Artículo 1.77.- Es parte en un procedimiento judicial quien tenga interés en que la autoridad judicial declare o constituya un derecho o imponga una condena, y quien tenga el interés contrario.
-Puede también intervenir en un procedimiento judicial, el tercero que tenga interés directo o indirecto en el negocio.
-Capacidad procesal
+Artículo 1.75.- Si se declara procedente la recusación de Magistrado, la Sala se integrará legalmente. Si se trata de un Juez se remitirán los autos al Juzgado que corresponda, remitiéndose copia de la resolución al recusado.
+Efectos de la recusación improcedente

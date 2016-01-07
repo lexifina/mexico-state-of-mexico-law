@@ -1,2 +1,2 @@
-Artículo 7.70.- No se considerará imposible el hecho que no pueda ejecutarse por el obligado, pero sí por otra persona en lugar de él.
-Hecho ilícito
+Artículo 7.69.- Es imposible el hecho que no existe, porque es incompatible con una ley de la naturaleza o con una norma jurídica, y que constituye un obstáculo insuperable para su realización.
+Hecho no considerado imposible

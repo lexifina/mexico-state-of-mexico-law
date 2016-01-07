@@ -1,2 +1,2 @@
-Artículo 7.33.- La validez y el cumplimiento de los contratos no pueden dejarse a la voluntad de uno de los contratantes.
-Condiciones y circunstancias de los contratos
+Artículo 7.32.- Los contratos se perfeccionan por el mero consentimiento de las partes; excepto aquellos que deban revestir una forma establecida por la ley. Desde que se perfeccionan obligan a los contratantes no sólo al cumplimiento de lo expresamente pactado, sino también a las consecuencias que, según su naturaleza, son conforme a la buena fe, a la costumbre o a la ley.
+Validez y cumplimiento de los contratos

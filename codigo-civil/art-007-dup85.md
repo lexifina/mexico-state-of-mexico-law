@@ -1,2 +1,2 @@
-Artículo 7.85.- Al pedir la pena, el acreedor no está obligado a probar que ha sufrido perjuicios, ni el deudor podrá eximirse de satisfacerla, probando que el acreedor no ha sufrido perjuicio alguno.
-Límite del monto de la pena
+Artículo 7.84.- Lo mismo sucederá cuando se estipula con otro, a favor de un tercero, y la persona con quien se estipule se sujete a una pena para el caso de no cumplir lo prometido.
+Obligación de la pena aún sin existir perjuicios

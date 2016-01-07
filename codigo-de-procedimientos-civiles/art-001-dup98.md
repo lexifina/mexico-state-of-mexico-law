@@ -1,6 +1,3 @@
-Artículo 1.95.- Los Tribunales exigirán la presentación de la cédula de ejercicio profesional de los abogados patronos o asesores, la cual registrarán en el libro respectivo. Quienes no la presenten por ningún motivo se les permitirá figurar en audiencias o diligencias, ni enterarse de actuaciones o revisar expedientes. Los servidores judiciales que lo consintieren incurrirán en responsabilidad administrativa conforme a la ley.
-TITULO SEPTIMO
-Actos Procesales en General
-CAPITULO I
-De las Formalidades Judiciales
-Forma de las actuaciones y promociones
+(REFORMADO, G.G. 24 DE ABRIL DE 2012)
+Artículo 1.93.- Todo interesado en cualquier actividad judicial debe tener el patrocinio de un Licenciado en Derecho o su equivalente con título y cédula de ejercicio profesional legalmente expedidos; salvo en materia de violencia familiar y de alimentos, donde el Juez, en su caso, le designará un defensor público.
+Autorización de las promociones

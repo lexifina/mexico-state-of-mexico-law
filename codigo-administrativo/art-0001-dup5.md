@@ -1,7 +1,8 @@
 Artículo 1.5.- Son atribuciones de las autoridades estatales y municipales a que se refiere este Código, en las materias que les corresponde aplicar:
 I. Interpretar para efectos administrativos las disposiciones de este Código;
 II. Formular programas y ajustar su actuación al plan estatal de desarrollo, a los programas estatales y, en su caso, a los planes y programas municipales aplicables;
-III. Impulsar y aplicar programas de mejora regulatoria;
+(REFORMADA, G.G. 6 DE ENERO DE 2016)
+III. Impulsar y aplicar programas de Mejora Regulatoria y Gobierno Digital;
 IV. Expedir normas técnicas en los casos previstos en este Código y realizar, directamente o a través de terceros autorizados, la evaluación de conformidad. La expedición de una norma técnica estará reservada a las dependencias de la administración pública estatal;
 V. Autorizar a terceros para auxiliar en el cumplimiento de sus atribuciones;
 VI. Celebrar convenios y acuerdos de coordinación;

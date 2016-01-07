@@ -1,4 +1,2 @@
-Artículo 1.92.- En cualquier estado del juicio, los interesados por unanimidad, pueden revocar el nombramiento de representante común, sustituyéndolo por otro.
-CAPITULO III
-De los Patronos
-Patrocinio de Licenciado en Derecho
+Artículo 1.90.- Si el nombramiento no fuere hecho por las partes, lo hará de oficio el Juez de entre los interesados.
+Facultades del representante común

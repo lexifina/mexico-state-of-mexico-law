@@ -1,2 +1,3 @@
-Artículo 1.82.- Las substituciones personales de las partes en un procedimiento judicial no afectarán a éste, a menos que dichas substituciones impliquen variación de la relación substancial.
-Cambios de legitimación
+Artículo 1.80.- La gestión judicial es admisible para representar al actor, al demandado o a un tercero.
+El gestor debe sujetarse a lo que dispone el Código Civil.
+Garantía para ser gestor judicial

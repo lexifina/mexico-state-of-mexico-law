@@ -1,2 +1,2 @@
-Artículo 1.91.- El representante común tendrá las mismas facultades que si litigara por su propio derecho, excepto las de transigir, desistirse y comprometer en árbitros, a menos que de manera expresa le fueren concedidas esas facultades. Esto no impide que cualquiera de los interesados pueda promover si se trata de intereses generales o exclusivos.
-Revocación de representante común
+Artículo 1.89.- Siempre que una parte esté compuesta de diversas personas, deberán tener una sola representación, para lo cual nombrarán un representante común desde el primer escrito con que comparezcan.
+Nombramiento de oficio de representante común

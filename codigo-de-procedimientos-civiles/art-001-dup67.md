@@ -1,2 +1,2 @@
-Artículo 1.65.- La interposición de la recusación, no suspende el conocimiento del negocio por parte del recusado. Sólo se suspenderá desde la citación para sentencia si no ha sido resuelta.
-Nulidad de lo actuado por el recusado
+Artículo 1.63.- En los juicios ejecutivos no se dará curso a ninguna recusación antes de practicar el aseguramiento o de hacer el embargo o desembargo. Tampoco se dará curso cuando se interponga en el momento de estarse practicando una diligencia, sino hasta que ésta termine.
+Recusación en juicios del orden familiar

@@ -1,2 +1,2 @@
-Artículo 7.97.- Las cláusulas de los contratos deben interpretarse las unas por las otras, atribuyendo a las dudosas el sentido que resulte del conjunto de todas.
-Palabras con distintas acepciones
+Artículo 7.96.- Si alguna cláusula de los contratos admite diversos sentidos, deberá entenderse en el más adecuado para que produzca efecto.
+Interrelación de las cláusulas

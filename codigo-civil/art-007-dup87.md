@@ -1,2 +1,2 @@
-Artículo 7.87.- Si la obligación fuere cumplida en parte, la pena se modificará en la misma proporción.
-Reducción equitativa de la pena
+Artículo 7.86.- La cláusula penal no puede exceder ni en valor ni en cuantía a la obligación principal.
+Proporción de la pena por incumplimiento parcial

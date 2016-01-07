@@ -1,2 +1,2 @@
-Artículo 7.74.- La falta de formalidad exigida por la ley origina la nulidad del contrato, salvo disposición en contrario; pero si la voluntad de las partes para celebrarlo consta de manera fehaciente, cualquiera de ellas puede exigir que se dé al contrato la forma legal.
-Firma del documento por los contratantes
+Artículo 7.73.- En los contratos civiles cada uno se obliga en la manera y términos que aparezca que quiso obligarse, sin que para la validez del contrato se requieran formalidades determinadas, fuera de los casos expresamente designados por la ley.
+Falta de formalidad en los contratos

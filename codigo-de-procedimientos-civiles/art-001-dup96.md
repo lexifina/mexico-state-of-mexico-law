@@ -1,3 +1,2 @@
-(REFORMADO, G.G. 24 DE ABRIL DE 2012)
-Artículo 1.93.- Todo interesado en cualquier actividad judicial debe tener el patrocinio de un Licenciado en Derecho o su equivalente con título y cédula de ejercicio profesional legalmente expedidos; salvo en materia de violencia familiar y de alimentos, donde el Juez, en su caso, le designará un defensor público.
-Autorización de las promociones
+Artículo 1.91.- El representante común tendrá las mismas facultades que si litigara por su propio derecho, excepto las de transigir, desistirse y comprometer en árbitros, a menos que de manera expresa le fueren concedidas esas facultades. Esto no impide que cualquiera de los interesados pueda promover si se trata de intereses generales o exclusivos.
+Revocación de representante común

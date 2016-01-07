@@ -1,4 +1,4 @@
-Artículo 7.65.- Son objeto de los contratos:
-I. El bien que el obligado debe dar;
-II. El hecho que el obligado debe hacer o no hacer.
-Características del bien objeto del contrato
+Artículo 7.64.- La ratificación del acto afectado de invalidez por violencia, dolo o mala fe, extingue la acción de nulidad.
+CAPITULO VI
+Del Objeto, Motivo o Fin de los Contratos
+Objeto de los contratos

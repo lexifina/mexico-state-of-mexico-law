@@ -1,2 +1,2 @@
-Artículo 1.74.- La resolución que resuelva una recusación es irrecurrible.
-Efectos de la recusación procedente
+Artículo 1.72.- Los que conozcan de una recusación son irrecusables sólo para ese efecto.
+Multas por recusación improcedente y su aplicación

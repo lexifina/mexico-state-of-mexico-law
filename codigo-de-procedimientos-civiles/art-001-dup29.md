@@ -1,4 +1,2 @@
-Artículo 1.27.- El Notificador tendrá fe pública en el ejercicio de sus funciones, así como aquellos que expresamente lo determine la ley.
-TITULO CUARTO
-Competencia
-Ejercicio de la función jurisdiccional
+Artículo 1.25.- El Juez puede facultar, en casos urgentes, en autos, a cualquier servidor público judicial para hacer las notificaciones fuera del local del Tribunal, bajo su más estricta responsabilidad.
+Funciones de los demás servidores judiciales

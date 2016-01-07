@@ -1,2 +1,2 @@
-Artículo 1.50.- Cuando en el lugar hubiere varios Juzgados competentes del mismo ramo, cualquiera de ellos conocerá de los asuntos que les turne la Oficialía de Partes Común.
-Incompetencia de oficio sólo por materia, grado o cuantía
+Artículo 1.48.- Cuando lo reclamado no tenga un valor determinado en la demanda, es competente el Juzgado de Primera Instancia.
+Competencia en rectificación de actas de estado civil

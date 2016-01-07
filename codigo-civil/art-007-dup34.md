@@ -1,2 +1,2 @@
-Artículo 7.34.- En los contratos con prestaciones periódicas o continuas, las partes podrán consignar las circunstancias que sustentaron los motivos determinantes de su voluntad para celebrarlos.
-Variación de los contratos por acontecimientos extraordinarios
+Artículo 7.33.- La validez y el cumplimiento de los contratos no pueden dejarse a la voluntad de uno de los contratantes.
+Condiciones y circunstancias de los contratos

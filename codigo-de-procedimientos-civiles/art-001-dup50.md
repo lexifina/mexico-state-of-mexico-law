@@ -1,2 +1,2 @@
-Artículo 1.48.- Cuando lo reclamado no tenga un valor determinado en la demanda, es competente el Juzgado de Primera Instancia.
-Competencia en rectificación de actas de estado civil
+Artículo 1.46.- Para determinar la competencia por la cuantía del negocio, se tomará en cuenta el valor de la prestación principal que reclame el interesado.
+Cuantía en arrendamiento y prestaciones periódicas

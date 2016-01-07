@@ -33,6 +33,7 @@ b) El fomento a la participación de los sectores público, social y privado, en
 c) La concertación con los sectores social y privado de acciones e inversiones en materia de desarrollo urbano;
 d) La consolidación de la capacidad de gestión urbana de los municipios;
 e) La homologación de las normas y procedimientos municipales que regulan el desarrollo urbano de los centros de población;
-f) La simplificación administrativa de los instrumentos de gestión y control del desarrollo urbano, así como la mejora regulatoria y transparencia en los procedimientos respectivos;
+(REFORMADO, G.G. 6 DE ENERO DE 2016)
+f) La simplificación administrativa de los instrumentos de gestión y control del desarrollo urbano, así como la mejora regulatoria, la implementación de plataformas tecnológicas para el desahogo de trámites y transparencia en los procedimientos respectivos.
 g) La planeación conjunta y coordinada de las conurbaciones y zonas metropolitanas entre autoridades estatales y municipios y con los gobiernos Federal, estatales y del Distrito Federal, según sea el caso; y
 h) Derechos de los habitantes al suelo urbano, a la vivienda, a la calidad de vida, a la infraestructura urbana, al transporte, a los servicios públicos, al patrimonio cultural urbano, al espacio público, al esparcimiento y a la imagen urbana y su compatibilidad con el sistema de planificación urbana del Estado de México y sus municipios.

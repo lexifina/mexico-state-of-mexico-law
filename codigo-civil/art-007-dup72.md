@@ -1,4 +1,2 @@
-Artículo 7.72.- El fin o motivo determinante de la voluntad de los que contratan, tampoco debe ser contrario a las leyes de orden público.
-CAPITULO VII
-De la Forma de los Contratos
-Manera y términos de obligarse en los contratos
+Artículo 7.71.- Es ilícito el hecho que es contrario a las leyes de orden público.
+El fin o motivo determinante en los contratos

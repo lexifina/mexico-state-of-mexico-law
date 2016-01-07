@@ -1,2 +1,2 @@
-Artículo 1.43.- Para conocer de la reconvención es Juez competente el que conozca de la demanda principal. Sólo cuando lo reclamado en la reconvención rebase el monto de la competencia del de Cuantía Menor, el asunto pasará al de Primera Instancia, siendo válido todo lo actuado hasta ese momento, asimismo será el órgano judicial competente para conocer de todas las prestaciones demandadas por las partes, no obstante que por razón de cuantía corresponda a otro.
-Competencia en las tercerías
+Artículo 1.41.- El Tribunal que resuelva la incompetencia declarará de oficio la nulidad de lo actuado; si lo omite, lo hará de oficio el Juez declarado competente, y restituirá las cosas al estado que tenían antes de practicarse las actuaciones nulas, salvo que la ley disponga lo contrario.
+Reglas para determinar la competencia

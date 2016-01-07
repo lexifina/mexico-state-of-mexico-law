@@ -1,3 +1,4 @@
-Artículo 7.94.- Si los términos de un contrato son claros y no dejan duda sobre la intención de los contratantes, se estará al sentido literal de sus cláusulas.
-Si las palabras parecieren contrarias a la intención evidente de los contratantes, prevalecerá ésta sobre aquéllas.
-Intención sobre los bienes y casos
+Artículo 7.93.- En las obligaciones mancomunadas cada uno de los deudores responderá de la parte de la pena que le corresponda en proporción a su deuda.
+CAPITULO X
+De la Interpretación de los Contratos
+Voluntad declarada y voluntad interna

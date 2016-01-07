@@ -1,2 +1,2 @@
-Artículo 7.58.- Si ambas partes proceden con dolo o mala fe, ninguna de ellas puede alegar la nulidad del acto.
-Nulidad del contrato por violencia
+Artículo 7.57.- El dolo o mala fe de una de las partes o de un tercero, sabiéndolo aquélla, anulan el contrato si ha sido la causa determinante.
+Dolo o mala fe de ambas partes

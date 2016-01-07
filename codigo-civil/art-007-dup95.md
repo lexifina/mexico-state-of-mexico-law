@@ -1,2 +1,3 @@
-Artículo 7.95.- Cualquiera que sea la generalidad de los términos de un contrato, no deberán entenderse comprendidos en él, bienes distintos y casos diferentes de aquellos sobre los que los interesados se propusieron contratar.
-Cláusulas con varios sentidos
+Artículo 7.94.- Si los términos de un contrato son claros y no dejan duda sobre la intención de los contratantes, se estará al sentido literal de sus cláusulas.
+Si las palabras parecieren contrarias a la intención evidente de los contratantes, prevalecerá ésta sobre aquéllas.
+Intención sobre los bienes y casos

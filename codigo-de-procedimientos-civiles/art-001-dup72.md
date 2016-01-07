@@ -1,2 +1,2 @@
-Artículo 1.70.- La recusación se interpondrá ante el funcionario que conozca del negocio, quien dentro de cuarenta y ocho horas, enviará las constancias necesarias con un informe justificado a quien deba conocer de ella. El trámite se hará incidentalmente
-Pruebas admisibles para la recusación
+Artículo 1.68.- Si se declara improcedente la recusación, no se volverá a admitir otra, aunque el recusante proteste que la causa es superveniente o que no había tenido conocimiento de ella, salvo cuando haya cambio de personal contra quien sí procede.
+Casos de inadmisión de recusación

@@ -1,5 +1,4 @@
-Artículo 7.66.- El bien objeto del contrato debe:
-I. Existir en la naturaleza;
-II. Ser determinado o determinable en cuanto a su especie;
-III. Estar en el comercio.
-Bienes futuros objeto del acto
+Artículo 7.65.- Son objeto de los contratos:
+I. El bien que el obligado debe dar;
+II. El hecho que el obligado debe hacer o no hacer.
+Características del bien objeto del contrato

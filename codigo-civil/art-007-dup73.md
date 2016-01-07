@@ -1,2 +1,4 @@
-Artículo 7.73.- En los contratos civiles cada uno se obliga en la manera y términos que aparezca que quiso obligarse, sin que para la validez del contrato se requieran formalidades determinadas, fuera de los casos expresamente designados por la ley.
-Falta de formalidad en los contratos
+Artículo 7.72.- El fin o motivo determinante de la voluntad de los que contratan, tampoco debe ser contrario a las leyes de orden público.
+CAPITULO VII
+De la Forma de los Contratos
+Manera y términos de obligarse en los contratos

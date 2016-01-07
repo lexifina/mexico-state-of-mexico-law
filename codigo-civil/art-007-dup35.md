@@ -1,2 +1,2 @@
-Artículo 7.35.- En cualquier momento de la ejecución de los contratos a que se refiere el artículo anterior, y siempre que las partes hubieren consignado las circunstancias que sustentaron los motivos determinantes de su voluntad para celebrarlos, si tales circunstancias varían por acontecimientos extraordinarios sobrevenidos y de tal variación resulta oneroso en exceso el cumplimiento del contrato para una de ellas, la parte afectada podrá pedir la rescisión o la nulidad relativa del contrato, o la reducción equitativa de la obligación.
-Acontecimiento extraordinario
+Artículo 7.34.- En los contratos con prestaciones periódicas o continuas, las partes podrán consignar las circunstancias que sustentaron los motivos determinantes de su voluntad para celebrarlos.
+Variación de los contratos por acontecimientos extraordinarios

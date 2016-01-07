@@ -1,5 +1,3 @@
-Artículo 7.75.- Cuando se exija la forma escrita para el contrato, los documentos relativos deben ser firmados por todas las personas a las cuales se imponga esa obligación.
-Si alguna de ellas no puede o no sabe firmar, imprimirá su huella digital.
-CAPITULO VIII
-De la Clasificación de los Contratos
-Contrato unilateral
+Artículo 7.74.- La falta de formalidad exigida por la ley origina la nulidad del contrato, salvo disposición en contrario; pero si la voluntad de las partes para celebrarlo consta de manera fehaciente, cualquiera de ellas puede exigir que se dé al contrato la forma legal.
+(REFORMADA SU DENOMINACIÓN, G.G. 6 DE ENERO DE 2016)
+Firma del documento por el contratante

@@ -1,2 +1,4 @@
-Artículo 7.80.- Los contratantes pueden establecer las cláusulas que crean convenientes; pero las que se refieren a requisitos esenciales del contrato o sean consecuencia de su naturaleza ordinaria, se tendrán por puestas aunque no se expresen, a no ser que las segundas sean renunciadas en los casos y términos permitidos por la ley.
-Cláusula penal
+Artículo 7.79.- El contrato oneroso es conmutativo cuando las prestaciones que se deben las partes son ciertas desde que se celebra, de manera que ellas pueden apreciar inmediatamente el beneficio o la pérdida que les cause éste. Es aleatorio, cuando la prestación debida depende de un acontecimiento incierto que hace que no sea posible la evaluación de la ganancia o pérdida ni a cargo de quien es, sino hasta que se realice.
+CAPITULO IX
+De las Cláusulas que pueden Contener los Contratos
+Cláusulas convencionales y esenciales

@@ -1,2 +1,4 @@
-Artículo 1.29.- La competencia de los Tribunales se determina en razón de grado, materia, cuantía, territorio y prevención.
-Requisitos de competencia
+Artículo 1.27.- El Notificador tendrá fe pública en el ejercicio de sus funciones, así como aquellos que expresamente lo determine la ley.
+TITULO CUARTO
+Competencia
+Ejercicio de la función jurisdiccional

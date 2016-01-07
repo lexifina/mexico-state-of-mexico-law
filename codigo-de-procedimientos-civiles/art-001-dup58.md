@@ -1,2 +1,7 @@
-Artículo 1.56.- La excusa debe hacerse inmediatamente que se avoquen al conocimiento del negocio en el que se dé el impedimento, o dentro de los tres días siguientes de que ocurra el hecho que origine dicho impedimento o de que tengan conocimiento de él.
-La determinación por la que un Magistrado, Juez o Secretario se excuse no es impugnable.
+Artículo 1.54.- En casos de excusa o recusación, conocerá:
+I. De los Magistrados, la Sala de la que formen parte, la que se integrará conforme a la ley;
+II. De los Jueces, la Sala de su adscripción;
+III. De los Secretarios, el titular del Tribunal de que se trate.
+CAPITULO II
+De las Excusas
+Obligación de excusarse

@@ -1,2 +1,2 @@
-Artículo 1.45.- En caso de urgencia las providencias precautorias, puede dictarlas el Juez del lugar donde se halle la persona o el bien objeto de la providencia y, efectuadas, se remitirán las actuaciones al competente.
-Elementos para determinar la cuantía
+Artículo 1.43.- Para conocer de la reconvención es Juez competente el que conozca de la demanda principal. Sólo cuando lo reclamado en la reconvención rebase el monto de la competencia del de Cuantía Menor, el asunto pasará al de Primera Instancia, siendo válido todo lo actuado hasta ese momento, asimismo será el órgano judicial competente para conocer de todas las prestaciones demandadas por las partes, no obstante que por razón de cuantía corresponda a otro.
+Competencia en las tercerías

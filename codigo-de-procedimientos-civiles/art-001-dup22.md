@@ -1,2 +1,2 @@
-Artículo 1.20.- Todas las diligencias de ejecución serán revisadas de oficio por el Juez, quien ordenará subsanar los errores, declarando, en su caso, insubsistente la actuación que se practicare con violación de la ley.
-Límite de las funciones del Ejecutor
+Artículo 1.19.- El Ejecutor se limitará a lo que el Juez expresamente le señale en autos, ciñendo su actuación a la ley.
+Revisión oficiosa de las ejecuciones
