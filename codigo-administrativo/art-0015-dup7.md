@@ -1,3 +1,4 @@
-(ADICIONADO, G.G. 5 DE ENERO DE 2006)
-Artículo 15.7.- Para la mejor localización de los documentos publicados en el Periódico Oficial, aparecerá en el mismo, un sumario de su contenido.
-Las publicaciones en el Periódico Oficial "Gaceta del Gobierno", se realizarán en el siguiente orden: Poderes Legislativo, Ejecutivo y Judicial, Organismos Autónomos, Organismos Auxiliares, Ayuntamientos y particulares.
+Artículo 15.7 Bis.- (DEROGADO POR ARTÍCULO DÉCIMO TERCERO TRANSITORIO DEL DECRETO NÚMERO 57, G.G. 6 DE ENERO DE 2016) (F. DE E., G.G. 3 DE FEBRERO DE 2016)
+(DEROGADO CON LOS ARTÍCULOS QUE LO INTEGRAN, G.G. 6 DE ENERO DE 2016) (F. DE E., G.G. 3 DE FEBRERO DE 2016)
+CAPITULO II
+De la dirección del periódico oficial

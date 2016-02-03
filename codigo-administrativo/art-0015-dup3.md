@@ -1,2 +1,1 @@
-(REFORMADO, G.G. 24 DE DICIEMBRE DE 2010)
-Artículo 15.3.- El Periódico Oficial "Gaceta del Gobierno" se editará en la ciudad de Toluca de Lerdo, aún cuando los talleres de impresión se ubiquen en otro municipio, y se repartirá ampliamente en el territorio del Estado.
+Artículo 15.4.- (DEROGADO POR ARTÍCULO DÉCIMO TERCERO TRANSITORIO DEL DECRETO NÚMERO 57, G.G. 6 DE ENERO DE 2016) (F. DE E., G.G. 3 DE FEBRERO DE 2016)

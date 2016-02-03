@@ -1,2 +1,1 @@
-(REFORMADO, G.G. 25 DE FEBRERO DE 2013)
-Artículo 15.8.- La Consejería Jurídica, es la dependencia del Poder Ejecutivo encargada de ordenar la organización, administración, edición, publicación y circulación del Periódico Oficial del Gobierno del Estado de México.
+Artículo 15.9.- (DEROGADO POR ARTÍCULO DÉCIMO TERCERO TRANSITORIO DEL DECRETO NÚMERO 57, G.G. 6 DE ENERO DE 2016) (F. DE E., G.G. 3 DE FEBRERO DE 2016)

@@ -1,2 +1,1 @@
-(ADICIONADO, G.G. 5 DE ENERO DE 2006)
-Artículo 15.5.- El Periódico Oficial será publicado los días hábiles de lunes a viernes, sin embargo, podrá ordenarse su publicación cualquier otro día tratándose de asuntos de vencimientos de plazos o cuando las necesidades del servicio lo requieran.
+Artículo 15.6.- (DEROGADO POR ARTÍCULO DÉCIMO TERCERO TRANSITORIO DEL DECRETO NÚMERO 57, G.G. 6 DE ENERO DE 2016) (F. DE E., G.G. 3 DE FEBRERO DE 2016)
