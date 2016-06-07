@@ -1,5 +1,5 @@
 G.G. 12 DE AGOSTO DE 2015.
-DECRETO NÚMERO 485, POR EL QUE SE ADICIONA LA SECCIÓN CUARTA DENOMINADA "DE LOS PRESTADORES DE SERVICIOS ELECTRÓNICOS Y PROVEEDORES DE TRANSPORTE" Y LOS ARTÍCULOS 7.57 BIS, 7.57 TER, 7.57 QUÁTER, 7.57 QUINTUS Y 7.57 SEXIES DEL CÓDIGO ADMINISTRATIVO DEL ESTADO DE MÉXICO
+DECRETO NÚMERO 485, POR EL QUE SE ADICIONA LA SECCIÓN CUARTA DENOMINADA "DE LOS PRESTADORES DE SERVICIOS ELECTRÓNICOS Y PROVEEDORES DE TRANSPORTE" Y LOS ARTÍCULOS 7.57 BIS, 7.57 TER.7, 57 QUÁTER, 7.57 QUINTUS Y 7.57 SEXIES DEL CÓDIGO ADMINISTRATIVO DEL ESTADO DE MÉXICO
 PRIMERO. Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
 SEGUNDO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "Gaceta del Gobierno".
 TERCERO. El Titular del Ejecutivo del Estado realizará las reformas correspondientes a los ordenamientos jurídicos respectivos en un plazo no mayor a noventa días hábiles posteriores a la entrada en vigor del presente Decreto.
