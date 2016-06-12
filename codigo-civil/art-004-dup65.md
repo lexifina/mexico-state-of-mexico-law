@@ -1,2 +1,3 @@
-Artículo 4.64.- La nulidad por falta de consentimiento de los ascendientes o de quienes deban suplirlo, se pedirá por éstos dentro de los treinta días desde que tengan conocimiento del matrimonio.
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
+Artículo 4.64.- (DEROGADO, G.G. 14 DE MARZO DE 2016)
 Improcedencia de la nulidad por falta de consentimiento de los ascendientes

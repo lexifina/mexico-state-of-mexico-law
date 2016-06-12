@@ -1,5 +1,7 @@
 Artículo 2.20.- Es domicilio legal:
-I. Del menor de edad no emancipado, el de la persona a cuya patria potestad y custodia esté sujeto;
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCIÓN, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
+(REFORMADA, G.G. 14 DE MARZO DE 2016)
+I. De las niñas, los niños y los adolescentes, el de la persona a cuya patria potestad y custodia esté sujeto.
 II. Del menor que no esté bajo la patria potestad y del mayor incapacitado, el de su tutor;
 III. De los militares en servicio activo, el lugar del territorio del Estado, en que estén destacados;
 IV. De los servidores públicos, de cuerpos diplomáticos o consulares el lugar donde desempeñan sus funciones por más de seis meses. Los que por tiempo menor desempeñen alguna comisión, no adquirirán domicilio en el lugar donde la cumplen, sino que conservarán su domicilio anterior;

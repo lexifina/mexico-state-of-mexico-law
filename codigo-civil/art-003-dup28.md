@@ -4,7 +4,8 @@ I. Los datos generales de los contrayentes.
 II. (DEROGADA, G.G. 7 DE MAYO DE 2015)
 (REFORMADA, G.G. 7 DE MAYO DE 2015)
 III. Los datos generales de los padres.
-IV. El consentimiento de quienes deban suplirlo, tratándose de menores de edad;
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
+IV. (DEROGADA, G.G. 14 DE MARZO DE 2016)
 V. (DEROGADA, G.G. 7 DE MAYO DE 2015)
 VI. (DEROGADA, G.G. 7 DE MAYO DE 2015)
 VII. La manifestación de los cónyuges de que contraen matrimonio bajo el régimen de sociedad conyugal o de separación de bienes;

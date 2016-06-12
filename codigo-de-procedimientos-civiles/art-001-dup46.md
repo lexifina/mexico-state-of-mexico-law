@@ -12,7 +12,9 @@ c).- De nulidad, rescisión y evicción de la adjudicación hereditaria;
 VII. En los concursos de acreedores, el del domicilio del deudor;
 VIII. En los procedimientos no contenciosos, el del domicilio del que promueve, pero si se tratare de inmuebles, lo será el del lugar en que estén ubicados;
 IX. En los asuntos relativos a la tutela, el de la residencia de los menores o incapacitados, para la designación del tutor, y en los demás casos el del domicilio de éste;
-X. En lo relativo a suplir el consentimiento de quien ejerce la patria potestad, o impedimentos para contraer matrimonio, el del domicilio de los pretendientes;
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCIÓN, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.]
+(REFORMADA, G.G. 14 DE MARZO DE 2016)
+X. En lo relativo a los impedimentos para contraer matrimonio, el del domicilio de los pretendientes.
 XI. Para lo relativo al matrimonio y cuestiones familiares, el del domicilio conyugal o familiar;
 (REFORMADA, G.G. 3 DE MAYO DE 2012)
 XII. En los procedimientos de divorcio, el del último domicilio donde hicieron vida en común;

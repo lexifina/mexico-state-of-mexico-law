@@ -1,2 +1,3 @@
-Artículo 4.21.- Los cónyuges menores de edad, tendrán la libre administración de sus bienes, pero necesitarán autorización judicial para enajenarlos, gravarlos o hipotecarlos y un tutor para sus negocios judiciales.
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
+Artículo 4.21.- (DEROGADO, G.G. 14 DE MARZO DE 2016)
 Compraventa entre cónyuges

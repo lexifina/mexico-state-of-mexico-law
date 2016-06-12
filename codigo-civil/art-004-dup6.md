@@ -1,4 +1,5 @@
-(REUBICADO, G.G. 6 DE MARZO DE 2010)
-Artículo 4.5.- Los que no hayan cumplido dieciocho años, requieren para contraer matrimonio el consentimiento de alguno de los que ejerzan sobre ellos la patria potestad. Faltando éstos, se requiere el consentimiento del tutor; y a falta de éste, el Juez de Primera Instancia, suplirá o no el consentimiento.
-El mismo procedimiento se seguirá en caso de negativa o revocación del consentimiento.
-Causa para justificar el consentimiento expreso
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
+(DEROGADO SEGUNDO PÁRRAFO, G.G. 14 DE MARZO DE 2016)
+(DEROGADO TERCER PÁRRAFO, G.G. 6 DE MARZO DE 2010)
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
+Artículo 4.5.- (DEROGADO, G.G. 14 DE MARZO DE 2016)

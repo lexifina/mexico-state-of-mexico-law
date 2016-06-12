@@ -1,2 +1,3 @@
-Artículo 4.68.- La acción de nulidad por impedimento de adulterio, se ejercitará dentro de seis meses, contados a partir de la celebración del matrimonio, por el cónyuge ofendido o por el Ministerio Público, en caso de muerte de aquél.
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
+Artículo 4.68.- (DEROGADO, G.G. 14 DE MARZO DE 2016)
 Legitimación y plazo para deducir contra la vida

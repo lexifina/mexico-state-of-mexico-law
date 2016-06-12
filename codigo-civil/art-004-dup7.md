@@ -1,3 +1,3 @@
-(REUBICADO, G.G. 6 DE MARZO DE 2010)
-Artículo 4.6.- Quienes hayan otorgado el consentimiento de manera fehaciente, no podrán revocarlo, a menos que haya causa justificada para ello.
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
+Artículo 4.6.- (DEROGADO, G.G. 14 DE MARZO DE 2016)
 Impedimentos para contraer matrimonio

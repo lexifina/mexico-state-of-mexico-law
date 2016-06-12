@@ -1,2 +1,1 @@
 Artículo 4.62.- La acción de nulidad que nace del error o la impotencia, sólo puede ejercitarse por el cónyuge engañado; pero si no lo denuncia dentro del plazo de treinta días de conocerlo, se tiene por ratificado el consentimiento.
-Casos en que la falta de edad no es causa de nulidad de matrimonio

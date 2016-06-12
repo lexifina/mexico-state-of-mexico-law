@@ -1,4 +1,5 @@
-Artículo 3.28.- En los casos de emancipación, será suficiente para acreditarla el acta de matrimonio.
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
+Artículo 3.28. (DEROGADO, G.G. 14 DE MARZO DE 2016)
 CAPITULO V
 De las Actas de Defunción
 (REFORMADA SU DENOMINACIÓN, G.G. 7 DE MAYO DE 2015)

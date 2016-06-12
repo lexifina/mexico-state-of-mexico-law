@@ -1,4 +1,5 @@
-Artículo 4.28.- El menor para celebrar capitulaciones matrimoniales requiere del consentimiento de su representante.
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
+Artículo 4.28.- (DEROGADO, G.G. 14 DE MARZO DE 2016)
 CAPITULO II
 De la Sociedad Conyugal
 Disposiciones que regulan las capitulaciones matrimoniales
