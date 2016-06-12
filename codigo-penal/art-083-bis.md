@@ -17,3 +17,6 @@ XI. Que se comprometa a no abandonar el perímetro permitido por el juez y a no 
 XII. Que cuente con domicilio laboral y de reinserción, que garantice la finalidad de la reinserción social, a juicio del Juez de Ejecución.
 A quien se le revoque este beneficio, no volverá a gozar del mismo por cualquier delito.
 El beneficio de libertad condicionada al sistema de localización y rastreo es un medio de ejecutar la sanción penal hasta en tanto se alcance la prelibertad, o libertad condicional.
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
+(ADICIONADO, G.G. 14 DE MARZO DE 2016)
+Tratándose delitos cometidos con violencia de género no se aplicará este beneficio.
