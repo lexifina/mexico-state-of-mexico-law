@@ -1,0 +1,4 @@
+G.G. 15 DE JUNIO DE 2016.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 96.- POR EL QUE SE ADICIONA UN PÁRRAFO A LA FRACCIÓN VI DEL ARTÍCULO 9 DE LA LEY PARA PREVENIR, COMBATIR Y ELIMINAR ACTOS DE DISCRIMINACIÓN EN EL ESTADO DE MÉXICO Y SE REFORMAN LAS FRACCIONES XV Y XVI DEL ARTÍCULO 13 DE LA LEY DE LA JUVENTUD DEL ESTADO DE MÉXICO".]
+PRIMERO.- Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
+SEGUNDO.- El presente Decreto entrará en vigor el día de su publicación en el Periódico Oficial "Gaceta del Gobierno".
