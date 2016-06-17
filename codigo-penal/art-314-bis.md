@@ -1,0 +1,3 @@
+(ADICIONADO, G.G. 16 DE JUNIO DE 2016)
+Artículo 314 Bis.- Al que sin permiso y fuera de los casos en que la ley lo permita, invada con ánimo de dominio un inmueble destinado a casa habitación o al comercio que se encuentre en construcción o desocupado o consignado para su venta, se le impondrán de cuatro a diez años de prisión y de trescientos a mil días multa.
+A los autores intelectuales, a quienes dirijan la invasión, y a quienes instiguen a la ocupación del inmueble, cuando la invasión se realice por dos o más personas se les impondrá de seis a doce años de prisión y de trescientos a mil días multa.
