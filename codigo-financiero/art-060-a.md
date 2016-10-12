@@ -1,7 +1,7 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.]
 (ADICIONADO, G.G. 16 DE DICIEMBRE DE 2011)
 Artículo 60 A.- Los contribuyentes pagarán el impuesto a que se refiere esta Sección anualmente, mediante la forma oficial aprobada por la autoridad fiscal, dentro de los tres primeros meses de cada año, salvo en el caso de aquellos vehículos de los que se solicite su inscripción o permiso provisional para circulación en traslado; supuestos en que se pagará en el momento en que se realice el trámite respectivo, excepto aquellos que lo hubieran pagado con anterioridad.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE SEGUNDO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE SEGUNDO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.]
 (ADICIONADO, G.G. 19 DE DICIEMBRE DE 2012)
 En aquellos casos en que se hubiere pagado en otra entidad federativa, por el mismo ejercicio fiscal al de su registro en esta entidad federativa, un impuesto sobre la tenencia o uso de vehículos, y el importe sea inferior al que le corresponda pagar conforme a esta Sección, el impuesto a cargo será la diferencia que resulte. Cuando el impuesto enterado en la otra entidad sea superior al que corresponda pagar conforme a esta Sección, no se enterará este impuesto, ni dará lugar a devolución, acreditamiento o compensación alguna.
 En el caso de robo del vehículo o pérdida total por accidente se causará la parte proporcional del impuesto anual hasta el mes en que se reporte su baja en los términos previstos por este Código, conforme a la siguiente tabla:
@@ -21,7 +21,7 @@ Noviembre0.92
 Diciembre 1.00
 En caso de que lo pagado haya sido superior a lo determinado en términos del párrafo anterior, la diferencia será considerada saldo a favor del contribuyente y podrá acreditarla contra el pago de la Tenencia del año inmediato siguiente de cualquier vehículo de su propiedad, sin que tenga la posibilidad de solicitar devolución.
 Para los supuestos referidos en el segundo párrafo de este artículo, no se pagará este impuesto a partir del año fiscal siguiente y hasta que, en su caso, deje de estar en dichos supuestos y vuelva a inscribirse el vehículo.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE SEGUNDO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE SEGUNDO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.]
 (REFORMADO PRIMER PÁRRAFO, G.G. 19 DE DICIEMBRE DE 2012)
 Tratándose de la adquisición de vehículos nuevos, así como de la adquisición de vehículos nuevos o usados importados en forma definitiva por primera vez y los que se inscriban por primera vez provenientes de otra entidad, el impuesto causado por dicho año se pagará en la proporción que resulte de aplicar al impuesto anual el factor correspondiente de la siguiente tabla:
 Mes deFactor aplicable al

@@ -24,7 +24,7 @@ X. El Vocal Ejecutivo del Instituto Hacendario del Estado de México.
 XI. Los municipios representantes ante el Consejo Directivo del Instituto Hacendario del Estado de México, en su modalidad de Comisión Permanente.
 (ADICIONADA, G.G. 11 DE OCTUBRE DE 2016)
 XII. El Presidente del Colegio de Contadores del Valle de Toluca.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.]
 (REFORMADO, G.G. 16 DE DICIEMBRE DE 2011)
 Los cargos en el Consejo serán honorarios y no darán derecho a retribución alguna, teniendo como función apoyar a los gobiernos estatal y municipales, así como a sus organismos descentralizados y autónomos, en la interpretación e implementación de las normas y disposiciones emitidas por el Consejo Nacional para la Armonización Contable.
 (ADICIONADO, G.G. 11 DE OCTUBRE DE 2016)

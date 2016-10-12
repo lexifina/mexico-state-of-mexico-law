@@ -1,9 +1,9 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.]
 (REFORMADO PRIMER PÁRRAFO, G.G. 18 DE DICIEMBRE DE 2008)
 Artículo 47-B.- Las personas físicas y jurídico colectivas que estén obligadas a dictaminarse en los términos del artículo anterior y las que opten por hacerlo, deberán presentar aviso de dictamen ante la autoridad fiscal competente a más tardar el 31 de julio del ejercicio fiscal siguiente al que se dictaminará.
 (ADICIONADO, G.G. 26 DE DICIEMBRE DE 2007)
 Los contribuyentes que se dictaminen, podrán sustituir en cualquier tiempo al Contador Público autorizado que hayan designado en el aviso de dictamen a que se refiere el párrafo anterior, informando a la autoridad fiscal competente de dicho cambio, expresando los motivos que se tengan y presentando en su caso las pruebas documentales pertinentes, a más tardar el último día en que concluya el plazo para la presentación oportuna del dictamen conforme al párrafo siguiente, sin que esto modifique en forma alguna el término autorizado para dicha presentación.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.]
 (REFORMADO, G.G. 18 DE DICIEMBRE DE 2008)
 El contribuyente deberá presentar ante la autoridad fiscal competente el dictamen sobre la determinación y pago del Impuesto sobre Erogaciones por Remuneraciones al Trabajo Personal formulado por Contador Público autorizado, a más tardar el 31 de agosto del ejercicio fiscal inmediato siguiente al que se dictaminará, de conformidad con este Código y las reglas de carácter general que al efecto expidan las autoridades fiscales, y cumpliendo con los requisitos que en dichas reglas se establezcan.
 (ADICIONADO, G.G. 26 DE DICIEMBRE DE 2007)

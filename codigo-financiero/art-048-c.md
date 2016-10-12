@@ -1,4 +1,4 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.]
 (ADICIONADO, G.G. 18 DE DICIEMBRE DE 2008)
 Artículo 48-C.- En los casos de visitas domiciliarias, las autoridades fiscales, los visitados, responsables solidarios y los terceros estarán además a lo siguiente:
 I. La visita se realizará en el lugar o lugares señalados en la orden de visita.

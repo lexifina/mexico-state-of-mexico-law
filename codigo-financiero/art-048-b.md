@@ -12,19 +12,19 @@ II. Las autoridades fiscales podrán ejercer e iniciar directamente con el contr
 A). Habiéndose requerido al Contador Público que haya formulado el dictamen la información y documentación a que se refieren los incisos A), B) y C) de la fracción inmediata anterior de este artículo, no la presente, la presente incompleta o fuera del plazo establecido para ello, o si después de haberla presentado resulta insuficiente a juicio de las autoridades fiscales para conocer la situación fiscal del contribuyente.
 B). El dictamen se emita con abstención de opinión, opinión negativa o con salvedades que tengan implicaciones fiscales.
 C). En el dictamen se determinen diferencias de impuesto por pagar y éstas no se enteren de conformidad con lo dispuesto en el último párrafo del artículo 47 B del Código.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.]
 (REFORMADO, G.G. 18 DE DICIEMBRE DE 2008)
 D). El dictamen no se presente o se presente en forma extemporánea.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.]
 (REFORMADO, G.G. 18 DE DICIEMBRE DE 2008)
 E). El Contador Público que haya formulado el dictamen esté impedido para ello, no esté autorizado, o su registro esté suspendido, dado de baja o cancelado en la fecha de presentación del dictamen.
 F). El Contador Público no sea localizado en el domicilio que haya señalado dentro del territorio del Estado ante las autoridades fiscales para oír y recibir notificaciones por los actos que se emitan en relación con los dictámenes que formule.
 G). El dictamen haya sido formulado en contravención a lo dispuesto en este Código y en las reglas de carácter general que al efecto emitan las autoridades fiscales.
 H). El contribuyente no acepte o no esté de acuerdo con su dictamen respecto del Contador Público autorizado que lo haya formulado.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.]
 (ADICIONADO, G.G. 10 DE DICIEMBRE DE 2009)
 I). El Contador Público Autorizado que haya formulado el dictamen hubiese fallecido.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.]
 (REFORMADO, G.G. 18 DE DICIEMBRE DE 2008)
 Para los efectos del inciso H) de esta fracción, se considera que el contribuyente no acepta o no está de acuerdo con el dictamen formulado por Contador Público autorizado, cuando así lo manifieste por escrito y bajo protesta de decir verdad ante la autoridad fiscal competente, a más tardar en los diez días siguientes a la fecha en que presentó o debió presentar el dictamen de que se trate, indicando las razones o los motivos que tenga y presentando las pruebas documentales pertinentes. En estos casos, dicha autoridad fiscal informará al Contador Público en cuestión acerca de la inconformidad presentada por el contribuyente respecto de su dictamen. Lo dispuesto en este párrafo es sin perjuicio de lo dispuesto en el artículo 47 C del Código y de la posible infracción en que incurra el contribuyente de conformidad con la fracción XV del artículo 361 de este Código.
 III. Las autoridades fiscales podrán, en cualquier tiempo, solicitar a los terceros relacionados con el contribuyente o responsables solidarios, la información y documentación que se considere necesaria para verificar si son ciertos los datos consignados en el dictamen y en los demás documentos comprobatorios relacionados con la información en él contenida, en cuyo caso, la solicitud respectiva se hará por escrito, notificando copia de la misma al contribuyente.

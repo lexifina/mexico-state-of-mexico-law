@@ -1,4 +1,4 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.]
 (REFORMADO PRIMER PÁRRAFO, G.G. 21 DE DICIEMBRE DE 2010)
 Artículo 384 Bis.- En el caso de embargo de depósitos bancarios en términos del artículo 384 fracción III inciso A) de este Código, la autoridad que haya ordenado el embargo girará oficio a la Comisión Nacional Bancaria y de Valores, o a las instituciones bancarias o sociedades cooperativas de ahorro y préstamo que correspondan, a la Comisión Nacional de Seguros y Fianzas o a la Comisión Nacional del Sistema de Ahorro para el Retiro, según corresponda, para que por su conducto se inmovilicen y conserven los fondos depositados, dejando a salvo los relativos a sueldos de trabajadores y hasta por el importe del crédito.
 (ADICIONADO, G.G. 29 DE DICIEMBRE DE 2006)

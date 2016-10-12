@@ -5,6 +5,6 @@ I. El Contador Público que dictamine esté autorizado por la autoridad fiscal c
 II. El dictamen se formule de acuerdo con las normas internacionales de auditoría.
 III. El Contador Público incluya en el dictamen que formule, el informe sobre la revisión de la situación fiscal del contribuyente en términos del artículo 47 H de este Código.
 IV. El dictamen sea formulado y presentado de conformidad con los lineamientos establecidos en este Código y con las reglas de carácter general que al efecto expidan las autoridades fiscales.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.]
 (ADICIONADO, G.G. 18 DE DICIEMBRE DE 2008)
 Las aclaraciones a que se refiere el primer párrafo de este artículo, podrán efectuarse en una sola ocasión respecto de un mismo dictamen durante los 60 días siguientes a la fecha de presentación del dictamen respectivo, señalando las precisiones correspondientes y diferencias determinadas, así como su efecto cuantitativo sobre la determinación del impuesto, siempre que no se haya iniciado el ejercicio de facultades de comprobación de la autoridad fiscal competente relativo a la revisión de dicho dictamen y la demás información y documentación con este relacionada en términos del artículo 48 B de este Código.

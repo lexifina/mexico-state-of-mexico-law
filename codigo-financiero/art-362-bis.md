@@ -23,7 +23,7 @@ C). Se cancelará definitivamente su registro para formular dictamen, revocándo
 (REFORMADO, G.G. 2 DE DICIEMBRE DE 2013)
 1. Incurra en reincidencia al acumular dos suspensiones con motivo de la violación a las disposiciones fiscales que rigen la formulación del dictamen.
 2. No exhiba a requerimiento de la autoridad fiscal competente los papeles de trabajo a que se refiere el inciso B) de la fracción I del artículo 48-B de éste Código.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE NUMERAL, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE NUMERAL, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.]
 (REFORMADO, G.G. 18 DE DICIEMBRE DE 2008)
 3. Formule dictamen estando impedido en términos del artículo 47 E de este Código.
 4. Haya participado en la comisión de delitos de carácter fiscal o delitos intencionales que ameriten pena corporal, respecto de los cuales se haya dictado sentencia definitiva que lo declare culpable.

@@ -1,4 +1,4 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE SEGUNDO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE SEGUNDO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.]
 (DEROGADO SEGUNDO PÁRRAFO, G.G. 19 DE DICIEMBRE DE 2012)
 (REFORMADO PRIMER PÁRRAFO, G.G. 2 DE DICIEMBRE DE 2013)
 Artículo 175 Bis.- Cuando se modifique la superficie de terreno o de construcción, cualquiera que sea la causa, los propietarios o poseedores de esos inmuebles deberán declarar ante la autoridad catastral municipal dichas modificaciones, mediante manifestación catastral que presenten en los formatos autorizados.
