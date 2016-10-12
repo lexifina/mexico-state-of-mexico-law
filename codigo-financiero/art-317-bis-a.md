@@ -1,9 +1,13 @@
-(REFORMADO PRIMER PÁRRAFO, G.G. 11 DE OCTUBRE DE 2012)
-Artículo 317 Bis-A.- El Ejecutivo, por conducto de la Secretaría y los municipios, a través de la Tesorería, podrán autorizar erogaciones adicionales a las aprobadas en el Presupuesto de Egresos, con cargo a los excedentes que, en su caso, resulten de los ingresos autorizados en las Leyes de Ingresos estatal y municipal, respectivamente hasta por un monto equivalente al 2% del presupuesto aprobado.
-(REFORMADO, G.G. 11 DE OCTUBRE DE 2012)
-En el caso del Estado, están exceptuadas por el cálculo del 2% señalado en el párrafo anterior, las erogaciones destinadas al pago de deuda a la inversión en obra pública y el cumplimiento de las disposiciones legales que así lo obliguen, así como las autorizaciones con cargo a los ingresos adicionales provenientes de los programas de apoyo y las aportaciones federales comprendidas en el Presupuesto de Egresos de la Federación y/o convenios firmados con otros ámbitos de gobierno por tener una aplicación a un fin determinado.
-(REFORMADO, G.G. 11 DE OCTUBRE DE 2012)
-Así mismo, también se encuentran exceptuadas para el cálculo del 2% señalado en este artículo para el Estado, las autorizaciones con cargo al excedente en los ingresos propios que obtengan las Entidades Públicas en el ejercicio de sus funciones, en atención a su personalidad jurídica y patrimonio propios; recursos que podrán ser aplicados para el cumplimiento de sus objetivos establecidos en términos de la Ley o Decreto de su creación.
+(REFORMADO PRIMER PÁRRAFO, G.G. 11 DE OCTUBRE DE 2016)
+Artículo 317 Bis A.- El Ejecutivo, por conducto de la Secretaría y los municipios, a través del Cabildo, podrán autorizar erogaciones adicionales a las aprobadas en el Presupuesto de Egresos, con cargo a los excedentes que, en su caso, resulten de los ingresos autorizados en las Leyes de Ingresos estatal y municipal.
+(DEROGADO SEGUNDO PÁRRAFO, G.G. 11 DE OCTUBRE DE 2016)
+(DEROGADO TERCER PÁRRAFO, G.G. 11 DE OCTUBRE DE 2016)
+(ADICIONADO, G.G. 11 DE OCTUBRE DE 2016)
+Los ingresos excedentes derivados de ingresos de libre disposición, deberán ser destinados, de conformidad con lo dispuesto por la Ley de Disciplina Financiera, a los siguientes conceptos:
+I. Por lo menos el 50 por ciento para la amortización anticipada de la deuda pública, el pago de adeudos de ejercicios fiscales anteriores, pasivos circulantes y otras obligaciones, en cuyos contratos se haya pactado el pago anticipado sin incurrir en penalidades y representen una disminución del saldo registrado en la cuenta pública del cierre del ejercicio inmediato anterior, así como el pago de sentencias definitivas emitidas por la autoridad competente, la aportación a fondos para la atención de desastres naturales y de pensiones.
+II. En su caso, el remanente para:
+a) Inversión pública productiva, a través de un fondo que se constituya para tal efecto, con el fin de que los recursos correspondientes se ejerzan a más tardar en el ejercicio inmediato siguiente.
+b) La creación de un fondo cuyo objetivo sea compensar la caída de ingresos de libre disposición de ejercicios subsecuentes.
 N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (REFORMADO, G.G. 16 DE DICIEMBRE DE 2011)
 En este caso, deberá integrar en el más próximo informe, de los referidos en el artículo 352 Bis de este Código, un apartado especial que contenga la información sobre estas ampliaciones, incluyendo el dictamen de asignación de recursos adicionales que deberá reunir los mismos criterios que los planteados en el artículo 317 Bis para los dictámenes de reconducción.
