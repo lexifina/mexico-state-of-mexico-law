@@ -1,0 +1,4 @@
+G.G. 16 DE NOVIEMBRE DE 2016.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 153.- POR EL QUE SE REFORMAN EL ARTÍCULO 5 EN SU FRACCIÓN III, EL ARTÍCULO 7 EN SU FRACCIÓN I Y SUS INCISOS J) Y K) Y EN SUS FRACCIÓN X. SE ADICIONAN LAS FRACCIONES XII Y XIII AL ARTÍCULO 5, EL INCISO D) A LA FRACCIÓN II DEL ARTÍCULO 7 DE LA LEY DE ASISTENCIA SOCIAL DEL ESTADO DE MÉXICO Y MUNICIPIOS".]
+PRIMERO. Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
+SEGUNDO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "Gaceta del Gobierno".
