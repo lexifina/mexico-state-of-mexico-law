@@ -1,4 +1,4 @@
-LEY SOBRE EL ESCUDO Y EL HIMNO DEL ESTADO DE MEXICO
+LEY SOBRE EL ESCUDO Y EL HIMNO DEL ESTADO DE MÉXICO
 Ley publicada en la Gaceta del Gobierno, el 9 de enero de 1995.
 EMILIO CHUAYFFET CHEMOR, Gobernador Constitucional del Estado Libre y Soberano de México, a sus habitantes sabed:
 Que la Legislatura del Estado, ha tenido a bien aprobar lo siguiente:

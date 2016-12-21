@@ -8,4 +8,4 @@ V. Medio de transporte para movilización;
 VI. Medidas de mantenimiento, seguridad e higiene;
 VII. Aspectos de educación ambiental, de conservación y reproducción de las especies, con especial atención en aquellas que estén en alguna categoría de riesgo;
 VIII. Medidas para garantizar el trato digno y respetuoso durante su confinamiento, manejo, traslado, exhibición, adaptación a un nuevo espacio y entrenamiento responsable, entre otros;
-IX. Cumplir con las Nomas Oficiales Mexicanas y Normas Técnicas del Estado de México que para tal efecto se emitan.
+IX. Cumplir con las Normas Oficiales Mexicanas y Normas Técnicas del Estado de México que para tal efecto se emitan.

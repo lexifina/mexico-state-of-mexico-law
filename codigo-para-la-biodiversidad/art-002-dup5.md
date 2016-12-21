@@ -77,3 +77,5 @@ LVIII. Riesgo ambiental: El daño potencial a la población, sus bienes y al med
 LIX. Secretaría: La Secretaría del Medio Ambiente del Estado de México;
 LX. Sistema: El Sistema de Información y Vigilancia de los Ecosistemas y su Equilibrio en el Estado; y
 LXI. Sitio contaminado: El lugar, espacio, suelo, cuerpo de agua, instalación o cualquier combinación de éstos que ha sido contaminado con materiales o residuos que por sus cantidades y características puede representar un riesgo a la salud humana, a los organismos vivos y al aprovechamiento de los bienes o propiedades de las personas.
+(ADICIONADA, G.G. 20 DE DICIEMBRE DE 2016)
+LXII. Unidad de Medida y Actualización: Unidad de cuenta, índice, medida o referencia para determinar la cuantía del pago de las obligaciones y supuestos previstos en este ordenamiento.

@@ -4,7 +4,8 @@ BENEFICIO DE LIBERTAD CONDICIONADA AL SISTEMA DE LOCALIZACIÓN Y RASTREO
 (ADICIONADO, G.G. 21 DE DICIEMBRE DE 2015)
 Artículo 83 bis.- El beneficio de la libertad condicionada al sistema de localización y rastreo podrá ser otorgado, siempre y cuando se cubran los siguientes requisitos:
 I. Que sea delincuente primario;
-II. Tratándose del delito de robo con violencia solo cuando el monto de lo robado sea de hasta noventa veces el salario mínimo general vigente y no se hayan causado lesiones de las comprendidas en la fracción III del artículo 237 o del 238, de este Código;
+(REFORMADA, G.G. 20 DE DICIEMBRE DE 2016)
+II. Tratándose del delito de robo con violencia solo cuando el monto de lo robado sea de hasta noventa veces el valor diario de la Unidad de Medida y Actualización vigente y no se hayan causado lesiones de las comprendidas en la fracción III del artículo 237 o del 238, de este Código;
 III. Que la pena privativa de libertad sea desde tres años hasta quince años;
 IV. Que sea solicitado dentro de los dos años antes de tener derecho a la libertad condicional;
 V. Que pague la reparación del daño y la multa impuesta;

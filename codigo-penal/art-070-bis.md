@@ -10,7 +10,8 @@ V. En el caso de las fracciones II y III del artículo 70, que cuente con una pe
 VI. Que el sentenciado se adhiera al beneficio dentro de los treinta días siguientes a los que cause ejecutoria la sentencia, salvo que se encuentre privado de la libertad, en cuyo caso podrá hacerlo hasta antes de compurgar la pena de prisión impuesta. El Órgano Jurisdiccional, discrecionalmente, a petición del sentenciado que se encuentre en libertad y atendiendo sus condiciones personales, podrá prorrogar este término hasta por treinta días más.
 (ADICIONADA, G.G. 16 DE JUNIO DE 2016)
 VII. Tratándose de la fracción IX del artículo 70, además de los requisitos anteriores deberá observarse lo siguiente:
-a) Tratándose del delito de robo con violencia solo cuando el monto de lo robado sea de hasta noventa veces el salario mínimo general vigente y no se hayan causado lesiones de las comprendidas en las fracciones II o III del artículo 237 o del 238, de este Código;
+(REFORMADO, G.G. 20 DE DICIEMBRE DE 2016)
+a) Tratándose del delito de robo con violencia solo cuando el monto de lo robado sea de hasta noventa veces el valor diario de la Unidad de Medida y Actualización vigente y no se hayan causado lesiones de las comprendidas en las fracciones II o III del artículo 237 o del 238, de este Código.
 b) Que compruebe contar en el exterior con un ofrecimiento de trabajo, un oficio, arte o profesión que le permita tener ingresos, o exhiba las constancias que acrediten que continuará estudiando;
 c) Que cuente con apoyo familiar o de la sociedad civil que garantice su vinculación a las condiciones que le fueron fijadas para el otorgamiento del beneficio;
 d) Que no se encuentre sujeto a ningún proceso pendiente por causa distinta ni tener sentencia ejecutoriada que cumplir en reclusión del fuero común o federal, sea cual fuere el delito;
