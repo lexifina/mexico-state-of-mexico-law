@@ -1,3 +1,2 @@
-LEY DE FISCALIZACIÓN SUPERIOR DEL ESTADO DE MÉXICO
-Ley publicada en la Sección Tercera de la Gaceta del Gobierno, el jueves 26 de agosto de 2004.
-DECRETO NUMERO 69
+LEY DE INGRESOS DEL MUNICIPIO DE PROGRESO, COAHUILA DE ZARAGOZA, PARA EL EJERCICIO FISCAL 2024
+Ley publicada en la Quinta Sección del Número 102 del Periódico Oficial del Estado de Coahuila de Zaragoza, el viernes 22 de diciembre de 2023.
