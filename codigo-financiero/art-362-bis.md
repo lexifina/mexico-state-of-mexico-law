@@ -1,7 +1,8 @@
 (ADICIONADO, G.G. 26 DE DICIEMBRE DE 2007)
 Artículo 362 Bis.- Son infracciones y sanciones aplicables a los contadores públicos autorizados:
 I. No observar en los dictámenes que formulen sobre la determinación y pago del Impuesto sobre Erogaciones por Remuneraciones al Trabajo Personal la omisión de las contribuciones en el pago de este impuesto en el informe de su situación fiscal respecto al ejercicio fiscal que se dictamina, siempre que dicha omisión sea determinada por las autoridades fiscales en el ejercicio de sus facultades de comprobación mediante resolución que haya quedado firme, y se sancionará con una multa del 10% al 20% de la contribución no observada, sin que dicha multa exceda del doble de los honorarios cobrados por haber formulado el dictamen.
-II. No advertir a los contribuyentes a los que se refiera su opinión plasmada en los dictámenes que formulen sobre la determinación y pago del Impuesto sobre Erogaciones por Remuneraciones al Trabajo Personal, si el criterio contenido en dicha opinión es diverso o puede ser contrario a la aplicación de las disposiciones fiscales establecidas en este Código, y se sancionará con una multa de doscientos hasta cuatrocientos días de salario mínimo general vigente del área geográfica que corresponda.
+(REFORMADA, G.G. 20 DE DICIEMBRE DE 2016)
+II. No advertir a los contribuyentes a los que se refiera su opinión plasmada en los dictámenes que formulen sobre la determinación y pago del Impuesto sobre Erogaciones por Remuneraciones al Trabajo Personal, si el criterio contenido en dicha opinión es diverso o puede ser contrario a la aplicación de las disposiciones fiscales establecidas en este Código, y se sancionará con una multa de doscientas hasta cuatrocientas veces el valor diario de la Unidad de Medida y Actualización vigente.
 III. Formular dictamen sobre la determinación y pago del Impuesto sobre Erogaciones por Remuneraciones al Trabajo Personal en contravención a lo dispuesto en este Código, lo cual se sancionará conforme a lo siguiente:
 A). Se amonestará al Contador Público cuando:
 1. Presente incompleta la información que deberá contener el dictamen de conformidad con este Código.
@@ -23,7 +24,6 @@ C). Se cancelará definitivamente su registro para formular dictamen, revocándo
 (REFORMADO, G.G. 2 DE DICIEMBRE DE 2013)
 1. Incurra en reincidencia al acumular dos suspensiones con motivo de la violación a las disposiciones fiscales que rigen la formulación del dictamen.
 2. No exhiba a requerimiento de la autoridad fiscal competente los papeles de trabajo a que se refiere el inciso B) de la fracción I del artículo 48-B de éste Código.
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE NUMERAL, VER TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.]
 (REFORMADO, G.G. 18 DE DICIEMBRE DE 2008)
 3. Formule dictamen estando impedido en términos del artículo 47 E de este Código.
 4. Haya participado en la comisión de delitos de carácter fiscal o delitos intencionales que ameriten pena corporal, respecto de los cuales se haya dictado sentencia definitiva que lo declare culpable.
