@@ -15,4 +15,10 @@ Cuando no se cuente con documento idóneo para determinar el valor de la primera
 VIII. Vehículo, a los automóviles, motocicletas, aeronaves y embarcaciones, y
 IX. Vehículo nuevo:
 A). El que se enajena por primera vez al consumidor por el fabricante, ensamblador, distribuidor o comerciantes en el ramo de vehículos.
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
+(ADICIONADO, G.G. 28 DE NOVIEMBRE DE 2016)
+La incorporación de los vehículos al activo fijo de las empresas fabricantes, ensambladoras o importadoras de automóviles e inclusive al de los distribuidores autorizados y comerciantes en el ramo de vehículos, o los que tengan para su venta por más de un año, serán considerados como enajenados.
 B). El importado definitivamente al país que corresponda al año modelo posterior al de aplicación de esta Sección o al año modelo en que se efectúe la importación.
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCIÓN, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
+(ADICIONADA, G.G. 28 DE NOVIEMBRE DE 2016)
+X. Vehículo Recuperado, el que es restituido al legítimo propietario, tenedor o usuario, por las autoridades encargadas de la procuración de justicia, con motivo de sus labores de investigación y persecución de delitos.
