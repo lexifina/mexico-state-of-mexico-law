@@ -33,3 +33,4 @@ VII. Por cambio del nombre del plantel, titular del acuerdo de autorización, re
 1. Educación Básica.$1,019
 2. Educación Media Superior.$1,019
 3. Educación Superior.$1,019
+VIII. (DEROGADA, G.G. 19 DE DICIEMBRE DE 2012)

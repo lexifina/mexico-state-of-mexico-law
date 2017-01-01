@@ -1,4 +1,3 @@
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.]
 (ADICIONADO, G.G. 16 DE DICIEMBRE DE 2011)
 Artículo 249 Bis.- Se constituye la Reunión Estatal de Servidores Públicos Hacendarios como órgano consultor del Sistema Estatal de Coordinación Hacendaria, a través del cual, los funcionarios hacendarios proponen, discuten y aprueban los lineamientos para el desarrollo permanente de la hacienda pública. Funcionará bajo la presidencia del Gobernador del Estado, o quién éste determine, con la participación del Secretario de Finanzas, los Presidentes Municipales y los servidores públicos hacendarios estatales y municipales; posterior a la celebración de ésta se constituirá en Asamblea Anual del Consejo Directivo.
 La Reunión Estatal de Servidores Públicos Hacendarios propiciará:

@@ -1,4 +1,4 @@
-G.O. 12 DE NOVIEMBRE DE 2013.
+G.G. 12 DE NOVIEMBRE DE 2013.
 PRIMERO.- Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
 SEGUNDO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "Gaceta del Gobierno".
 TERCERO.- Las autoridades en materia de agua, entregarán conjuntamente con el permiso, la tarifa autorizada para el año correspondiente a los permisionarios.

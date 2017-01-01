@@ -1,4 +1,3 @@
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.]
 (REFORMADO, G.G. 16 DE DICIEMBRE DE 2011)
 Artículo 352 Bis.- Como parte de la cuenta pública, se informará a la Legislatura de las acciones y resultados de la ejecución del Plan de Desarrollo del Estado o del municipio que corresponda, y del avance de los programas.
 Adicionalmente, se enviará trimestralmente a la Legislatura y al Órgano Superior de Fiscalización del Estado de México el informe de las acciones y resultados de la ejecución del Plan de Desarrollo del Estado o del municipio que corresponda y del avance de los programas en los meses de abril, julio y octubre y el trimestre correspondiente al cierre del ejercicio, se hará con la cuenta pública.

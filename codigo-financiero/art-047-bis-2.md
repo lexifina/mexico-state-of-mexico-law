@@ -1,9 +1,7 @@
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.]
 (ADICIONADO, G.G. 16 DE DICIEMBRE DE 2011)
 Artículo 47 Bis-2.- Se presumirán ciertos, salvo prueba en contrario, los hechos y opiniones afirmados en los dictámenes que se formulen sobre la determinación de la base del Impuesto Predial, así como en las aclaraciones que realice el dictaminador sobre los mismos, siempre que:
 I. El dictaminador que revise la determinación de la base del Impuesto Predial, esté autorizado por la autoridad competente y con su registro vigente a la fecha de presentación del dictamen, sin encontrarse impedido en términos del artículo 47 E de este Código.
 II. El valor catastral o la base para determinar el Impuesto Predial de los inmuebles objeto de dictaminación, se sustente en la aplicación de las tablas de valores unitarios de suelo y construcciones publicadas en el Periódico Oficial "Gaceta del Gobierno" del Estado de México vigentes en el año que se dictamine.
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCIÓN, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
 (REFORMADA, G.G. 19 DE NOVIEMBRE DE 2015)
 III. El dictaminador presente al IGECEM el avalúo catastral que realice para la revisión de la determinación de la base del Impuesto Predial, junto con la documentación comprobatoria correspondiente que incluya la relativa a la verificación física del inmueble, mismo que deberá adjuntarse al dictamen una vez presentado ante dicho Instituto.
 IV. El dictamen se elabore y presente de conformidad con éste Código y demás disposiciones que se emitan para tal efecto, incluyendo el contenido a que se refiere el sexto párrafo del artículo inmediato anterior.

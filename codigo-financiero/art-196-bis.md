@@ -1,4 +1,3 @@
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE ARTÍCULO TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
 (DEROGADO SEGUNDO PÁRRAFO, G.G. 19 DE NOVIEMBRE DE 2015)
 (REFORMADO, G.G. 6 DE DICIEMBRE DE 2002)
 Artículo 196 Bis.- El Ayuntamiento deberá proponer las modificaciones para efectos de actualización de la Tabla de Valores Unitarios de Construcciones, adjuntando los soportes técnicos correspondientes, considerando los siguientes métodos:

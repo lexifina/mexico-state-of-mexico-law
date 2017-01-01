@@ -78,13 +78,11 @@ custodia de vehículos accidentados o a disposición
 de autoridades diversas por cada corralón.$12,319
 IV. Por el otorgamiento de permisos de:
 A). Servicio discrecional de pasaje en la modalidad especializado:
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.]
 (REFORMADO PRIMER PÁRRAFO, G.G. 10 DE DICIEMBRE DE 2009)
 1. Vehículos de transporte de pasaje especializado escolar y personal de empresa en que se obtenga lucro por la prestación del servicio:
 a). Autobús.$2,297
 b). Minibús.$2,297
 c). Vagonetas.$1,971
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.]
 (REFORMADO PRIMER PÁRRAFO, G.G. 10 DE DICIEMBRE DE 2009)
 2. El servicio de transporte de pasaje especializado de turismo e individual en vehículo de propulsión no mecánica, en que se obtenga lucro por la prestación del servicio:
 a). Autobús.$5,071
@@ -118,13 +116,11 @@ de bahías de ascenso y descenso.$1,993
 7. Por la realización de estudios técnicos para el establecimiento
 de cobertizos.$3,320
 8. (DEROGADO, G.G. 30 DE DICIEMBRE DE 2003)
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE CÓDIGO.]
 (REFORMADO, G.G. 21 DE DICIEMBRE DE 2010)
 9. Por la realización de estudios técnicos y económicos
 a solicitud de los particulares o de las autoridades
 para el otorgamiento de concesiones y permisos en todas
 sus modalidades, por unidad vehicular.$1,641
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE CÓDIGO.]
 (REFORMADO, G.G. 21 DE DICIEMBRE DE 2010)
 10. Por la realización de estudios técnicos y económicos,
 para la autorización o modificación de ruta o derrotero,
@@ -141,9 +137,7 @@ c). Pick up, panel, van y vagoneta.$399
 d). Vehículo de cuatro puertas sin incluir la del portaequipaje,
 con un máximo de cinco asientos y un mínimo de cuatro,
 incluido el del operador.$266
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE CÓDIGO.]
 H). (DEROGADO, G.G. 21 DE DICIEMBRE DE 2010)
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.]
 (REFORMADO PRIMER PÁRRAFO, G.G. 10 DE DICIEMBRE DE 2009)
 V. Por la cesión de derechos o cambio de titular del permiso de carga en general:
 A). El servicio discrecional de pasaje:
@@ -194,12 +188,10 @@ D). Los servicios conexos, por el establecimiento de:
 3. Cobertizos.$997
 4. (DEROGADO, G.G. 30 DE DICIEMBRE DE 2003)
 E). El permiso para la instalación de anuncios publicitarios:$3,320
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE CÓDIGO.]
 (REFORMADO, G.G. 21 DE DICIEMBRE DE 2010)
 En la prorroga o cambio de la temporalidad de vigencia de permisos para servicios de arrastre y traslado y servicio de transporte especializado, que en términos del Reglamento de Transporte Público y Servicios Conexos del Estado de México, opten por la certificación de calidad respecto de dichos servicios y los bienes afectos a los mismos, acreditándolo debidamente ante la autoridad de transporte, se encontrarán exentos del pago que se contempla en esta fracción.
 Se exceptúan de lo anterior, los permisos para servicio con vehículos de propulsión no mecánica.
 VII. Por la expedición de autorizaciones o modificaciones complementarias de las concesiones y permisos que correspondan, respecto de:
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE CÓDIGO.]
 (REFORMADO, G.G. 21 DE DICIEMBRE DE 2010)
 A). Autorización de ruta o área geográfica de
 operación del servicio público de transporte en
@@ -209,14 +201,12 @@ cada vehículo.$2,030
 B). Modificación de rutas o área geográfica de operación del servicio público de transporte en las modalidades referidas en el inciso que antecede, por cada vehículo:
 1. De enrolamiento.$1,448
 2. Por la fusión de dos rutas como resultado de un enlace.$1,448
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE CÓDIGO.]
 (REFORMADO, G.G. 21 DE DICIEMBRE DE 2010)
 3. De su derrotero por cambios de sentido de la circulación
 vehicular, y/o en su recorrido original$164
 4. La reducción de su longitud por reubicarse su origen o
 destino, reduciendo el derrotero.$164
 5. De frecuencia de la ruta o derrotero.$1,448
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE CÓDIGO.]
 (REFORMADO, G.G. 21 DE DICIEMBRE DE 2010)
 6. Por el cambio de base en los lugares de origen
 o destino y alargamiento en la longitud del
@@ -291,7 +281,6 @@ de concesión o permiso, en todas sus modalidades o tipos.$819
 B). (DEROGADO, G.G. 30 DE DICIEMBRE DE 2003)
 XII. Expedición de permiso de transporte público en otras
 modalidades$821
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCIÓN, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE CÓDIGO.]
 (REFORMADA [N. DE E. ADICIONADA], G.G. 21 DE DICIEMBRE DE 2010)
 XIII. Por la expedición de constancia:
 A). De registro de licencia o permiso para

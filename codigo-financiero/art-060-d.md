@@ -1,10 +1,8 @@
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.]
 (ADICIONADO, G.G. 16 DE DICIEMBRE DE 2011)
 Artículo 60 D.- No se causará el impuesto a que se refiere esta Sección, por la tenencia o uso de los siguientes vehículos:
 I. Los eléctricos utilizados para el transporte público de personas;
 II. Los importados temporalmente, en los términos de la legislación aduanera;
 III. Los vehículos de la Federación, del Estado, municipios, sus organismos descentralizados y organismos autónomos, que sean utilizados para la prestación de los servicios públicos de rescate, patrullas, transportes de limpia, pipas de agua o servicios funerarios; las ambulancias dependientes de esas entidades o de instituciones de beneficencia autorizadas por las leyes de la materia, y los vehículos destinados a los cuerpos de bomberos;
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCIÓN, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
 (REFORMADA, G.G. 19 DE NOVIEMBRE DE 2015)
 IV. Los que tengan para su venta los fabricantes, las plantas ensambladoras, sus distribuidores y los comerciantes en el ramo de vehículos por un tiempo igual o menor a un año, siempre y cuando no se asignen dichos vehículos a su servicio o al de sus funcionarios o empleados y carezcan de placas de circulación.
 V. Las embarcaciones dedicadas al transporte mercante o a la pesca comercial;

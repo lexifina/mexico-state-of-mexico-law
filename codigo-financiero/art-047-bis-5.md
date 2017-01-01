@@ -1,4 +1,3 @@
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.]
 (ADICIONADO, G.G. 16 DE DICIEMBRE DE 2011)
 Artículo 47 Bis-5.- En el informe a que se refiere la fracción IV del sexto párrafo del artículo 47 Bis-1 de éste Código, el dictaminador deberá manifestar bajo protesta de decir verdad lo siguiente:
 I. Que se emite con estricto apego a lo dispuesto en este Código y demás disposiciones aplicables, considerando toda la información y documentación utilizada para revisar la correcta determinación de la base del Impuesto Predial, así como su mecánica de cálculo.
