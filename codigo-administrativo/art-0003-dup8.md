@@ -18,7 +18,6 @@ XIII. Promover que las instituciones que forman parte del sistema educativo esta
 (ADICIONADA, G.G. 11 DE OCTUBRE DE 2012)
 XIV. Impulsar el establecimiento de centros de desarrollo infantil con el apoyo de los municipios y de los beneficiarios de los servicios;
 XV. Impulsar el establecimiento de centros de desarrollo infantil y de educación para adultos, con el apoyo de los municipios y de los beneficiarios de los servicios;
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCIÓN, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
 (REFORMADA, G.G. 12 DE MAYO DE 2010)
 XVI. Promover y favorecer la sana alimentación y la activación física, la educación para la salud, sexual, civismo, ética, fomento al respeto a la mujer, ambiental, las bellas artes y el deporte, así como la enseñanza de un idioma extranjero, preferentemente el inglés, en todos los tipos y niveles educativos;
 XVII. Promover la incorporación de los estudiantes de las instituciones públicas y privadas a los servicios de atención médica;

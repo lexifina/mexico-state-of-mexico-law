@@ -1,7 +1,7 @@
 (ADICIONADO, G.G. 22 DE AGOSTO DE 2005)
 Artículo 14.2.- Este Libro tiene por objeto además establecer:
-I. Las políticas para la producción de la información e investigación geográfica, estadística y catastral en apoyo al Sistema de Planeación Democrática para el Desarrollo del Estado de México y Municipios;
-II. El funcionamiento de los sistemas estatal y municipales de información e investigación geográfica, estadística y catastral;
+I. Las políticas para la producción de la información e investigación geográfica, estadística y catastral en apoyo al sistema de Planeación Democrática para el Desarrollo del Estado de México y Municipios;
+II. El funcionamiento de los Sistemas estatal y municipales de información e investigación geográfica, estadística y catastral;
 III. Los procesos de captación, integración, generación y organización de la información geográfica, estadística y catastral, y su divulgación acorde con lo establecido por la Ley de Transparencia y Acceso a la Información Pública del Estado de México;
 IV. La realización de las investigaciones en materia geográfica, estadística y catastral en el Estado de México;
 V. El registro y resguardo de la información e investigaciones en materia geográfica, estadística y catastral del Estado de México;

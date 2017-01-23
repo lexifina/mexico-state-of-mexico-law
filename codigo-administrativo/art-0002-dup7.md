@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (REFORMADO PRIMER PÁRRAFO, G.G. 9 DE MAYO DE 2013)
 Artículo 2.6.- La dirección y administración del Instituto de Salud del Estado de México, estará a cargo de un consejo interno y de un director general.
 (REFORMADO, G.G. 14 DE MAYO DE 2014)

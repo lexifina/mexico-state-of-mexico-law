@@ -2,7 +2,6 @@
 Artículo 5.9.- La Secretaría tendrá las atribuciones siguientes:
 I. Formular y presentar a consideración del Gobernador del Estado, los proyectos del Plan Estatal de Desarrollo Urbano, planes regionales de desarrollo urbano, planes parciales derivados de ellos y sus modificaciones, así como ejecutarlos y evaluarlos;
 II. Expedir dictámenes de congruencia de los planes municipales de desarrollo urbano y de los planes parciales derivados de éstos, con el Plan Estatal de Desarrollo Urbano, el plan regional y los planes parciales de desarrollo urbano de competencia estatal aplicables;
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCIÓN, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.]
 (REFORMADA, G.G. 7 DE SEPTIEMBRE DE 2016)
 III. Expedir constancias de viabilidad y evaluaciones técnicas de impacto regional al seno de la Comisión Estatal de Factibilidad, en los casos y con las formalidades previstas en este Libro y su Reglamento.
 IV. Autorizar conjuntos urbanos, condominios, subdivisiones, relotificaciones y fusiones; y, en los casos previstos en este Libro y su reglamentación:

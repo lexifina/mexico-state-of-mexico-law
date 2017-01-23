@@ -1,2 +1,0 @@
-(ADICIONADO, G.G. 27 DE MARZO DE 2008)
-Artículo 230-F.- La Comisión del Agua del Estado de México podrá ceder, afectar y en términos generales transferir los recursos derivados de la retención a que se refiere el artículo 230 D del Código, por la parte del adeudo que le sea propio, a fideicomisos u otros mecanismos de fuente de pago o de garantía, constituidos para el financiamiento de infraestructura hidráulica.

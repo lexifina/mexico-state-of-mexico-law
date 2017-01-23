@@ -1,7 +1,0 @@
-(DEROGADO SEGUNDO PÁRRAFO, G.G. 19 DE DICIEMBRE DE 2012)
-(REFORMADO PRIMER PÁRRAFO, G.G. 2 DE DICIEMBRE DE 2013)
-Artículo 175 Bis.- Cuando se modifique la superficie de terreno o de construcción, cualquiera que sea la causa, los propietarios o poseedores de esos inmuebles deberán declarar ante la autoridad catastral municipal dichas modificaciones, mediante manifestación catastral que presenten en los formatos autorizados.
-(ADICIONADO, G.G. 19 DE DICIEMBRE DE 2012)
-Cuando se fusione, subdivida, lotifique, relotifique, o se produzca una lotificación en condominio o conjunto urbano de un inmueble, mediante autorización que emita la autoridad competente, es necesario actualizar los datos técnicos, administrativos y el valor en el padrón catastral municipal y en su caso, asignar claves e inscribirlos; para tal efecto, los propietarios deberán declarar ante el Ayuntamiento, las modificaciones generadas, mediante manifestación catastral que presenten dentro de los treinta días siguientes a la fecha en que se haya otorgado la autorización correspondiente.
-(ADICIONADO, G.G. 19 DE DICIEMBRE DE 2012)
-En el caso de lotificaciones en condominio y conjuntos urbanos, previamente a la autorización correspondiente, se requiere un avalúo catastral del inmueble o inmuebles que conforman el proyecto que será practicado y emitido por el IGECEM o por especialista en valuación inmobiliaria con registro vigente expedido por el propio Instituto, como soporte técnico a los requerimientos señalados en el Manual Catastral.

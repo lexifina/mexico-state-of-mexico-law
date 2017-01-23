@@ -1,1 +1,0 @@
-Artículo 128 Bis A.- (DEROGADO, G.G. 2 DE DICIEMBRE DE 2013)

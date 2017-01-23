@@ -1,7 +1,0 @@
-(ADICIONADO, G.G. 11 DE OCTUBRE DE 2016)
-Artículo 260 Ter.- De acuerdo a la clasificación del Sistema de Alertas de la Ley de Disciplina Financiera, cada ente público tendrá el siguiente techo de financiamiento neto:
-I. Bajo un endeudamiento sostenible, corresponderá un techo de financiamiento neto de hasta el equivalente al quince por ciento de sus ingresos de libre disposición.
-II. Un endeudamiento en observación tendrá como techo de financiamiento neto el equivalente al cinco por ciento de sus ingresos de libre disposición.
-III. Un nivel de endeudamiento elevado tendrá un techo de financiamiento neto igual a cero.
-Para los casos en que se genere un balance presupuestario de recursos disponibles negativo, se autorizará financiamiento neto adicional al techo de financiamiento neto contemplado en este artículo, hasta por el monto de financiamiento neto necesario para solventar las causas que generaron el balance presupuestario de recursos disponible negativo.
-Para efectos de la determinación del techo de financiamiento neto de aquellos entes públicos que no tengan contratados financiamientos y obligaciones inscritos en el Registro Público Único, que den lugar a la evaluación que deberá realizar la Secretaría (sic) Hacienda y Crédito Público de acuerdo a los artículos 43 y 44 de la Ley de Disciplina Financiera, tendrán que entregar la información requerida por dicha Secretaría para la evaluación correspondiente.
