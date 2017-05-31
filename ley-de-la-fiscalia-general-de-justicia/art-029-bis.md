@@ -1,0 +1,21 @@
+(ADICIONADO, G.G. 30 DE MAYO DE 2017)
+Artículo 29 Bis. La Fiscalía Especializada en Combate a la Corrupción tendrá a su cargo:
+I. Investigar, perseguir y ejercer sus atribuciones en los delitos por hechos de corrupción, incluso en grado de tentativa, cometidos por toda persona que desempeñe un empleo, cargo o comisión en alguno de los poderes del Estado, en los Ayuntamientos de los municipios, sus organismos auxiliares, así como de los titulares o quienes hagan sus veces en empresas de participación estatal o municipal, sociedades o asociaciones asimiladas a éstas, de los órganos constitucionales autónomos del Estado de México, de los representantes de elección popular de los ámbitos estatal y municipal, los particulares relacionados con el servicio público, así como en cualquier otro ente sobre el que tenga control cualquiera de los poderes y órganos públicos estatales y municipales.
+II. Investigar y perseguir los delitos en los que exista corrupción y otros que se puedan derivar de ésta, incluso en grado de tentativa, en los que participen particulares que reciban o hagan uso de recursos públicos, así como su participación en delitos cometidos por servidores públicos.
+III. Investigar delitos en los que exista corrupción, en coordinación o auxilio de otras fiscalías, o procuradurías de justicia de las entidades federativas o de la Federación.
+IV. Implementar programas de prevención del delito en materia de corrupción.
+V. Presentar un plan de trabajo anual al Fiscal General, destinado a prevenir, detectar, investigar y perseguir la comisión de delitos por corrupción al interior de la Fiscalía.
+VI. Implementar mecanismos de coordinación con autoridades en materia de control, supervisión, evaluación o fiscalización a fin de fortalecer el desarrollo de las investigaciones en los delitos por hechos de corrupción.
+VII. Coadyuvar en la erradicación y prevención de conductas en materia de corrupción, a través de la capacitación e implementación de programas en materia de ética y combate a la corrupción.
+VIII. Participar en los sistemas e instancias nacionales, estatales y municipales en materia de prevención y combate a la corrupción.
+IX. Celebrar convenios con la Federación y con las entidades federativas para acceder directamente a la información disponible en los Registros Públicos de la Propiedad, Comisión Nacional Bancaria y de Valores, de Seguros y Fianzas y de Ahorro para el Retiro, así como de las Unidades de Inteligencia Financiera de la Federación, o Patrimonial de las entidades federativas, y demás entes que se requieran para la investigación y persecución de los delitos por hechos de corrupción.
+X. Ejercer la facultad de atracción respecto de los delitos de su competencia que se inicien en otra fiscalía o procuraduría.
+XI. Recibir por sí o por conducto de cualquier unidad de la Fiscalía General de Justicia del Estado de México, las denuncias y puestas a disposición de personas por la posible comisión de delitos por hechos de corrupción.
+XII. Diseñar e implementar proyectos, estudios, programas permanentes de información y fomento de la cultura de la denuncia y legalidad, en materia de delitos relacionados por hechos de corrupción.
+XIII. Dar vista a la autoridad competente, por razón de fuero o materia, cuando de las diligencias practicadas en la investigación de los delitos de su competencia, se desprenda la comisión de alguna conducta ilícita distinta.
+XIV. Impulsar acciones relacionadas con la revisión de perfiles profesionales de los servidores públicos, controles de confianza, vocación y compromiso de servicio.
+XV. Presentar al Titular de la Fiscalía propuestas para las adecuaciones legislativas que fomenten el combate a la corrupción.
+XVI. Ejercitar acción penal en contra de los servidores públicos o particulares relacionados con la comisión de delitos por hechos de corrupción.
+XVII. Las demás que le confieran otras disposiciones jurídicas aplicables.
+La Fiscalía Especializada en Combate a la Corrupción contará con las unidades administrativas, elementos de policía de investigación, así como recursos necesarios para el desempeño de sus funciones, conforme al Reglamento de esta Ley y la normatividad aplicable.
+El titular de esta Fiscalía será nombrado y removido en los términos señalados por la Constitución del Estado.

@@ -1,0 +1,5 @@
+(ADICIONADO, G.G. 30 DE MAYO DE 2017)
+Artículo 11 Bis. Las personas jurídicas colectivas serán responsables penalmente de los delitos previstos en este Código, y en las leyes especiales cuando:
+I. Sean cometidos en su nombre, en su provecho, o exclusivo beneficio, a través de sus representantes, apoderados legales o administradores de hecho o de derecho.
+II. Sean sometidas a la autoridad de los representantes, apoderados legales o administradores mencionados en la fracción anterior, que realicen un hecho que la ley señale como delito, por no haberse ejercido sobre ellas el debido control que corresponda al ámbito organizacional que deba atenderse, según las circunstancias del caso, y la conducta se realice con motivo de actividades sociales, por cuenta, provecho, o exclusivo beneficio de la persona jurídica colectiva.
+Se podrá ejercer la acción penal en contra de las personas jurídicas colectivas con excepción de las instituciones estatales, independientemente de la acción penal que pudiera ejercer contra las personas físicas involucradas en el delito cometido.
