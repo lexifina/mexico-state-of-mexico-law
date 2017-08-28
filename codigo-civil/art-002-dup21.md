@@ -1,5 +1,4 @@
 Artículo 2.20.- Es domicilio legal:
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCIÓN, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
 (REFORMADA, G.G. 14 DE MARZO DE 2016)
 I. De las niñas, los niños y los adolescentes, el de la persona a cuya patria potestad y custodia esté sujeto.
 II. Del menor que no esté bajo la patria potestad y del mayor incapacitado, el de su tutor;

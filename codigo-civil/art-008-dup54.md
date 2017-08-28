@@ -1,6 +1,6 @@
 (REFORMADO, G.G. 18 DE AGOSTO DE 2011)
 Artículo 8.54.- Se anotarán preventivamente en el Registro:
-l. Por orden judicial, las demandas relativas a la propiedad de bienes inmuebles o a la constitución, declaración, modificación o extinción de cualquier derecho real sobre aquellos;
+I. Por orden judicial, las demandas relativas a la propiedad de bienes inmuebles o a la constitución, declaración, modificación o extinción de cualquier derecho real sobre aquellos;
 II. El mandamiento y el acta de embargo que se haya hecho efectivo en bienes inmuebles del demandado;
 III. Por orden judicial, las demandas promovidas para exigir el cumplimiento de contratos preparatorios o para dar forma legal al acto o contrato concertado cuando tenga por objeto inmuebles o derechos reales sobre los mismos;
 IV. Las providencias judiciales y administrativas que ordenen el secuestro o prohíban la enajenación de bienes inmuebles o derechos reales;

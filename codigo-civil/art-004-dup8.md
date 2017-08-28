@@ -1,9 +1,7 @@
 (REUBICADO, G.G. 6 DE MARZO DE 2010)
 Artículo 4.7.- Son impedimentos para contraer matrimonio:
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCIÓN, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
 (REFORMADA, G.G. 14 DE MARZO DE 2016)
 I. La falta de edad requerida por la Ley.
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
 II. (DEROGADA, G.G. 14 DE MARZO DE 2016)
 III. El parentesco por consanguinidad sin limitación de grado en línea recta, ascendente o descendente; en segundo grado en línea colateral y el del tercer grado colateral, siempre que no se haya obtenido dispensa;
 IV. El parentesco de afinidad que hubiere existido en línea recta, sin limitación alguna;

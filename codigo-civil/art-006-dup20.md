@@ -1,5 +1,5 @@
 Artículo 6.20.- Toda persona tiene capacidad para heredar y no puede ser privada de ella; pero con relación a ciertas personas, y a determinados bienes, son incapaces para heredar por las causas siguientes:
-l. Falta de personalidad;
+I. Falta de personalidad;
 II. Delito;
 III. Presunción de influencia en la voluntad del testador o a la verdad o integridad del testamento;
 IV. Falta de reciprocidad internacional;

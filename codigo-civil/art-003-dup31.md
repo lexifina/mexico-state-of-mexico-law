@@ -3,7 +3,7 @@ Artículo 3.29.- La defunción es la cesación completa y definitiva de los sign
 (ADICIONADO [N. DE E. REUBICADO ANTES PRIMER PÁRRAFO], G.G. 7 DE MAYO DE 2015)
 El acta de defunción contendrá:
 (REFORMADA, G.G. 7 DE MAYO DE 2015)
-l. Datos generales del finado.
+I. Datos generales del finado.
 ll. (DEROGADA, G.G. 7 DE MAYO DE 2015)
 III. Nombre de los padres del difunto, si se supieren;
 IV. (DEROGADA, G.G. 7 DE MAYO DE 2015)

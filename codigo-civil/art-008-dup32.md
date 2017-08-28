@@ -1,6 +1,6 @@
 (REFORMADO, G.G. 18 DE AGOSTO DE 2011)
 Artículo 8.32.- Previo a la inscripción, el Registrador calificará extrínsecamente el documento presentado dentro del plazo señalado en el artículo anterior. La calificación registral consistirá en verificar únicamente que:
-l. El documento presentado sea de los que deben inscribirse o anotarse;
+I. El documento presentado sea de los que deben inscribirse o anotarse;
 II. El documento satisfaga los requisitos de forma establecidos en la ley que lo rige como necesarios para su validez;
 III. En el documento conste acreditada la identidad, capacidad y legitimación de los otorgantes que el acto consignado requiera, en su caso. Cuando por cualquier circunstancia alguno de los titulares registrales varíe su nombre, denominación o razón social, procederá la inscripción cuando así se hubiere hecho constar ante Notario Público;
 IV. Exista identidad entre el bien previamente inscrito y el descrito en el título. No habrá falta de identidad cuando no coincida la descripción en uno o algunos de los datos, si de los demás elementos comparados se desprende dicha identidad;
