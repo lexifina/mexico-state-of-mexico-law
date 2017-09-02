@@ -7,7 +7,6 @@ IV. La Universidad Autónoma del Estado de México;
 V. El Colegio de Notarios del Estado de México;
 VI. El Sistema Estatal para el Desarrollo Integral de la Familia del Estado de México;
 VII. La Comisión de Derechos Humanos del Estado de México.
-(ADICIONADA, G.G. 9 DE DICIEMBRE DE 2015)
-VIII. La Dirección General de Servicios Periciales de la Procuraduría General de Justicia del Estado de México.
+VIII. (DEROGADA, G.G. 1 DE SEPTIEMBRE DE 2017)
 Cada integrante designará a su respectivo suplente.
 Legitimación para pedir la modificación o rectificación de acta
