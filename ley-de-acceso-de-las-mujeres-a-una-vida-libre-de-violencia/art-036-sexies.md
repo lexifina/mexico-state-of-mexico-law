@@ -1,4 +1,6 @@
 (ADICIONADO, G.G. 21 DE DICIEMBRE DE 2016)
 Artículo 36 Sexies.- Las dependencias y organismos de los tres poderes, los organismos autónomos, así como los municipios que sean convocados a integrar las mesas de trabajo del mecanismo, deberán designar a una servidora o servidor público que tendrá el carácter de enlace, quien dará seguimiento a todas las acciones derivadas de la instalación del mecanismo, con independencia del motivo que originó su instalación, lo anterior siempre y cuando las o los titulares de los mismos no estén en posibilidades de acudir a las sesiones semanales.
 Para el caso de los municipios, será el enlace designado, el que acuda en representación de la o el presidente municipal, quien únicamente acudirá una vez al mes, previa convocatoria.
+(ADICIONADO, G.G. 5 DE SEPTIEMBRE DE 2017)
+La o el enlace designado por el municipio lo representará en todas las acciones que deban efectuarse derivado de la Declaratoria de Alerta de Género contra las Mujeres, por lo que las y los demás integrantes del Mecanismo se coordinarán con éste para la implementación, ejecución y seguimiento de las acciones afirmativas.
 La implementación del mecanismo culminará hasta que la o el titular del Poder Ejecutivo Estatal lo decrete, o bien, cuando la Secretaría de Gobernación lo notifique a la Entidad.
