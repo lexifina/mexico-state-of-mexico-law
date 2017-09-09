@@ -17,20 +17,21 @@ XIV. Condominio Vertical: A la modalidad en la que cada condómino es propietari
 XV. Condominio Horizontal: A la modalidad en la cual cada condómino es propietario exclusivo de un área privativa del terreno y en su caso, de la edificación que se construya en ella, a la vez que es copropietario de las áreas, edificios e instalaciones de uso general;
 XVI. Condominio Mixto: A la combinación en un mismo predio de las modalidades señaladas en las fracciones XIV y XV de este artículo;
 XVII. Conjunto Urbano: A la modalidad que se adopta en la ejecución del desarrollo urbano que tiene por objeto estructurar o reordenar, como una unidad espacial integral, el trazo de la infraestructura vial, la división del suelo, las normas de usos, aprovechamientos y destinos del suelo, las obras de infraestructura, urbanización y equipamiento urbano, la ubicación de edificios y la imagen urbana de un predio ubicado en áreas urbanas o urbanizables;
-XVIII. Constancia de Viabilidad: Al acto administrativo por el que se hace constar la aptitud de un determinado predio para el desarrollo de un conjunto urbano, subdivisión o condominio, con base en las opiniones técnicas de las instancias gubernamentales que intervienen en la Comisión;
+XVIII. (DEROGADA, G.G. 8 DE SEPTIEMBRE DE 2017)
 XIX. Conurbación: A la continuidad física y demográfica que formen o tiendan a formar dos o más centros de población ubicados en el territorio de dos o varios municipios del Estado de México y parte del Distrito Federal;
 XX. Densidad: Al número permitido de viviendas por hectárea;
 XXI. Destinos: A los fines públicos a que podrá destinarse el suelo;
 XXII. Dictamen de Congruencia: Al acto administrativo en el que se determina la congruencia de un plan municipal de desarrollo urbano o de los parciales que deriven de éste, con las políticas, estrategias y objetivos previstos en el Plan Estatal de Desarrollo Urbano y, en su caso, en el plan regional de desarrollo urbano aplicable y en los parciales de competencia estatal;
-(REFORMADA, G.G. 7 DE SEPTIEMBRE DE 2016)
-XXIII. Evaluación Técnica de Impacto Urbano: Al estudio y análisis que precisa las condicionantes técnicas que deberán observarse para prevenir y mitigar los efectos que pudiera ocasionar en la infraestructura y el equipamiento urbano, así como en los servicios públicos previstos para una región o centro de población, el uso y aprovechamiento, o el cambio de uso, de densidad, de coeficiente de ocupación o de utilización del suelo, o de altura de edificación, que pretenda realizarse en un determinado predio o inmueble, que se emitirá al seno de la Comisión Estatal de Factibilidad.
+(REFORMADA, G.G. 8 DE SEPTIEMBRE DE 2017)
+XXIII. Evaluación Técnica de Impacto Urbano: Al estudio y análisis que precisa las condicionantes técnicas que deberán observarse para prevenir y mitigar los efectos que pudiera ocasionar en la infraestructura y el equipamiento urbano, así como en los servicios públicos previstos para una región o centro de población, el uso y aprovechamiento, o el cambio de uso, de densidad, de coeficiente de ocupación o de utilización del suelo, o de altura de edificación, que pretenda realizarse en un determinado predio o inmueble, que será emitida por la Dirección General de Operación Urbana al seno de la Comisión Estatal de Factibilidad.
 XXIV. Fusión: A la unión de dos o más predios o lotes contiguos, con el fin de constituir una unidad de propiedad;
 XXV. Inmueble: Al terreno con o sin construcciones;
 XXVI. Instituciones Gubernamentales: A las dependencias, entidades y organismos auxiliares, federales, estatales y municipales;
 XXVII. Impacto Urbano: La modificación al entorno urbano por causa de obra pública o privada;
 XXVIII. Libro: Al Libro Quinto del Código;
 XXIX. Lote: A la fracción de terreno que constituirá una unidad de propiedad, resultante de una autorización de fusión, subdivisión o conjunto urbano;
-XXX. Opinión técnica: A la que conforme a su competencia u objeto, emitan de manera preliminar cada una de las instancias gubernamentales que concurren en el seno de la Comisión, para sustentar la constancia de viabilidad de un conjunto urbano, subdivisión o condominio en un predio determinado;
+(REFORMADA, G.G. 8 DE SEPTIEMBRE DE 2017)
+XXX. Opinión técnica: A la que conforme a su competencia u objeto, emitan al seno de la Comisión Estatal de Factibilidad, cada una de las instancias gubernamentales de carácter federal, estatal o municipal, a los que ésta solicite su colaboración para determinar la procedencia del Dictamen Único de Factibilidad.
 XXXI. Planes de desarrollo urbano: Al conjunto de disposiciones jurídicas que planean y regulan el ordenamiento territorial de los asentamientos humanos y el desarrollo urbano de los centros de población;
 XXXII. Plano de lotificación: A la representación gráfica de un conjunto urbano, subdivisión, condominio horizontal o mixto, relotificación o fusión;
 XXXIII. Predio: A la superficie de terreno no lotificada que constituye una unidad de propiedad;

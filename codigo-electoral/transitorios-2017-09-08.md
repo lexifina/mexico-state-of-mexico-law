@@ -1,0 +1,6 @@
+G.G. 8 DE SEPTIEMBRE DE 2017.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 241.- POR EL QUE SE REFORMAN, ADICIONAN Y DEROGAN DIVERSAS DISPOSICIONES DE LA LEY ORGÁNICA DE LA ADMINISTRACIÓN PÚBLICA DEL ESTADO DE MÉXICO, DE LA LEY ORGÁNICA MUNICIPAL DEL ESTADO DE MÉXICO, DE LA LEY DE COMPETITIVIDAD Y ORDENAMIENTO COMERCIAL DEL ESTADO DE MÉXICO, DE LA LEY QUE CREA EL INSTITUTO DE VERIFICACIÓN ADMINISTRATIVA DEL ESTADO DE MÉXICO, DE LA LEY DE FOMENTO ECONÓMICO DEL ESTADO DE MÉXICO, DEL CÓDIGO ADMINISTRATIVO DEL ESTADO DE MÉXICO, DEL CÓDIGO CIVIL DEL ESTADO DE MÉXICO, DEL CÓDIGO FINANCIERO DEL ESTADO DE MÉXICO Y MUNICIPIOS, DEL CÓDIGO PENAL DEL ESTADO DE MÉXICO, DEL CÓDIGO DE PROCEDIMIENTOS ADMINISTRATIVOS DEL ESTADO DE MÉXICO Y DEL CÓDIGO ELECTORAL DEL ESTADO DE MÉXICO".]
+PRIMERO. Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
+SEGUNDO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "Gaceta del Gobierno".
+TERCERO. Cuando en otros ordenamientos se haga referencia al impacto regional, se tendrá por entendido que será suplido por impacto urbano, por lo cual las autoridades estatales y municipales deberán llevar a cabo las adecuaciones a su normatividad.
+CUARTO. Se derogan las disposiciones de igual o menor jerarquía que se opongan a lo establecido por el presente Decreto.

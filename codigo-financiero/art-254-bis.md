@@ -1,0 +1,4 @@
+(ADICIONADO, G.G. 29 DE DICIEMBRE DE 2000)
+Artículo 254 Bis.- Para el conocimiento, seguimiento y resolución de asuntos que se desprendan del funcionamiento del Sistema de Coordinación Hacendaria, el Instituto contará con las Coordinaciones de Normas, Procedimientos y Evaluación; Capacitación; Estudios Hacendarios; y de Operación Regional.
+Para la atención y resolución de problemas específicos, el Consejo Directivo o el Vocal Ejecutivo con autorización de aquél, podrán formar comisiones regionales o especializadas, las cuales estarán integradas por el Vocal Ejecutivo, quién las presidirá, y los tesoreros de los municipios involucrados.
+En estas comisiones se podrá invitar a participar a instituciones académicas, de investigación y agrupaciones del sector social y privado relacionadas con la materia hacendaria.

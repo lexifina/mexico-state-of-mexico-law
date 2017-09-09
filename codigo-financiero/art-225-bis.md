@@ -1,0 +1,1 @@
+Artículo 225 Bis.- (DEROGADO, G.G. 2 DE DICIEMBRE DE 2013)

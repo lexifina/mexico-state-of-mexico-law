@@ -2,9 +2,13 @@
 Artículo 5.9.- La Secretaría tendrá las atribuciones siguientes:
 I. Formular y presentar a consideración del Gobernador del Estado, los proyectos del Plan Estatal de Desarrollo Urbano, planes regionales de desarrollo urbano, planes parciales derivados de ellos y sus modificaciones, así como ejecutarlos y evaluarlos;
 II. Expedir dictámenes de congruencia de los planes municipales de desarrollo urbano y de los planes parciales derivados de éstos, con el Plan Estatal de Desarrollo Urbano, el plan regional y los planes parciales de desarrollo urbano de competencia estatal aplicables;
-(REFORMADA, G.G. 7 DE SEPTIEMBRE DE 2016)
-III. Expedir constancias de viabilidad y evaluaciones técnicas de impacto regional al seno de la Comisión Estatal de Factibilidad, en los casos y con las formalidades previstas en este Libro y su Reglamento.
-IV. Autorizar conjuntos urbanos, condominios, subdivisiones, relotificaciones y fusiones; y, en los casos previstos en este Libro y su reglamentación:
+(REFORMADA, G.G. 8 DE SEPTIEMBRE DE 2017)
+III. Expedir evaluaciones técnicas de impacto urbano, al seno de la Comisión Estatal de Factibilidad, en los casos y con las formalidades previstas en este Libro y la reglamentación correspondiente.
+(REFORMADA, G.G. 8 DE SEPTIEMBRE DE 2017)
+IV. Emitir las autorizaciones de conjuntos urbanos, condominios, subdivisiones, al seno de la Comisión Estatal de Factibilidad y en los casos previstos en este Libro y la reglamentación correspondiente.
+Podrá emitir la autorización para relotificaciones y fusiones en términos de lo dispuesto en el Reglamento del presente Libro.
+(REFORMADO PRIMER PÁRRAFO [N. DE E. ADICIONADO], G.G. 8 DE SEPTIEMBRE DE 2017)
+Así también, podrá autorizar, en términos de la legislación correspondiente, lo siguiente:
 a) Los proyectos arquitectónicos de las obras de equipamiento urbano;
 b) El inicio de obras de urbanización, infraestructura y equipamiento urbano y sus correspondientes prórrogas;
 c) La promoción y publicidad del desarrollo;
@@ -14,9 +18,11 @@ f) La subrogación del titular de la autorización;
 g) El cambio de tipo o del nombre comercial de los conjuntos urbanos, subdivisiones y condominios;
 h) La extinción por renuncia de autorizaciones; y
 i) Cualquier otra que requiera autorización.
-V. Establecer políticas específicas para la autorización de conjuntos urbanos de carácter habitacional, en función de la demanda y de las políticas de ordenamiento territorial señaladas en los planes de desarrollo urbano;
+(REFORMADA, G.G. 8 DE SEPTIEMBRE DE 2017)
+V. Proponer, al seno de la Comisión Estatal de Factibilidad, políticas específicas para la autorización de conjuntos urbanos de carácter habitacional, en función de la demanda y de las políticas de ordenamiento territorial señaladas en los planes de desarrollo urbano;
 VI. Supervisar la ejecución de las obras de urbanización, infraestructura y equipamiento urbano de conjuntos urbanos, subdivisiones y condominios, de conformidad con lo que establezcan las disposiciones reglamentarias del presente Libro y demás ordenamientos jurídicos aplicables, en aquellos casos en que dicha facultad no esté específicamente atribuida a otra dependencia u organismos auxiliar del ámbito federal, estatal o municipal;
-VII. Coordinar la entrega-recepción a los municipios y a las autoridades estatales competentes, de las áreas de donación y de las obras de urbanización, infraestructura primaria y equipamiento urbano de los conjuntos urbanos, subdivisiones y condominios;
+(REFORMADA, G.G. 8 DE SEPTIEMBRE DE 2017)
+VII. Coordinar la entrega-recepción a los municipios y a las autoridades estatales competentes, de las áreas de donación y de las obras de urbanización, infraestructura primaria y equipamiento urbano de los conjuntos urbanos, subdivisiones y condominios, con el visto bueno (sic) la Comisión Estatal de Factibilidad.
 VIII. Autorizar la apertura, prolongación, ampliación o modificación de vías públicas de competencia municipal, no previstas en los planes municipales de desarrollo urbano;
 IX. Establecer y operar el Sistema Estatal;
 X. Aprobar el plano de lotificación para la localización, deslinde y fraccionamiento de las zonas de urbanización ejidal o comunal y su reserva de crecimiento;

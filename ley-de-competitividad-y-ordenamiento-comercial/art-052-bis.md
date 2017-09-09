@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 8 DE SEPTIEMBRE DE 2017)
+Artículo 52 Bis. Para unidades económicas de mediano impacto, la Comisión Estatal de Factibilidad, por conducto de su presidenta o presidente, en términos de lo dispuesto en su Reglamento Interior, en caso de estimarlo indispensable, podrá definir los requisitos para la apertura, instalación, funcionamiento, operación y ampliación de éstas, con la finalidad de prevenir que el costo que generan los requisitos aplicables, sea mayor a la inversión del proyecto económico y no se cause un perjuicio a la o al titular del proyecto.

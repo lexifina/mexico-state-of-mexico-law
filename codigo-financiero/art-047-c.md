@@ -1,0 +1,9 @@
+(ADICIONADO, G.G. 26 DE DICIEMBRE DE 2007)
+Artículo 47-C.- Se presumirán ciertos, salvo prueba en contrario, los hechos afirmados en los dictámenes formulados por contadores públicos, sobre la determinación y pago del Impuesto sobre Erogaciones por Remuneraciones al Trabajo Personal, así como en las aclaraciones que dichos contadores realicen respecto de sus dictámenes, siempre que:
+I. El Contador Público que dictamine esté autorizado por la autoridad fiscal competente; su registro no esté dado de baja, se encuentre suspendido o cancelado en la fecha de presentación del dictamen; y no esté impedido en términos del artículo 47 E de este Código.
+(REFORMADA, G.G. 2 DE DICIEMBRE DE 2013)
+II. El dictamen se formule de acuerdo con las normas internacionales de auditoría.
+III. El Contador Público incluya en el dictamen que formule, el informe sobre la revisión de la situación fiscal del contribuyente en términos del artículo 47 H de este Código.
+IV. El dictamen sea formulado y presentado de conformidad con los lineamientos establecidos en este Código y con las reglas de carácter general que al efecto expidan las autoridades fiscales.
+(ADICIONADO, G.G. 18 DE DICIEMBRE DE 2008)
+Las aclaraciones a que se refiere el primer párrafo de este artículo, podrán efectuarse en una sola ocasión respecto de un mismo dictamen durante los 60 días siguientes a la fecha de presentación del dictamen respectivo, señalando las precisiones correspondientes y diferencias determinadas, así como su efecto cuantitativo sobre la determinación del impuesto, siempre que no se haya iniciado el ejercicio de facultades de comprobación de la autoridad fiscal competente relativo a la revisión de dicho dictamen y la demás información y documentación con este relacionada en términos del artículo 48 B de este Código.

@@ -1,0 +1,5 @@
+(DEROGADO ÚLTIMO PÁRRAFO, G.G. 2 DE DICIEMBRE DE 2013)
+(ADICIONADO, G.G. 2 DE DICIEMBRE DE 2013)
+Artículo 380-B.- En el caso de la fracción I del artículo 380 A, el aseguramiento precautorio quedará sin efectos si la autoridad no emite dicha resolución en el plazo de 18 meses contados desde la fecha en que fue practicado el aseguramiento.
+En el caso de las fracciones II y III del artículo 380 A, el aseguramiento precautorio quedará sin efectos si la autoridad no emite resolución en la que determine créditos fiscales en los plazos a que se refiere el artículo 48 fracciones I y III de este Código.
+Si dentro de los plazos señalados la autoridad determina algún crédito, dejará de surtir efectos el aseguramiento precautorio y se proseguirá el procedimiento administrativo de ejecución, debiendo dejar constancia de la resolución y de la notificación de la misma en el expediente de ejecución.

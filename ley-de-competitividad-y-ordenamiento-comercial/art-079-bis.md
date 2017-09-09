@@ -1,4 +1,3 @@
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
 (REFORMADO PRIMER PÁRRAFO, G.G. 7 DE SEPTIEMBRE DE 2016)
 Artículo 79 Bis. El Dictamen Único de Factibilidad, pueden (sic) ser revocado a juicio de la Comisión, por las causas siguientes:
 (ADICIONADA, G.G. 10 DE JULIO DE 2015)
