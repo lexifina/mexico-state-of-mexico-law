@@ -6,7 +6,8 @@ II. Prestar los servicios de educación inicial básica, - incluyendo la indíge
 III. Establecer un sistema para garantizar la alfabetización de la población mayor de catorce años que no haya tenido la oportunidad de aprender a leer y a escribir, así como para reinsertar a las niñas y niños en edad de recibir educación básica y que hubieran abandonado la escuela;
 (REFORMADA, G.G. 1 DE SEPTIEMBRE DE 2011)
 IV. Promover la educación especial para que las personas con discapacidad alcancen un mayor desarrollo de la personalidad y se favorezca su integración social;
-V. Establecer las bases conforme a las cuales la Secretaría, en coordinación con la autoridad educativa federal y la Secretaría General de Gobierno, se presten servicios educativos a las personas internas en los centros de prevención y readaptación social del Estado, para dar cumplimiento a lo dispuesto por la Ley de Ejecución de Penas Privativas y Restrictivas de la Libertad;
+(REFORMADA, G.G. 13 DE SEPTIEMBRE DE 2017)
+V. Establecer las bases conforme a las cuales la Secretaría, en coordinación con la autoridad educativa federal y la Secretaría de Seguridad, se presten servicios educativos a las personas internas en los centros de prevención y readaptación social del Estado, para dar cumplimiento a lo dispuesto por la Ley de Ejecución de Penas Privativas y Restrictivas de la Libertad;
 VI. Desarrollar innovaciones educativas para mejorar la calidad de la educación;
 VII. Establecer programas y promover acciones de capacitación y difusión dirigidas a los padres de familia y tutores, para que orienten y guíen adecuadamente la educación de sus hijos o pupilos, así como para fortalecer la integración familiar;
 VIII. Equipar, dar mantenimiento y dotar de material educativo a los planteles a cargo del Estado y de sus organismos descentralizados en términos de las disposiciones aplicables;

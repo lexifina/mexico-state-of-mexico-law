@@ -5,8 +5,8 @@ II. Entidades, a las mencionadas en la fracción IV del artículo 12.1;
 (REFORMADA, G.G. 14 DE MAYO DE 2014)
 III. Secretaría, a la Secretaría de Finanzas.
 IV. Contraloría, a la Secretaría de la Contraloría y órganos de control interno de las dependencias, entidades estatales y de los municipios;
-(REFORMADA, G.G. 27 DE JULIO DE 2015)
-V. Secretaría del Ramo, a la Secretaría de Infraestructura;
+(REFORMADA, G.G. 13 DE SEPTIEMBRE DE 2017)
+V. Secretaría del Ramo, a la Secretaría de Obra Pública;
 VI. Licitante, a la persona que participe en un procedimiento de licitación de obra pública o de servicios relacionados con la misma;
 VII. Contratista, a la persona que celebre un contrato de obra pública o de servicios relacionados con la misma;
 VIII. Contratante, a la dependencia, entidad, ayuntamiento o tribunal administrativo, que celebre un contrato regulado por este Libro;
