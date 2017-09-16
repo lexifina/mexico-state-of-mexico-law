@@ -1,4 +1,3 @@
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.]
 (ADICIONADO, G.G. 28 DE JULIO DE 2016)
 Artículo 83 Ter.- El Fiscal General durará en su cargo nueve años y será designado y removido conforme al siguiente procedimiento:
 A partir de la ausencia definitiva del Fiscal General, la Legislatura contará con un plazo improrrogable de veinte días naturales para integrar y enviar al Ejecutivo una lista de hasta diez candidatos al cargo, que surgirá del dictamen que emita la Legislatura de acuerdo al procedimiento que se establezca en la Ley, la cual deberá ser aprobada por las dos terceras partes de los miembros presentes en el Pleno de la Legislatura del Estado.

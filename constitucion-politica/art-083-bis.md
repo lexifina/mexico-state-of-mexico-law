@@ -1,4 +1,3 @@
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.]
 (ADICIONADO, G.G. 28 DE JULIO DE 2016)
 Artículo 83 Bis.- La Fiscalía General de Justicia será responsable de definir las políticas, lineamientos y visión estratégica para el cumplimiento de sus atribuciones, en los términos que establezca su Ley y los demás ordenamientos jurídicos aplicables.
 Las policías se ajustarán a las políticas y lineamientos generales que emita la Fiscalía General de Justicia para la investigación y persecución de delitos.
