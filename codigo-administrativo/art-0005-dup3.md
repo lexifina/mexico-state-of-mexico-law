@@ -37,7 +37,8 @@ XXXII. Plano de lotificación: A la representación gráfica de un conjunto urba
 XXXIII. Predio: A la superficie de terreno no lotificada que constituye una unidad de propiedad;
 XXXIV. Relotificación: Al acto por el cual a dos o más lotes o áreas privativas, según corresponda, se le modifican las dimensiones o las ubicaciones originalmente establecidas en la autorización del conjunto urbano, subdivisión o condominio, sin que se incremente el área vendible ni el número de viviendas o lotes;
 XXXV. Reservas: A las áreas urbanizables previstas en los planes de desarrollo urbano para el crecimiento de un centro de población;
-XXXVI. Secretaría: A la Secretaría de Desarrollo Urbano;
+(REFORMADA, G.G. 12 DE OCTUBRE DE 2017)
+XXXVI. Secretaría: A la Secretaría de Desarrollo Urbano y Metropolitano.
 XXXVII. Sistema Estatal: Al Sistema Estatal de Información del Desarrollo Urbano;
 XXXVIII. Subdivisión: Al acto por el que se fracciona un predio en lotes, con el fin de que éstos constituyan unidades de propiedad independientes;
 XXXIX. Usos: A los fines particulares a que podrán destinarse determinadas áreas, predios o lotes;

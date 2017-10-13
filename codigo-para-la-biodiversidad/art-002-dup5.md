@@ -39,7 +39,6 @@ XXIII. Elementos naturales: Los elementos físicos, químicos y biológicos que 
 XXIV. Emergencia ecológica: Situación derivada de actividades humanas o fenómenos naturales que al afectar severamente a sus componentes pone en peligro a uno o varios ecosistemas;
 XXV. Equilibrio ecológico: La relación de interdependencia entre los elementos que conforman al ambiente que hace posible la existencia, transformación y desarrollo del ser humano y demás organismos vivos;
 XXVI. Estado: El Estado Libre y Soberano de México;
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCIÓN, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
 (REFORMADA, G.G. 7 DE SEPTIEMBRE DE 2016)
 XXVII. Evaluación de impacto ambiental. El procedimiento científico y técnico a través del cual al seno de la Comisión Estatal de Factibilidad, las autoridades estatales y los organismos calificados identifican y predicen cuáles efectos ejercerán sobre el medio ambiente una acción o proyecto específico y autorizan la procedencia ambiental de dichos proyectos y las condiciones a las que se sujetarán los mismos para la realización de las obras, actividades o aprovechamientos con el fin de evitar o reducir al mínimo sus defectos negativos en el equilibrio ecológico o en el medio ambiente o a la biodiversidad.
 XXVIII. Explotación: Uso de los recursos y elementos naturales renovables y no renovables que tiene como consecuencia un cambio significativo en el equilibrio de los ecosistemas;

@@ -1,4 +1,3 @@
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
 (REFORMADO PRIMER PÁRRAFO, G.G. 7 DE SEPTIEMBRE DE 2016)
 Artículo 2.70. Una vez evaluado el informe previo, manifiesto de impacto o estudio de riesgo ambiental, la Secretaría, al seno de la Comisión Estatal de Factibilidad, emitirá debidamente fundada y motivada, la resolución correspondiente, en la que podrá:
 I. Autorizar la instrumentación de los planes y programas, así como la realización de la obra o actividad de que se trate, en los términos solicitados;

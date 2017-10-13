@@ -9,7 +9,6 @@ a) La regulación de las actividades que no sean consideradas como altamente rie
 b) La declaración, administración y recategorización de las áreas naturales protegidas de jurisdicción estatal.
 c) La prevención y el control de la contaminación a la atmósfera generada por aquellas fuentes que no sean de jurisdicción federal.
 d) La regulación del aprovechamiento y uso racional, de la prevención y del control de la contaminación de aguas de jurisdicción estatal.
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE INCISO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
 (REFORMADO, G.G. 7 DE SEPTIEMBRE DE 2016)
 e) La evaluación de impacto ambiental de los proyectos, obras, acciones y servicios emitida al seno de la Comisión Estatal de Factibilidad, que se ejecuten o se pretendan ejecutar en el Estado.
 f) La regulación con criterios ecológicos del aprovechamiento de los minerales o sustancias no reservadas a la Federación que constituyan depósitos de naturaleza semejante a los componentes de los terrenos, tales como rocas o productos de su fragmentación o descomposición que solo puedan utilizarse para la fabricación de materiales para la construcción u ornamentales.

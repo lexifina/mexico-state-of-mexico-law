@@ -10,12 +10,11 @@ V. Organizar campañas permanentes para la prevención y combate de incendios, p
 VI. Realizar trabajos de restauración y reforestación, defensa contra la desertificación de suelos y otros encaminados a proteger y utilizar con mayor provecho los bosques, los suelos y las aguas y organizar a la sociedad en general para estos fines;
 VII. Realizar programas de investigación para el desarrollo de los recursos y especies forestales y el perfeccionamiento de sus técnicas, sistemas y procedimientos;
 VIII. Promover y coordinar con los sectores público, social y privado la creación de viveros y zonas de reforestación;
-(REFORMADA, G.G. 9 DE MAYO DE 2014)
-IX. Inspeccionar y vigilar las zonas forestales, así como los aprovechamientos autorizados, para lo cual podrá solicitar el apoyo y coadyuvancia de la Secretaría de Seguridad Ciudadana;
+(REFORMADA, G.G. 12 DE OCTUBRE DE 2017)
+IX. Inspeccionar y vigilar las zonas forestales, así como los aprovechamientos autorizados, para lo cual podrá solicitar el apoyo y coadyuvancia de la Secretaría de Seguridad.
 X. Promover la organización productiva de los poseedores y propietarios forestales en el ámbito municipal, regional y estatal, así como gestionar la asesoría técnica y capacitación necesarias para el mejoramiento de sus procesos productivos;
 XI. Organizar los servicios técnicos y el registro y control de los peritos forestales;
 XII. Adquirir toda clase de bienes y realizar los actos que se requieran para el cumplimiento de su objeto; y
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 XIII. (DEROGADA, G.G. 18 DE DICIEMBRE DE 2014)
 (REFORMADA [N. DE E. ADICIONADA], G.G. 24 DE ENERO DE 2014)
 XIV. Vigilar a través de visitas de verificación que los centros de almacenamiento o transformación de materias primas forestales, cumplan con lo establecido en el Dictamen de Factibilidad de Transformación Forestal, aplicando dentro del ámbito de sus atribuciones, las medidas de seguridad e imponiendo las infracciones que correspondan por su inobservancia.

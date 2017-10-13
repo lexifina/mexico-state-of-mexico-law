@@ -1,5 +1,6 @@
 Artículo 3.38 Ter.- El Consejo Dictaminador será un órgano colegiado que se conformará con la única finalidad de resolver sobre las solicitudes de cambio de sustantivo propio que mediante solicitud expresa se haya formulado en términos del presente Código y demás disposiciones aplicables y estará integrado por las o los titulares de:
-I. La Consejería Jurídica del Ejecutivo Estatal, quien lo presidirá;
+(REFORMADA, G.G. 12 DE OCTUBRE DE 2017)
+I. La Secretaría de Justicia y Derechos Humanos, quien lo presidirá.
 II. La Dirección General del Registro Civil con el carácter de Secretaría Técnica.
 Y como Vocales:
 III. El Poder Judicial del Estado de México;

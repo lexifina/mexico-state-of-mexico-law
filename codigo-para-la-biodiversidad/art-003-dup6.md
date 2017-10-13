@@ -3,7 +3,6 @@ DE LA TERMINOLOGIA EMPLEADA
 Artículo 3.6. Además de las definiciones contenidas en el artículo 7 de la Ley General de Desarrollo Forestal Sustentable para los efectos de este Libro se entenderá por:
 I. Cadena productiva: La integración complementaria de actores y procesos que intervienen en la creación e incorporación de valor agregado a las materias primas forestales para la obtención de bienes y servicios que llegan al consumidor final;
 II. Degradación del suelo: Proceso que describe el fenómeno causado por el hombre que disminuye la capacidad presente o futura del suelo para sustentar vida vegetal, animal y humana;
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 III. (DEROGADA, G.G. 18 DE DICIEMBRE DE 2014)
 (REFORMADA, G.G. 24 DE ENERO DE 2014)
 IV. Erosión del suelo: Desprendimiento, arrastre y depósito de las partículas del suelo por acción del agua y el viento.
