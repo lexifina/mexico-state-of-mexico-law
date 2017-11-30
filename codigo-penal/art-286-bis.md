@@ -1,4 +1,3 @@
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
 (REFORMADO [N. DE E. ADICIONADO], G.G. 14 DE MARZO DE 2016)
 Artículo 286 Bis.- Para efectos de lo dispuesto en el presente Subtítulo se entenderá por:
 I. Perspectiva de Género: Es una visión científica, analítica y política sobre las mujeres y los hombres, se propone eliminar las causas de la opresión de género como la desigualdad, la injusticia y la jerarquización de las personas basada en el género. Promueve la igualdad entre los géneros a través de la equidad, el adelanto y el bienestar de las mujeres, contribuye a construir una sociedad en donde las mujeres y los hombres tengan el mismo valor, la igualdad de derechos y oportunidades para acceder a los recursos económicos y a la representación política y social en los ámbitos de toma de decisiones.
