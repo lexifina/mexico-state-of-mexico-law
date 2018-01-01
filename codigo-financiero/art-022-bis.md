@@ -1,4 +1,3 @@
-(DEROGADO CUARTO PÁRRAFO, G.G. 21 DE DICIEMBRE DE 2010)
 (REFORMADO PRIMER PÁRRAFO, G.G. 19 DE DICIEMBRE DE 2012)
 Artículo 22 Bis.- Las notificaciones de los actos previstos en este Código, se realizarán de forma personal, por edictos y/o por correo certificado de acuerdo al procedimiento establecido en el Capítulo Tercero del Código de Procedimientos Administrativos del Estado de México; de acuerdo a lo previsto en este Código, las relativas a estrados y las que se realicen a través de terceros habilitados, y de acuerdo a lo previsto en la Ley para el Uso de Medios Electrónicos del Estado de México, cuando las gestiones asociadas a dichos actos se hayan realizado por conducto del SEITS.
 (REFORMADO, G.G. 16 DE DICIEMBRE DE 2011)

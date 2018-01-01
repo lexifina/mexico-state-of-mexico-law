@@ -57,4 +57,6 @@ A). Los destinados al transporte particular o de carga cuya capacidad de carga s
 B). Cuando la capacidad de carga del vehículo sea de 15 a 35 toneladas, 0.50%, por el factor fiscal que resulte de dividir la capacidad de carga expresada en toneladas, entre 30. En el caso de que la capacidad de carga sea mayor de 35 toneladas se tomará como capacidad de carga máxima esta cantidad.
 Para los efectos de esta fracción, la capacidad de carga será la que se determine en las especificaciones técnicas del fabricante.
 Para el caso de automóviles de servicio particular que pasen a ser de servicio público de transporte, el impuesto se calculará conforme a esta fracción para el ejercicio fiscal siguiente a aquel en el que se dé esta circunstancia.
+(ADICIONADA, G.G. 15 DE DICIEMBRE DE 2017)
+III. Tratándose de los vehículos referidos en el segundo párrafo de la fracción II del artículo 60 F de este Código, el impuesto se reducirá en un 50% por los años subsecuentes al plazo señalado.
 Para los efectos de este artículo, se entiende por vehículos destinados a transporte de más de 15 pasajeros o para el transporte de carga, los camiones, vehículos pick up sin importar la capacidad de carga, tractores no agrícolas tipo quinta rueda, así como minibuses, microbuses y autobuses integrales, cualquiera que sea su tipo y capacidad de carga.

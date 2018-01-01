@@ -10,5 +10,7 @@ Los requisitos a que se refiere el párrafo anterior deberán cumplirse, en lo c
 Las operaciones de refinanciamiento o reestructura no requerirán autorización específica de la Legislatura, siempre y cuando:
 I. Exista una mejora en la tasa de interés, incluyendo los costos asociados, lo cual deberá estar fundamentado en el cálculo de la tasa efectiva que se realice de acuerdo con lo dispuesto por el artículo 266 Ter fracción IV del presente Código, es decir, el costo financiero más bajo, o tratándose de reestructuraciones exista una mejora en las condiciones contractuales.
 II. No se incremente el saldo insoluto.
-III. No se amplíe el plazo de vencimiento original de los financiamientos respectivos, el plazo de duración del pago del principal e intereses del financiamiento durante el periodo de la administración en curso, ni durante la totalidad del periodo de financiamiento.
-Dentro de los 15 días naturales siguientes a la celebración del refinanciamiento o reestructuración, el ente público deberá informar a la Legislatura sobre la celebración de este tipo de operaciones, así como inscribir dicho refinanciamiento o reestructura ante los Registros correspondientes.
+(REFORMADA, G.G. 15 DE DICIEMBRE DE 2017)
+III. No se amplíe el plazo de vencimiento original de los financiamientos respectivos, no se otorgue plazo o periodo de gracia, ni se modifique el perfil de amortizaciones del financiamiento durante el periodo de la administración en curso, ni durante la totalidad del periodo de financiamiento.
+(REFORMADO, G.G. 15 DE DICIEMBRE DE 2017)
+Dentro de los 15 días naturales siguientes a la celebración del refinanciamiento o reestructuración, el ente público deberá informar a la Legislatura sobre la celebración de este tipo de operaciones, así como presentar la solicitud de inscripción de dicho refinanciamiento o reestructura ante los Registros correspondientes.

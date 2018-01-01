@@ -1,0 +1,3 @@
+(ADICIONADO, G.G. 15 DE DICIEMBRE DE 2017)
+Artículo 69 N.- Para efectos de este impuesto se entiende como venta final, aquella que se realice en territorio del Estado si en él se lleva a cabo la entrega material de la bebida por parte del importador, productor, envasador o distribuidor, según sea el caso, para su posterior venta al público en general o consumo.
+Asimismo, se entiende como bebidas con contenido alcohólico, para efectos de este impuesto, aquellas que a la temperatura de 15° centígrados tengan una graduación alcohólica de más de 3°G.L., hasta 55°G.L., incluyendo el aguardiente y a los concentrados de bebidas alcohólicas aun cuando tengan una graduación alcohólica mayor.
