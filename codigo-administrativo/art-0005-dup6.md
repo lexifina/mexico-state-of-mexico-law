@@ -1,7 +1,11 @@
+(REFORMADO [N. DE E. ESTE PÁRRAFO], G.G. 10 DE ENERO DE 2018)
+Artículo 5.6.- El uso y aprovechamiento del suelo con fines urbanos de áreas y predios ejidales o comunales comprendidos dentro de los límites de los centros de población o que formen parte de las zonas de urbanización ejidal y de las tierras del asentamiento humano en ejidos y comunidades, así como la construcción de edificaciones, cualquiera que sea su régimen jurídico de propiedad, se sujetará a lo dispuesto en la Ley General de Asentamientos Humanos, Ordenamiento Territorial y Desarrollo Urbano, en la Ley Agraria, este Libro, su reglamentación, según corresponda, los planes o programas de desarrollo urbano y las autorizaciones y licencias expedidas por las autoridades competentes en materia urbana. Las tierras agrícolas, pecuarias y forestales, así como las destinadas a la preservación ecológica, deberán utilizarse preferentemente en dichas actividades o fines.
 (REFORMADO, G.G. 1 DE SEPTIEMBRE DE 2011)
-Artículo 5.6.- El uso y aprovechamiento del suelo con fines urbanos, así como la construcción de edificaciones, cualquiera que sea su régimen jurídico de propiedad, se sujetará a lo dispuesto en este Libro, su reglamentación, los planes de desarrollo urbano y las autorizaciones y licencias expedidas por las autoridades competentes en materia urbana.
 Los notarios públicos, harán mención expresa de las autorizaciones, permisos y licencias que regula el presente Libro y sus disposiciones reglamentarias al autorizar escrituras públicas sobre inmuebles.
+(REFORMADO, G.G. 1 DE SEPTIEMBRE DE 2011)
 Los registradores de la propiedad sólo inscribirán dichas escrituras públicas, cuando contengan la mención expresa de las autorizaciones y licencias que regula el presente Libro y sus disposiciones reglamentarias.
+(ADICIONADO, G.G. 10 DE ENERO DE 2018)
+No surtirán efectos los permisos, licencias o autorizaciones que contravengan lo establecido en este Libro, su Reglamento y los planes de desarrollo urbano.
 (REFORMADO, G.G. 1 DE SEPTIEMBRE DE 2011)
 CAPITULO SEGUNDO
 De las autoridades
