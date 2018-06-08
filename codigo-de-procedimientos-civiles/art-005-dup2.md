@@ -4,6 +4,5 @@ I. Las que se susciten con motivo de alimentos, guarda y custodia, convivencia, 
 II. Las relativas al estado civil de las personas; y
 III. La petición de herencia después de la adjudicación respectiva.
 Quedan exceptuadas, las controversias relacionadas con el derecho sucesorio.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
 Principios del procedimiento

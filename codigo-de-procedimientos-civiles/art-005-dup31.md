@@ -3,6 +3,5 @@ Artículo 5.30.- Cuando se involucren derechos relacionados con niñas, niños y
 (REFORMADO, G.G. 6 DE AGOSTO DE 2015)
 El Juez en cualquier etapa del procedimiento, cuando advierta que el representante legal es omiso o actúa en contra de los intereses de niñas, niños y adolescentes o incapaces dará intervención a la Procuraduría de Protección de Niñas, Niños y Adolescentes del Estado de México.
 Tratándose de adultos mayores, el Juez dará intervención al Ministerio Público, cuando advierta que se requiere para la mejor representación de sus intereses.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
 De los juicios especiales y procedimientos no contenciosos

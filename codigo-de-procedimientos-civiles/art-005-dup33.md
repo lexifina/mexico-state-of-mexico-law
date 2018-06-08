@@ -7,6 +7,5 @@ De no cumplirse con los requisitos a que se refieren las fracciones anteriores y
 IV. Cuando se trate de documentos que obren ante personas jurídicas colectivas o físicas, o de informes que deban rendir, se proporcionarán los datos necesarios que permitan su desahogo. Para lo cual se librará de manera inmediata el oficio o exhorto correspondiente a fin de que en un término no mayor de tres días a partir de su recepción, se remitan los documentos o rindan los informes solicitados por el juzgado, con el apercibimiento de multa o arresto para el caso de incumplimiento.
 El oficio o exhorto respectivo quedará a disposición del interesado el día de la publicación del acuerdo.
 La falta de interés en el desahogo de estos medios de prueba, surtirá efectos de deserción en perjuicio de la parte oferente.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
 Declaración de parte

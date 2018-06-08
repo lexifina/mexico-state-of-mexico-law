@@ -2,6 +2,5 @@ Artículo 5.39.- Se tendrán por ciertos los hechos que pretendan acreditar las 
 (ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, G.G. 19 DE FEBRERO DE 2009)
 CAPITULO IV
 De la Demanda
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
 De la demanda, reconvención y su contestación

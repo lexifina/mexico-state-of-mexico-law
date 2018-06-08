@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (REFORMADO, G.G. 19 DE FEBRERO DE 2009)
 Artículo 3.10.- Admitida a trámite la solicitud, el juez citará a una audiencia que se verificará dentro de los diez días siguientes.
 El juez designará perito para que proceda a la valuación de los bienes propuestos para venta o gravamen; el dictamen será rendido en la audiencia antes referida.
