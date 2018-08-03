@@ -1,2 +1,1 @@
-(ADICIONADO, G.G. 21 DE AGOSTO DE 2006)
-Artículo 16.5.- En lo no previsto por este Libro, su reglamento y demás disposiciones que de éstos se deriven, serán aplicables supletoriamente el Código de Procedimientos Administrativos del Estado de México, el Código Civil del Estado de México y el Código de Procedimientos Civiles del Estado de México, siempre que sus disposiciones no se contrapongan con la naturaleza administrativa y espíritu del propio Libro y su reglamento.
+Artículo 16.5.- (DEROGADO POR TRANSITORIO TERCERO DE LA LEY DE ASOCIACIONES PÚBLICO PRIVADAS DEL ESTADO DE MÉXICO Y MUNICIPIOS, G.G. 2 DE AGOSTO DE 2018)
