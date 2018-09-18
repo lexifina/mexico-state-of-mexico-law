@@ -2,8 +2,8 @@
 Artículo 5.9.- La Secretaría tendrá las atribuciones siguientes:
 I. Formular y presentar a consideración del Gobernador del Estado, los proyectos del Plan Estatal de Desarrollo Urbano, planes regionales de desarrollo urbano, planes parciales derivados de ellos y sus modificaciones, así como ejecutarlos y evaluarlos;
 II. Expedir dictámenes de congruencia de los planes municipales de desarrollo urbano y de los planes parciales derivados de éstos, con el Plan Estatal de Desarrollo Urbano, el plan regional y los planes parciales de desarrollo urbano de competencia estatal aplicables;
-(REFORMADA, G.G. 10 DE ENERO DE 2018)
-III. Expedir dictámenes únicos de factibilidad, al seno de la Comisión Estatal de Factibilidad, en los casos y con las formalidades previstas en este Libro y la reglamentación correspondiente.
+(REFORMADA, G.G. 17 DE SEPTIEMBRE DE 2018)
+III. Expedir las evaluaciones técnicas de factibilidad, en los casos y con las formalidades previstas en este Libro y demás disposiciones jurídicas aplicables;
 (REFORMADO [N. DE E. ESTE PÁRRAFO], G.G. 10 DE ENERO DE 2018)
 IV. Emitir las autorizaciones de conjuntos urbanos, condominios, subdivisiones, relotificaciones, fusiones y en los casos previstos en este Libro y la reglamentación correspondiente:
 (DEROGADO SEGUNDO PÁRRAFO, G.G. 10 DE ENERO DE 2018)
@@ -14,13 +14,14 @@ b) El inicio de obras de urbanización, infraestructura y equipamiento urbano y 
 c) La promoción y publicidad del desarrollo;
 d) La enajenación y gravamen de lotes;
 e) La liberación o sustitución de las garantías constituidas;
-f) La subrogación del titular de la autorización;
+(REFORMADO, G.G. 17 DE SEPTIEMBRE DE 2018)
+f) La subrogación o causahabiencia del titular de la autorización;
 g) El cambio de tipo o del nombre comercial de los conjuntos urbanos, subdivisiones y condominios;
 h) La extinción por renuncia de autorizaciones; y
 (REFORMADO, G.G. 10 DE ENERO DE 2018)
 i) Cualquier otra que en términos de este Libro y su reglamento requiera autorización.
-(REFORMADA, G.G. 8 DE SEPTIEMBRE DE 2017)
-V. Proponer, al seno de la Comisión Estatal de Factibilidad, políticas específicas para la autorización de conjuntos urbanos de carácter habitacional, en función de la demanda y de las políticas de ordenamiento territorial señaladas en los planes de desarrollo urbano;
+(REFORMADA, G.G. 17 DE SEPTIEMBRE DE 2018)
+V. Establecer políticas específicas para la autorización de conjuntos urbanos de carácter habitacional, en función de la demanda y de las políticas de ordenamiento territorial señaladas en los planes de desarrollo urbano;
 VI. Supervisar la ejecución de las obras de urbanización, infraestructura y equipamiento urbano de conjuntos urbanos, subdivisiones y condominios, de conformidad con lo que establezcan las disposiciones reglamentarias del presente Libro y demás ordenamientos jurídicos aplicables, en aquellos casos en que dicha facultad no esté específicamente atribuida a otra dependencia u organismos auxiliar del ámbito federal, estatal o municipal;
 (REFORMADA, G.G. 10 DE ENERO DE 2018)
 VII. Coordinar la entrega-recepción a los municipios y a las autoridades estatales competentes, de las áreas de donación, de las vías públicas y de las obras de urbanización, infraestructura primaria y equipamiento urbano de los conjuntos urbanos, subdivisiones y condominios.
@@ -36,14 +37,16 @@ XV. Promover la participación social en la planeación, gestión y control urba
 XVI. Ordenar la publicación de los planes de desarrollo urbano del ámbito estatal y municipal, en el Periódico Oficial "Gaceta del Gobierno", así como su inscripción en el Instituto de la Función Registral;
 (REFORMADA, G.G. 10 DE ENERO DE 2018)
 XVII. Suscribir acuerdos, convenios y contratos con los sectores público, social y privado en la realización de acciones e inversiones concertadas para el desarrollo regional, desarrollo urbano y desarrollo metropolitano.
-XVIII. Ejercer el derecho de preferencia del Estado, para adquirir en igualdad de condiciones, predios comprendidos en las áreas urbanizables señaladas en los planes o programas de desarrollo urbano aplicables, cuando éstos vayan a ser objeto de enajenación a título oneroso;
+(REFORMADA, G.G. 17 DE SEPTIEMBRE DE 2018)
+XVIII. Ejercer el derecho de preferencia del Estado, para adquirir predios comprendidos en las áreas urbanizables o reservas territoriales señaladas en los planes o programas de desarrollo urbano aplicables, cuando éstos vayan a ser objeto de enajenación a título oneroso;
 XIX. Interpretar para efectos administrativos las disposiciones de este Libro y su reglamentación;
 XX. Vigilar en el ámbito de su competencia, el cumplimiento de las disposiciones de este Libro y de su reglamentación, así como de las autorizaciones y licencias que expida;
 XXI. Determinar infracciones de los particulares a las disposiciones de este Libro y su reglamentación e imponer las medidas de seguridad y sanciones correspondientes;
 XXII. Emitir dictámenes y opiniones técnicas en el ámbito de su competencia;
-XXIII. (DEROGADA, G.G. 10 DE ENERO DE 2018)
-(REFORMADA, G.G. 10 DE ENERO DE 2018)
-XXIV. Establecer normas para la evaluación del impacto urbano de obras o proyectos que generen efectos significativos en el territorio estatal.
+(REFORMADA [N. DE E. ADICIONADA], G.G. 17 DE SEPTIEMBRE DE 2018)
+XXIII. Expedir normas técnicas y administrativas en materia de desarrollo urbano y vivienda;
+(REFORMADA, G.G. 17 DE SEPTIEMBRE DE 2018)
+XXIV. Establecer normas para la evaluación técnica de factibilidad de impacto urbano, tratándose de obras o proyectos de desarrollo urbano y vivienda que generen efectos significativos en el territorio estatal;
 (ADICIONADA, G.G. 10 DE ENERO DE 2018)
 XXV. Apoyar la generación de vivienda en sus diversas modalidades.
 (ADICIONADA, G.G. 10 DE ENERO DE 2018)

@@ -1,4 +1,4 @@
 G.G. 6 DE JULIO DE 2015.
 PRIMERO. Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
 SEGUNDO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "Gaceta del Gobierno".
-TERCERO. Se derogan las disposiciones de igual o menor jerarquía que se opongan lo (sic) establecido por el presente Decreto.
+TERCERO. Se derogan las disposiciones de igual o menor jerarquía que se opongan (sic) lo establecido por el presente Decreto.
