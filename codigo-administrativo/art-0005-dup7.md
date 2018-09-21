@@ -1,2 +1,2 @@
-(REFORMADO, G.G. 12 DE OCTUBRE DE 2017)
-Artículo 5.7.- Son autoridades para la aplicación de este Libro el Gobernador del Estado, la Secretaría de Desarrollo Urbano y Metropolitano y los municipios.
+(ADICIONADO, G.G. 20 DE SEPTIEMBRE DE 2018)
+Artículo 5.6. Bis.- El uso, aprovechamiento y rehabilitación de espacios públicos en desuso y de bajo puentes, se sujetarán a lo dispuesto en el presente Código, en la Ley Orgánica de la Administración Pública del Estado de México, en la Ley de Bienes del Estado de México y de sus Municipios, en los Reglamentos respectivos, reglas de carácter general y en los lineamientos que para tal efecto emita la Secretaría de Comunicaciones.

@@ -21,5 +21,7 @@ XI. La atención de situaciones de emergencia debidas al cambio climático y fen
 XII. La preservación y restauración del equilibrio ecológico y la protección del ambiente en los centros de población.
 (ADICIONADA, G.G. 10 DE ENERO DE 2018)
 XIII. La delimitación de zonas de riesgo y el establecimiento de polígonos de protección, amortiguamiento y salvaguarda para garantizar la seguridad de las personas y de las instalaciones estratégicas.
-(ADICIONADA, G.G. 10 DE ENERO DE 2018)
-XIV. Aquellas otras que así reconociera la legislación estatal o federal aplicable a la materia.
+(REFORMADA [N. DE E. ADICIONADA], G.G. 20 DE SEPTIEMBRE DE 2018)
+XIV. La rehabilitación de espacios públicos en desuso, a fin de transformarlos en áreas que generen un beneficio social;
+(ADICIONADA [N. DE E. REUBICADA], G.G. 20 DE SEPTIEMBRE DE 2018)
+XV. Aquellas otras que así reconociera la legislación estatal o federal aplicable a la materia.

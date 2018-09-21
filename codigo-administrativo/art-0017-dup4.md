@@ -3,11 +3,15 @@ Artículo 17.4.- Para efectos del presente Libro se entenderá por:
 (REFORMADA, G.G. 13 DE SEPTIEMBRE DE 2017)
 I. Derecho de Vía.- A la franja de terreno de anchura variable, determinada en las normas técnicas que emita la Secretaría de Comunicaciones que se requiere para la construcción, conservación, rehabilitación, ampliación, protección y, en general, para el uso adecuado de la infraestructura vial primaria;
 II. Carril Confinado.- Es el carril en la infraestructura vial destinado para uso exclusivo de los vehículos que operan en los sistemas de transporte masivo o de alta capacidad;
-(REFORMADA, G.G. 17 DE SEPTIEMBRE DE 2018)
+(REFORMADA [N. DE E. REPUBLICADA], G.G. 20 DE SEPTIEMBRE DE 2018)
 III. Evaluación Técnica de Factibilidad de Incorporación e Impacto Vial. A la resolución técnica de la Secretaría de Comunicaciones, que determina la factibilidad de incorporar a la infraestructura vial o de cuota, el flujo vehicular y peatonal previsto, como consecuencia de la construcción, ampliación, modernización u operación de edificaciones o instalaciones de impacto urbano, así como las obras y acciones que, en su caso, deben llevarse a cabo para mitigar su efecto;
 IV. Estación de Transferencia Modal.- Instalaciones con equipo tecnológico donde converge el transporte de alta capacidad con otro u otros medios de transporte;
-(ADICIONADA, G.G. 7 DE SEPTIEMBRE DE 2017)
-IV Bis. Propuesta no Solicitada. A la propuesta, presentada por una sociedad mercantil constituida conforme a las leyes mexicanas, para el desarrollo de un proyecto sobre las comunicaciones de jurisdicción local que incluya el proyecto ejecutivo respectivo.
+(REFORMADA, G.G. 20 DE SEPTIEMBRE DE 2018)
+IV. Bis. Espacio público en desuso. Parte de un bien inmueble público que no está siendo aprovechado;
+(ADICIONADA, G.G. 20 DE SEPTIEMBRE DE 2018)
+IV. Ter. Bajo puente. Espacio público en desuso, ubicado en la parte inferior de los puentes vehiculares;
+(ADICIONADA, G.G. 20 DE SEPTIEMBRE DE 2018)
+IV. Quáter. Propuesta no Solicitada. A la propuesta, presentada por una sociedad mercantil constituida conforme a las leyes mexicanas, para el desarrollo de un proyecto sobre las comunicaciones de jurisdicción local que incluya el proyecto ejecutivo respectivo;
 V. Infraestructura de Jurisdicción Local.- Conjunto de vías jerarquizadas que facilitan la comunicación entre las diferentes áreas de la actividad económica y se clasifican en:
 a) Infraestructura Vial Primaria.- La integrada por carreteras, pasos vehiculares, avenidas, calzadas y calles que comunican a dos o más municipios de la entidad, permitiendo los viajes de largo recorrido y aquellas que por sus características de ubicación, operación y vocación de servicio permitan la integración de la red vial primaria, así como las que comuniquen a instalaciones estratégicas estatales;
 b) Infraestructura Vial Local.- La integrada por pasos vehiculares, avenidas, calzadas, calles y cerradas que permiten la comunicación al interior del municipio y la integración con la red vial primaria.
