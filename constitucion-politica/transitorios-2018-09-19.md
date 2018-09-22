@@ -1,0 +1,5 @@
+G.G. 19 DE SEPTIEMBRE DE 2018.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 314.- POR EL QUE SE REFORMAN LA FRACCIÓN XXV DEL ARTÍCULO 77, EL INCISO B) Y EL PÁRRAFO QUINTO DEL ARTÍCULO 88, EL TERCER PÁRRAFO DEL ARTÍCULO 89, EL ARTÍCULO 100, EL ARTÍCULO 101 Y EL ARTÍCULO 102 Y SE ADICIONAN LOS PÁRRAFOS OCTAVO Y NOVENO AL ARTÍCULO 88 DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE MÉXICO".]
+PRIMERO. Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
+SEGUNDO. El presente Decreto entrará en vigor en la misma fecha en que lo hagan las reformas legales que expida el Congreso de la Unión correspondientes al Decreto por el que se declaran reformadas y adicionadas diversas disposiciones de los artículos 107 y 123 de la Constitución Política de los Estados Unidos Mexicanos, en materia de justicia laboral, publicado en el Diario Oficial de la Federación el 24 de febrero de 2017.
+TERCERO. El régimen transitorio del presente Decreto se sujetara a lo previsto en las reformas expedidas por el Congreso de la Unión, referidas en el transitorio anterior.
