@@ -1,0 +1,3 @@
+(ADICIONADO, G.G. 21 DE DICIEMBRE DE 2018)
+Artículo 88 BIS.- Todo servidor público deberá de abstenerse de establecer cualquier comunicación no documentada con proveedores de bienes o servicios del sector público.
+Para evitar la violación a este artículo, las comunicaciones podrán documentarse mediante correo electrónico oficial, videoconferencia, oficio o cualquier otro medio que deje constancia fehaciente de los intercambios de información con proveedores. En caso de que algún servidor público hubiese tenido comunicación previa con proveedores por razón de amistad, negocios o cualquier otra causa, deberá informarlo al órgano de control correspondiente y excusarse de participar en los procedimientos de contratación respectivos.
