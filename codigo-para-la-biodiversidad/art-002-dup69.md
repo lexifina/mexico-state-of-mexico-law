@@ -1,5 +1,5 @@
-(REFORMADO PRIMER PÁRRAFO, G.G. 7 DE SEPTIEMBRE DE 2016)
-Artículo 2.70. Una vez evaluado el informe previo, manifiesto de impacto o estudio de riesgo ambiental, la Secretaría, al seno de la Comisión Estatal de Factibilidad, emitirá debidamente fundada y motivada, la resolución correspondiente, en la que podrá:
+(REFORMADO PRIMER PÁRRAFO, G.G. 17 DE SEPTIEMBRE DE 2018)
+Artículo 2.70. Una vez evaluado el informe previo, manifiesto de impacto o estudio de riesgo ambiental, la Secretaría, emitirá debidamente fundada y motivada, la resolución correspondiente, en la que podrá:
 I. Autorizar la instrumentación de los planes y programas, así como la realización de la obra o actividad de que se trate, en los términos solicitados;
 II. Autorizar de manera condicionada la instrumentación de los planes y programas, así como la realización de la obra o actividad de que se trate, sujetándose a la modificación del proyecto o al establecimiento de medidas adicionales de prevención y mitigación, a fin de que se eviten, atenúen o compensen los impactos ambientales adversos susceptibles de ser producidos en la ejecución del proyecto, así como en caso de accidentes;
 III. Negar la autorización solicitada, cuando:

@@ -1,2 +1,2 @@
-(REFORMADO, G.G. 7 DE SEPTIEMBRE DE 2016)
-Artículo 2.80. El Reglamento de la Comisión Estatal de Factibilidad establecerá los plazos y actos a que se sujetará la integración del expediente de evaluación de impacto ambiental, la cual a partir de la integración del expediente, emitirá la resolución, concediendo la autorización o negándola, la que deberá ser notificada personalmente.
+(REFORMADO, G.G. 17 DE SEPTIEMBRE DE 2018)
+Artículo 2.80. El Reglamento Interior de la Comisión de Factibilidad del Estado de México y el Reglamento del presente Libro establecerán los plazos y actos a que se sujetará la integración del expediente de evaluación técnica de factibilidad de impacto ambiental, la cual a partir de la integración del expediente, emitirá la resolución, concediendo la autorización o negándola, la que deberá ser notificada personalmente.

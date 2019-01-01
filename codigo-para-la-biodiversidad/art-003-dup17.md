@@ -1,7 +1,8 @@
 CAPITULO IV
 DE LA PROTECTORA DE BOSQUES DEL ESTADO DE MEXICO
 Articulo 3.17. PROBOSQUE es un Organismo Público Descentralizado denominado «PROTECTORA DE BOSQUES DEL ESTADO DE MEXICO», con personalidad jurídica y patrimonio propios; su actividad tendrá el carácter de interés público y beneficio social, y tiene por objeto la protección, conservación, reforestación, fomento y vigilancia de los recursos forestales en el Estado.
-PROBOSQUE para el cumplimiento de su objeto se coordinará con las autoridades, organizaciones y personas a fines (sic) a la materia y tendrá las atribuciones siguientes:
+(REFORMADO [N. DE E. ESTE PÁRRAFO], G.G. 17 DE SEPTIEMBRE DE 2018)
+PROBOSQUE para el cumplimiento de su objeto se coordinará con las autoridades, organizaciones y personas afines a la materia y tendrá las atribuciones siguientes:
 I. Planear operativamente y ejecutar la protección, conservación, reforestación, fomento y vigilancia de los recursos forestales del Estado;
 II. Realizar el estudio dasonómico que permita clasificar los bosques y suelos de vocación forestal en el territorio estatal, así como formular y actualizar permanentemente el inventario forestal;
 III. Proponer el establecimiento de áreas de reserva para proteger la biodiversidad, monumentos naturales y zonas de protección forestal para la conservación de los ecosistemas y el fomento y desarrollo de los recursos forestales;
@@ -15,8 +16,9 @@ IX. Inspeccionar y vigilar las zonas forestales, así como los aprovechamientos 
 X. Promover la organización productiva de los poseedores y propietarios forestales en el ámbito municipal, regional y estatal, así como gestionar la asesoría técnica y capacitación necesarias para el mejoramiento de sus procesos productivos;
 XI. Organizar los servicios técnicos y el registro y control de los peritos forestales;
 XII. Adquirir toda clase de bienes y realizar los actos que se requieran para el cumplimiento de su objeto; y
-XIII. (DEROGADA, G.G. 18 DE DICIEMBRE DE 2014)
-(REFORMADA [N. DE E. ADICIONADA], G.G. 24 DE ENERO DE 2014)
-XIV. Vigilar a través de visitas de verificación que los centros de almacenamiento o transformación de materias primas forestales, cumplan con lo establecido en el Dictamen de Factibilidad de Transformación Forestal, aplicando dentro del ámbito de sus atribuciones, las medidas de seguridad e imponiendo las infracciones que correspondan por su inobservancia.
+(REFORMADA [N. DE E. ADICIONADA], G.G. 17 DE SEPTIEMBRE DE 2018)
+XIII. Emitir la evaluación técnica de factibilidad de transformación forestal, para la obtención del Dictamen Único de Factibilidad, derivado del análisis que realice a la documentación presentada y de los comprobantes con los que el interesado acredite la legal procedencia de los productos forestales;
+(REFORMADA, G.G. 17 DE SEPTIEMBRE DE 2018)
+XIV. Vigilar, en coordinación con el Instituto de Verificación Administrativa del Estado de México, en el ámbito de sus respectivas competencias, que los centros de almacenamiento o transformación de materias primas forestales, cumplan con lo establecido en la evaluación técnica de factibilidad de transformación forestal aplicando dentro del ámbito de sus atribuciones, las medidas de seguridad e imponiendo las infracciones que correspondan por su inobservancia; y
 (REFORMADA, G.G. 24 DE ENERO DE 2014)
 XV. Las demás que le atribuyan las disposiciones legales y los convenios o acuerdos en la materia.
