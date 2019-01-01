@@ -1,5 +1,5 @@
-(REFORMADO [N. DE E. ESTE PÁRRAFO], G.G. 15 DE DICIEMBRE DE 2017)
-Artículo 69 E.- Las personas que presten los servicios de hospedaje, así como las personas físicas y las jurídicas colectivas a que se refiere el párrafo segundo del artículo 69 A, además de las obligaciones establecidas en otros artículos de este Código y en las demás disposiciones fiscales, tendrán las siguientes:
+(REFORMADO PRIMER PÁRRAFO, G.G. 31 DE DICIEMBRE DE 2018)
+Artículo 69 E.- Las personas que presten los servicios de hospedaje, así como las personas físicas y las jurídicas colectivas a que se refiere el párrafo tercero del artículo 69 A, además de las obligaciones establecidas en otros artículos de este Código y en las demás disposiciones fiscales, tendrán las siguientes:
 (ADICIONADO, G.G. 2 DE DICIEMBRE DE 2013)
 a). Solicitar su inscripción en el Registro Estatal de Contribuyentes.
 (REFORMADO, G.G. 19 DE NOVIEMBRE DE 2015)

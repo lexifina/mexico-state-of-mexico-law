@@ -1,4 +1,3 @@
-(DEROGADO SEGUNDO PÁRRAFO, G.G. 19 DE NOVIEMBRE DE 2015)
 (ADICIONADO, G.G. 2 DE DICIEMBRE DE 2013)
 Artículo 69 D.- La Secretaría de Finanzas podrá determinar presuntivamente la base gravable o fuente generadora de este impuesto cuando se actualicen los supuestos establecidos en el artículo 49.
 (REFORMADO, G.G. 19 DE NOVIEMBRE DE 2015)

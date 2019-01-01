@@ -1,12 +1,10 @@
-(REFORMADA EN SUS TARIFAS, G.G. 15 DE DICIEMBRE DE 2017)
-TIPO DE VIVIENDAMONTO DE APORTACIÓN
-POR VIVIENDA
-DE INTERÉS SOCIAL$841
-POPULAR$1,256
-MEDIA$14,067
-RESIDENCIAL$23,387
-RESIDENCIAL ALTO Y$39,899
-CAMPESTRE
+(REFORMADO EN SUS TARIFAS, G.G. 31 DE DICIEMBRE DE 2018)
+TIPO DE VIVIENDAMONTO DE APORTACIÓN POR VIVIENDA
+DE INTERÉS SOCIAL$891
+POPULAR$1,332
+MEDIA$14,911
+RESIDENCIAL$24,791
+RESIDENCIAL ALTO Y CAMPESTRE$42,293
 (REFORMADO, G.G. 19 DE DICIEMBRE DE 2012)
 Artículo 216 F.- Estas Aportaciones para Obras de Impacto Vial, deberán pagarse en efectivo, debiendo enterarlas mediante declaración en la forma oficial aprobada, en cualquiera de los siguientes supuestos:
 I. En el caso de obra nueva, dentro de los 10 días posteriores a la expedición de la primera licencia o permiso de construcción que se emita con relación a la obra objeto del dictamen de incorporación e impacto vial.

@@ -9,8 +9,10 @@ B). Cuando el Estado se clasifique en un nivel de endeudamiento en observación,
 II. En su caso, el remanente para:
 a) Inversión pública productiva, a través de un fondo que se constituya para tal efecto, con el fin de que los recursos correspondientes se ejerzan a más tardar en el ejercicio inmediato siguiente.
 b) La creación de un fondo cuyo objetivo sea compensar la caída de ingresos de libre disposición de ejercicios subsecuentes.
-(ADICIONADO, G.G. 15 DE DICIEMBRE DE 2017)
-Cuando el Estado se clasifique en un nivel de endeudamiento sostenible de acuerdo al Sistema de Alertas, podrá utilizar hasta un 5 por ciento, de los recursos a que se refiere el párrafo anterior, para cubrir el gasto corriente.
+(ADICIONADO, G.G. 31 DE DICIEMBRE DE 2018)
+Los ingresos excedentes derivados de ingresos de libre disposición del Estado podrán destinarse a los rubros mencionados en el presente artículo, sin limitación alguna, siempre y cuando el Estado se clasifique en un nivel de endeudamiento sostenible de acuerdo al Sistema de Alertas.
+(REFORMADO, G.G. 31 DE DICIEMBRE DE 2018)
+Cuando el Estado se clasifique en un nivel de endeudamiento sostenible de acuerdo al Sistema de Alertas, podrá utilizar hasta un 5 por ciento, de los recursos a que se refiere el presente artículo, para cubrir el gasto corriente.
 (ADICIONADO, G.G. 15 DE DICIEMBRE DE 2017)
 Tratándose de ingresos de libre disposición que se encuentren destinados a un fin específico, en términos de las leyes, no resultarán aplicables las disposiciones establecidas en el párrafo segundo de este artículo.
 (REFORMADO, G.G. 16 DE DICIEMBRE DE 2011)
