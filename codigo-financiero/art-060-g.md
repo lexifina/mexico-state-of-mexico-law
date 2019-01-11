@@ -1,3 +1,3 @@
-[N. DE E. PARA CONSULTAR LAS CUOTAS Y TARIFAS, APLICABLES DURANTE EL EJERCICIO FISCAL 2018, VÉASE LA INFORMACIÓN FISCAL EMITIDA POR LA SECRETARÍA DE FINANZAS DEL GOBIERNO DEL ESTADO, Y PUBLICADA EN LA SECCIÓN OCTAVA DE LA G.G. DE 20 DE DICIEMBRE DE 2017, PÁGINA 3.]
+[N. DE E. PARA CONSULTAR LAS CUOTAS Y TARIFAS, APLICABLES DURANTE EL EJERCICIO FISCAL 2019, VÉASE LA INFORMACIÓN FISCAL EMITIDA POR LA SECRETARÍA DE FINANZAS DEL GOBIERNO DEL ESTADO, Y PUBLICADA EN LA SECCIÓN QUINTA DE LA G.G. DE 8 DE ENERO DE 2019, PÁGINA 3.]
 (ACTUALIZADO EN SUS CUOTAS Y TARIFAS, G.G. 1 DE ENERO DE 2014)
 Artículo 60 G.- Tratándose de aeronaves nuevas, el impuesto será la cantidad que resulte de multiplicar el peso máximo, incluyendo la capacidad de carga de la aeronave, expresado en toneladas, por la cantidad $10,626.39 para aeronaves de pistón, turbohélice y helicópteros, y por la cantidad de $11,445.93 para aeronaves de reacción.
