@@ -57,5 +57,7 @@ e) La integración de acervos de información técnica y científica sobre fenó
 f) El fortalecimiento y desarrollo de programas educativos y de difusión en materia de protección civil, dirigidos a la población en general, que permita conocer las acciones a seguir, durante el eminente embate o presencia de un agente perturbador, en las fases sustantivas de protección civil: prevención, auxilio y recuperación.
 (ADICIONADA, G.G. 19 DE DICIEMBRE DE 2012)
 XXIV. Suscribir convenios de coordinación para implementar políticas, lineamientos y acciones entre la federación, las entidades federativas, los municipios, el Gobierno del Distrito Federal y sus Delegaciones, en uso de las atribuciones conferidas en la fracción I de éste mismo artículo;
-(ADICIONADA, G.G. 19 DE DICIEMBRE DE 2012)
-XXV. Las demás que le confieren este Libro y las demás disposiciones legales aplicables.
+(ADICIONADA, G.G. 12 DE JUNIO DE 2019)
+XXV. Instrumentar y operar redes de detección, monitoreo, pronostico y medición de riesgos en coordinación con las dependencias responsables, a través de organismos y dependencias, entidades públicas o privadas especializadas.
+(REFORMADA, G.G. 12 DE JUNIO DE 2019)
+XXVI. Las demás que le confieren este libro y las demás disposiciones legales aplicables.
