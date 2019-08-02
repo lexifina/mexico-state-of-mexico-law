@@ -1,6 +1,6 @@
 Artículo 9.9.- La Secretaría de Desarrollo Agropecuario promoverá:
-(REFORMADA, G.G. 6 DE JUNIO DE 2016)
-I. Proyectos de investigación científica y desarrollo tecnológico en materia agropecuaria, de la acuacultura, apicultura y el agave.
+(REFORMADA, G.G. 1 DE AGOSTO DE 2019)
+I. Proyectos de investigación científica y desarrollo tecnológico en materia agropecuaria, de la acuacultura, apicultura, el agave e investigación de la simbiosis de cultivos para su asociación, cultivos múltiples y rotación.
 (REFORMADA, G.G. 6 DE JUNIO DE 2016)
 II. Que la realización de la investigación y desarrollo tecnológico sea de carácter multidisciplinario e interinstitucional considerando, además, su vinculación con las prioridades que demande el sector agropecuario, de la acuacultura, apicultura y el agave.
 (REFORMADA, G.G. 6 DE JUNIO DE 2016)
