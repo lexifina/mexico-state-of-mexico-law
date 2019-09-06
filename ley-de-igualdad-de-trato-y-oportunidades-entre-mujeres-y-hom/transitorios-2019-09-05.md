@@ -1,0 +1,4 @@
+G.G. 5 DE SEPTIEMBRE DE 2019.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 80.- POR EL QUE SE REFORMA LA FRACCIÓN XI DEL ARTÍCULO 35 DE LA LEY DE ACCESO DE LAS MUJERES A UNA VIDA LIBRE DE VIOLENCIA DEL ESTADO DE MÉXICO Y LA FRACCIÓN XI DEL ARTÍCULO 11 DE LA LEY DE IGUALDAD DE TRATO Y OPORTUNIDADES ENTRE MUJERES Y HOMBRES DEL ESTADO DE MÉXICO".]
+PRIMERO.- Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
+SEGUNDO.- El presente Decreto entrará en vigor al día siguiente al de su publicación en el Periódico Oficial "Gaceta del Gobierno".
