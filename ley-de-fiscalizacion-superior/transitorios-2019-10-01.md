@@ -1,0 +1,7 @@
+G.G. 1 DE OCTUBRE DE 2019.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 85.- POR EL QUE SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DE FISCALIZACIÓN SUPERIOR DEL ESTADO DE MÉXICO Y DE LA LEY ORGÁNICA DEL PODER LEGISLATIVO DEL ESTADO LIBRE Y SOBERANO DE MÉXICO".]
+PRIMERO.- Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
+SEGUNDO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "Gaceta del Gobierno".
+TERCERO.- Los recursos humanos, materiales y presupuestales de la Coordinación de Control y Auditoría Interna del Órgano Superior de Fiscalización del Estado de México se transferirán a la Unidad Técnica de Evaluación y Control de la Comisión de Vigilancia del Órgano Superior de Fiscalización.
+CUARTO.- El Órgano Superior de Fiscalización del Estado de México en un plazo máximo de noventa días naturales, contados a partir de la entrada en vigor del presente, modificará su normatividad interna a efecto de ajustar sus disposiciones con el contenido de este Decreto, siendo sometida a consideración de la Comisión de Vigilancia del Órgano Superior de Fiscalización.
+QUINTO.- El Reglamento de la Unidad Técnica de Evaluación y Control de la Comisión de Vigilancia del Órgano Superior de Fiscalización deberá publicarse a más tardar, en ciento veinte días naturales, después de la publicación de este Decreto.
