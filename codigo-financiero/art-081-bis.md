@@ -1,4 +1,4 @@
-[N. DE E. PARA CONSULTAR LAS CUOTAS Y TARIFAS, APLICABLES DURANTE EL EJERCICIO FISCAL 2019, VÉASE LA INFORMACIÓN FISCAL EMITIDA POR LA SECRETARÍA DE FINANZAS DEL GOBIERNO DEL ESTADO, Y PUBLICADA EN LA SECCIÓN QUINTA DE LA G.G. DE 8 DE ENERO DE 2019, PÁGINAS DE LA 11 A LA 12.]
+[N. DE E. PARA CONSULTAR LAS CUOTAS Y TARIFAS, APLICABLES DURANTE EL EJERCICIO FISCAL 2020, VÉASE LA INFORMACIÓN FISCAL EMITIDA POR LA SECRETARÍA DE FINANZAS DEL GOBIERNO DEL ESTADO, Y PUBLICADA EN LA SECCIÓN PRIMERA DE LA G.G. DE 26 DE DICIEMBRE DE 2019, PÁGINA 206.]
 (ADICIONADO, G.G. 15 DE DICIEMBRE DE 2017)
 Artículo 81 Bis.- Por los estudios y evaluaciones necesarios para la emisión del Dictamen Único de Factibilidad, las y los solicitantes deberán cubrir los conceptos siguientes, tomando en consideración la unidad económica y el tipo de proyecto solicitado:
 I. Por la evaluación de las condiciones de seguridad para usos del suelo que generen impacto regional o urbano.$ 4,629
