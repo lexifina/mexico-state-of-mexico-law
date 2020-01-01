@@ -14,4 +14,6 @@ previo de impacto ambiental.
 D). Por expedición del oficio de $4,385
 prórroga de la vigencia de la
 Resolución.
+(ADICIONADA, G.G. 23 DE DICIEMBRE DE 2019)
+IV. Por la emisión de la evaluación técnica de factibilidad de distribución de agua, así como la de agua, drenaje, alcantarillado y tratamiento de aguas residuales, los desarrolladores, constructores o propietarios de nuevos fraccionamientos, habitacionales, comerciales, industriales, mixtos, o de otro uso pagarán. $27,127.43
 No pagarán los derechos previstos en este artículo los fraccionadores de conjuntos urbanos habitacionales donde se prevé la construcción de vivienda social progresiva, de interés social y popular, así como las microindustrias que estén registradas en el Padrón Nacional de Microindustria.

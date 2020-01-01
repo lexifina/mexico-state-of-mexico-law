@@ -14,8 +14,8 @@ NOVENO.- En la primera sesión del Consejo se deberán expedir las disposiciones
 DÉCIMO.- Para que las dependencias establecidas en el artículo 67 de la Ley de Gobierno Digital del Estado de México y Municipios sean autoridades certificadoras en el Estado, se debe celebrar un convenio de colaboración entre ellas y el Gobierno del Estado, para efecto de darles tal carácter.
 DÉCIMO PRIMERO.- El RETyS deberá operar en observancia a lo establecido por el presente Decreto en un plazo no mayor a noventa días posteriores a la entrada en vigor del decreto.
 DÉCIMO SEGUNDO.- A partir de la entrada en vigor del presente Decreto, todos los trámites y servicios que prestan las autoridades del Estado podrán ser desahogados de manera electrónica, sin perjuicio de aquellos que ya se realizaban a través de esa vía.
-(F. DE E., G.G. 3 DE FEBRERO DE 2016)
-DÉCIMO TERCERO.- A partir de la entrada en vigor del presente Decreto, queda abrogada la Ley para el Uso de los Medios Electrónicos del Estado de México publicada en el periódico oficial "Gaceta del Gobierno" el tres de septiembre de dos mil diez y se deroga el Libro Décimo Quinto del Código Administrativo del Estado de México publicado en el periódico oficial "Gaceta del Gobierno" el cinco de enero de dos mil seis.
+(REFORMADO, G.G. 23 DE DICIEMBRE DE 2019)
+ARTÍCULO DÉCIMO TERCERO.- A partir de la entrada en vigor del presente Decreto, queda abrogada la Ley para el Uso de los Medios Electrónicos del Estado de México publicada en el Periódico Oficial "Gaceta del Gobierno" el tres de septiembre de dos mil diez, por lo que en todos los ordenamientos jurídicos donde se utilice su referencia, se entenderá a la Ley de Gobierno Digital del Estado de México y Municipios.
 DÉCIMO CUARTO.- Se derogan todas las disposiciones que se opongan al presente Decreto.
 DÉCIMO QUINTO.- Las erogaciones que deriven de la aplicación de este Decreto, deberán estar consideradas en la partida presupuestal que apruebe la Honorable Legislatura del Estado para tal efecto.
 Lo tendrá entendido el Gobernador del Estado, haciendo que se publique y se cumpla.

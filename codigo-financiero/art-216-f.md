@@ -1,10 +1,12 @@
-(REFORMADO EN SUS TARIFAS, G.G. 31 DE DICIEMBRE DE 2018)
-TIPO DE VIVIENDAMONTO DE APORTACIÓN POR VIVIENDA
-DE INTERÉS SOCIAL$891
-POPULAR$1,332
-MEDIA$14,911
-RESIDENCIAL$24,791
-RESIDENCIAL ALTO Y CAMPESTRE$42,293
+(REFORMADA EN SUS TARIFAS, G.G. 23 DE DICIEMBRE DE 2019)
+TIPO DE VIVIENDAMONTO DE
+APORTACIÓN
+POR VIVIENDA
+DE INTERÉS SOCIAL$945
+POPULAR$1,412
+MEDIA$15,806
+RESIDENCIAL$26,278
+RESIDENCIAL ALTO Y CAMPESTRE$44,831
 (REFORMADO, G.G. 19 DE DICIEMBRE DE 2012)
 Artículo 216 F.- Estas Aportaciones para Obras de Impacto Vial, deberán pagarse en efectivo, debiendo enterarlas mediante declaración en la forma oficial aprobada, en cualquiera de los siguientes supuestos:
 I. En el caso de obra nueva, dentro de los 10 días posteriores a la expedición de la primera licencia o permiso de construcción que se emita con relación a la obra objeto del dictamen de incorporación e impacto vial.
@@ -23,8 +25,8 @@ El Comité de Control y Vigilancia de las Aportaciones para Obras de Impacto Via
 I. Un representante del Poder Legislativo.
 II. Un representante de la Secretaría de Comunicaciones.
 III. Un representante de la Secretaría de Finanzas.
-(REFORMADA, G.G. 2 DE DICIEMBRE DE 2013)
-IV. Dos representantes de los Municipios de la entidad, que serán elegidos anualmente en el seno del Instituto Hacendario del Estado de México, en Sesión de su Consejo Directivo, utilizando el procedimiento de insaculación, debiendo ser Municipios en los cuales se genere la aportación.
+(REFORMADA, G.G. 23 DE DICIEMBRE DE 2019)
+IV. Dos representantes de los Municipios de la entidad, que serán elegidos anualmente en el seno del Instituto Hacendario, en Sesión de su Consejo Directivo, utilizando el procedimiento de insaculación, debiendo ser municipios en los cuales se genere la aportación.
 Este Comité será presidido por el representante de la Secretaría de Comunicaciones y tendrá, entre otras funciones, las siguientes:
 I. Dar seguimiento al ingreso que se obtenga por estas aportaciones.
 II. Vigilar el comportamiento de estas aportaciones de impacto vial y sus repercusiones y resultados.

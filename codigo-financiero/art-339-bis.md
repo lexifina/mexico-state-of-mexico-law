@@ -18,10 +18,10 @@ VII. El Subsecretario de Planeación y Presupuesto de la Secretaría de Finanzas
 VIII. El Contador General Gubernamental, quien será el Secretario Técnico y tendrá derecho a voz pero no a voto.
 (REFORMADA, G.G. 11 DE OCTUBRE DE 2016)
 IX. Un representante de los organismos autónomos, que será electo por los demás miembros del Consejo.
-(ADICIONADA, G.G. 11 DE OCTUBRE DE 2016)
-X. El Vocal Ejecutivo del Instituto Hacendario del Estado de México.
-(ADICIONADA, G.G. 11 DE OCTUBRE DE 2016)
-XI. Los municipios representantes ante el Consejo Directivo del Instituto Hacendario del Estado de México, en su modalidad de Comisión Permanente.
+(REFORMADA, G.G. 23 DE DICIEMBRE DE 2019)
+X. El Vocal Ejecutivo del Instituto Hacendario.
+(REFORMADA, G.G. 23 DE DICIEMBRE DE 2019)
+XI. Los municipios representantes ante el Consejo Directivo del Instituto Hacendario, en su modalidad de Comisión Permanente, y
 (ADICIONADA, G.G. 11 DE OCTUBRE DE 2016)
 XII. El Presidente del Colegio de Contadores del Valle de Toluca.
 (REFORMADO, G.G. 16 DE DICIEMBRE DE 2011)
