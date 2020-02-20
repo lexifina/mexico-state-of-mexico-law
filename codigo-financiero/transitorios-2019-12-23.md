@@ -12,7 +12,8 @@ Conforme a la fracción IV del artículo 115 de la Constitución Política de lo
 Aquellos municipios que decidan no suscribir el convenio en cita, dejarán de percibir los recursos correspondientes a las participaciones de los ingresos ministrados por el Gobierno Estatal a que se refiere el párrafo anterior.
 De igual forma, los municipios que habiendo firmado algún convenio para la administración y recaudación de contribuciones, aprovechamientos e ingresos propios, decidan darlo por terminado en el transcurso del ejercicio fiscal correspondiente, dejarán de percibir el porcentaje extra de las participaciones de origen estatal a que se refiere el presente artículo a partir del mes inmediato posterior.
 SEXTO.- La reforma al artículo 115 de este Código entrará en vigor a partir del día 01 de julio del año 2020.
-Durante el periodo del 01 de enero al 31 de marzo del 2020, para determinar el Impuesto Sobre Adquisición de Inmuebles y otras Operaciones Traslativas de Dominio de Inmuebles, se utilizará la siguiente tabla:
+(F. DE E., G.G. 20 DE FEBRERO DE 2020)
+Durante el periodo del 01 de enero al 30 de junio del 2020, para determinar el Impuesto Sobre Adquisición de Inmuebles y otras Operaciones Traslativas de Dominio de Inmuebles, se utilizará la siguiente tabla:
 TARIFA
 BASE GRAVABLE
 RANGOLÍMITELÍMITECUOTA FIJAFACTOR
