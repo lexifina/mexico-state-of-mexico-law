@@ -1,6 +1,5 @@
 [N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
 LEY DE ACCESO DE LAS MUJERES A UNA VIDA LIBRE DE VIOLENCIA DEL ESTADO DE MÉXICO
-[N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN LA GACETA DEL GOBIERNO DE 23 DE OCTUBRE DE 2019.]
 Ley publicada en la Sección Sexta de la Gaceta del Gobierno del Estado de México, el jueves 20 de noviembre de 2008.
 ENRIQUE PEÑA NIETO, Gobernador Constitucional del Estado Libre y Soberano de México, a sus habitantes sabed:
 Que la Legislatura del Estado, ha tenido a bien aprobar lo siguiente:
