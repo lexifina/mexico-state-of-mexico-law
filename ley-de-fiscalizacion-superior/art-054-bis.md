@@ -1,0 +1,4 @@
+(ADICIONADO, G.G. 27 DE JULIO DE 2020)
+Artículo 54 Bis.- Con relación a las recomendaciones, el proceso de su atención se desarrollará de la siguiente manera:
+I. El Órgano Superior en las reuniones de resultados preliminares y finales con las entidades fiscalizadas a través de sus representantes o enlaces suscribirán conjuntamente con el personal de las áreas auditoras correspondientes, las actas en las que consten los términos de las recomendaciones que, en su caso, sean acordadas y los mecanismos para su atención, lo anterior, sin perjuicio de que el Órgano Superior podrá emitir recomendaciones en los casos en que no logre acuerdos con las entidades fiscalizadas; y
+II. La información, documentación o consideraciones aportadas por las entidades fiscalizadas para atender las recomendaciones en los plazos convenidos, deberán precisar las mejoras realizadas y las acciones emprendidas. En caso contrario, deberán justificar su improcedencia.
