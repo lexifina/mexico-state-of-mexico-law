@@ -6,7 +6,8 @@ II. Coadyuvar con el Gobierno del Estado en la realización y actualización del
 III. Participar en coordinación con la Federación y el Estado en la zonificación forestal comprendiendo las áreas forestales permanentes de su ámbito territorial;
 IV. Celebrar acuerdos y convenios de coordinación, cooperación y concertación con la Federación y el Estado en materia forestal;
 V. Diseñar, desarrollar y aplicar incentivos para promover el desarrollo forestal de conformidad con el presente Libro y lineamientos de la política forestal del país en coordinación con las organizaciones productivas de poseedores y propietarios forestales locales o regionales;
-VI. Participar en la planeación y ejecución de la reforestación, forestación, restauración de suelos y conservación de los bienes y servicios ambientales forestales dentro de su ámbito territorial de competencia;
+(REFORMADA, G.G. 20 DE AGOSTO DE 2020)
+VI. Participar en la planeación y ejecución de la reforestación, forestación, restauración de suelos y conservación de los bienes y servicios ambientales forestales dentro de su ámbito territorial de competencia; así como realizar campañas destinadas a la concientización sobre la importancia de las acciones señaladas en la presente fracción;
 VII. Llevar a cabo en coordinación con el Gobierno de la Entidad acciones de saneamiento en los ecosistemas forestales dentro de su ámbito de competencia;
 VIII. Promover la construcción y mantenimiento de la infraestructura en las áreas forestales del Municipio;
 IX. Promover la participación de organismos públicos, privados y no gubernamentales en proyectos de apoyo directo al desarrollo forestal sostenible y en proyectos alternativos para el aprovechamiento sostenible de los recursos asociados al sector forestal;
