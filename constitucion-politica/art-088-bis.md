@@ -7,7 +7,8 @@ b) Un Municipio y otro;
 c) Uno o más Municipios y el Poder Ejecutivo o Legislativo del Estado;
 d) El Poder Ejecutivo y el Poder Legislativo del Estado.
 III. Conocer y resolver las acciones de inconstitucionalidad planteadas en contra de leyes, reglamentos estatales o municipales, bandos municipales o decretos de carácter general por considerarse contrarios a esta Constitución, y que sean promovidos dentro de los 45 días naturales siguientes a la fecha de publicación de la norma en el medio oficial correspondiente, por:
-a) El Gobernador del Estado;
+(REFORMADO, G.G. 24 DE SEPTIEMBRE DE 2020)
+a) La Gobernadora o el Gobernador del Estado;
 b) Cuando menos el treinta y tres por ciento de los miembros de la Legislatura;
 c) El equivalente al treinta y tres por ciento de los integrantes de un Ayuntamiento del Estado;
 (REFORMADO, G.G. 29 DE MARZO DE 2011)

@@ -1,11 +1,20 @@
+(REFORMADO PRIMER PÁRRAFO, G.G. 24 DE SEPTIEMBRE DE 2020)
+Artículo 83 Ter.- La o el Fiscal General durará en su cargo nueve años y será designado y removido conforme al siguiente procedimiento:
+(REFORMADO, G.G. 24 DE SEPTIEMBRE DE 2020)
+A partir de la ausencia definitiva de la o del Fiscal General, la Legislatura contará con un plazo improrrogable de veinte días naturales para integrar y enviar al Ejecutivo una lista de hasta diez candidatas y candidatos al cargo, que surgirá del dictamen que emita la Legislatura de acuerdo al procedimiento que se establezca en la Ley, la cual deberá ser aprobada por las dos terceras partes de los miembros presentes en el Pleno de la Legislatura del Estado.
 (ADICIONADO, G.G. 28 DE JULIO DE 2016)
-Artículo 83 Ter.- El Fiscal General durará en su cargo nueve años y será designado y removido conforme al siguiente procedimiento:
-A partir de la ausencia definitiva del Fiscal General, la Legislatura contará con un plazo improrrogable de veinte días naturales para integrar y enviar al Ejecutivo una lista de hasta diez candidatos al cargo, que surgirá del dictamen que emita la Legislatura de acuerdo al procedimiento que se establezca en la Ley, la cual deberá ser aprobada por las dos terceras partes de los miembros presentes en el Pleno de la Legislatura del Estado.
 Recibida la lista a que se refiere el párrafo anterior, dentro de los diez días siguientes el Ejecutivo formulará una terna y la enviará a la consideración de la Legislatura.
-Si el Ejecutivo no recibe la lista en el plazo antes señalado, enviará libremente a la Legislatura una terna y designará provisionalmente al Fiscal General, quien ejercerá sus funciones hasta en tanto se realice la designación definitiva conforme a lo establecido en este artículo. En este caso, el Fiscal General designado podrá formar parte de la terna.
-La Legislatura, con base en la terna y previa comparecencia de las personas propuestas, designará al Fiscal General con el voto de las dos terceras partes de los miembros presentes dentro del plazo de diez días.
-En caso que el Ejecutivo no envíe la terna a que se refiere el párrafo anterior, la Legislatura tendrá diez días para designar al Fiscal General de entre los candidatos de la lista a que se refiere este artículo.
-Si la Legislatura no hace la designación en los plazos que establecen los párrafos anteriores, el Ejecutivo designará al Fiscal General de entre los candidatos que integren la lista o, en su caso, la terna respectiva.
-El Fiscal General presentará anualmente a los Poderes Legislativo y Ejecutivo del Estado un informe de actividades y comparecerá ante la Legislatura del Estado cuando se le cite a rendir cuentas o a informar sobre su gestión.
-El Fiscal General presentará de manera directa a la Legislatura su proyecto de presupuesto, para su incorporación al Presupuesto de Egresos de cada Ejercicio Fiscal, el cual no podrá ser reducido respecto del autorizado para el ejercicio anterior.
-El Fiscal General y sus agentes serán responsables de toda falta, omisión o violación a la ley en que incurran con motivo de sus funciones.
+(REFORMADO, G.G. 24 DE SEPTIEMBRE DE 2020)
+Si el Ejecutivo no recibe la lista en el plazo antes señalado, enviará libremente a la Legislatura una terna y designará provisionalmente a la o el Fiscal General, quien ejercerá sus funciones hasta en tanto se realice la designación definitiva conforme a lo establecido en este artículo. En este caso, la o el Fiscal General designado podrá formar parte de la terna.
+(REFORMADO, G.G. 24 DE SEPTIEMBRE DE 2020)
+La Legislatura, con base en la terna y previa comparecencia de las personas propuestas, designará a la o el Fiscal General con el voto de las dos terceras partes de los miembros presentes dentro del plazo de diez días.
+(REFORMADO, G.G. 24 DE SEPTIEMBRE DE 2020)
+En caso de que el Ejecutivo no envíe la terna a que se refiere el párrafo anterior, la Legislatura tendrá diez días para designar a la o el Fiscal General de entre las candidatas y candidatos de la lista a que se refiere este artículo.
+(REFORMADO, G.G. 24 DE SEPTIEMBRE DE 2020)
+Si la Legislatura no hace la designación en los plazos que establecen los párrafos anteriores, el Ejecutivo designará a la o el Fiscal General de entre las candidatas y candidatos que integren la lista o, en su caso, la terna respectiva.
+(REFORMADO, G.G. 24 DE SEPTIEMBRE DE 2020)
+La o el Fiscal General presentará anualmente a los Poderes Legislativo y Ejecutivo del Estado un informe de actividades y comparecerá ante la Legislatura del Estado cuando se le cite a rendir cuentas o a informar sobre su gestión.
+(REFORMADO, G.G. 24 DE SEPTIEMBRE DE 2020)
+La o el Fiscal General presentará de manera directa a la Legislatura su proyecto de presupuesto, para su incorporación al Presupuesto de Egresos de cada Ejercicio Fiscal, el cual no podrá ser reducido respecto del autorizado para el ejercicio anterior.
+(REFORMADO, G.G. 24 DE SEPTIEMBRE DE 2020)
+La o el Fiscal General y sus agentes serán responsables de toda falta, omisión o violación a la ley en que incurran con motivo de sus funciones.

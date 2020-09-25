@@ -1,0 +1,7 @@
+(ADICIONADO, G.G. 24 DE SEPTIEMBRE DE 2020)
+Artículo 473 Quater. En los procedimientos relacionados con violencia política contra las mujeres en razón de género, la Secretaría Ejecutiva del Instituto ordenará en forma sucesiva iniciar el procedimiento, así como resolver sobre las medidas cautelares y de protección que fueren necesarias. Cuando las medidas de protección sean competencia de otra autoridad, la Secretaría Ejecutiva del Instituto dará vista de inmediato para que proceda a otorgarlas conforme a sus facultades y competencias.
+Cuando la conducta infractora sea del conocimiento de las autoridades electorales administrativas distritales o municipales, de inmediato la remitirán, a la Secretaría Ejecutiva del Instituto para que ordene iniciar el procedimiento correspondiente.
+Cuando las denuncias presentadas sean en contra de algún servidor o servidora pública, la Secretaría Ejecutiva del Instituto, dará vista de las actuaciones, así como de su resolución, a las autoridades competentes en materia de responsabilidades administrativas, para que en su caso apliquen las sanciones que correspondan en términos de la Ley de Responsabilidades Administrativas del Estado de México y Municipios.
+Para la resolución de las quejas y denuncias relativas a violencia política contra las mujeres en razón de género, se seguirá el procedimiento especial sancionador previsto en el Capítulo Cuarto del presente Título.
+CAPÍTULO TERCERO
+Del procedimiento sancionador ordinario

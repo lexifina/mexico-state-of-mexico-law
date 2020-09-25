@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 24 DE SEPTIEMBRE DE 2020)
+Artículo 201 Ter. La Unidad Técnica para Atender la Violencia Política contra las Mujeres es el área del Instituto Electoral cuya titularidad recaerá en la persona que designe el Consejo General a propuesta de quien ocupe la Secretaría Ejecutiva. Su función principal será de apoyo, asistencia y asesoría a las precandidatas, candidatas, aspirantes, militantes de los partidos políticos, servidoras públicas, periodistas, defensoras de derechos humanos o similares que manifiesten ser objeto de violencia política en razón de género.
