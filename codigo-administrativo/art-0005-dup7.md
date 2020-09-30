@@ -1,2 +1,2 @@
-(ADICIONADO, G.G. 20 DE SEPTIEMBRE DE 2018)
-Artículo 5.6. Bis.- El uso, aprovechamiento y rehabilitación de espacios públicos en desuso y de bajo puentes, se sujetarán a lo dispuesto en el presente Código, en la Ley Orgánica de la Administración Pública del Estado de México, en la Ley de Bienes del Estado de México y de sus Municipios, en los Reglamentos respectivos, reglas de carácter general y en los lineamientos que para tal efecto emita la Secretaría de Comunicaciones.
+(REFORMADO, G.G. 29 DE SEPTIEMBRE DE 2020)
+Artículo 5.6. Bis.- El uso, aprovechamiento y rehabilitación de espacios públicos en desuso y de bajo puentes, se sujetarán a lo dispuesto en el presente Código, en la Ley Orgánica de la Administración Pública del Estado de México, en la Ley de Bienes del Estado de México y de sus Municipios, en los Reglamentos respectivos, reglas de carácter general y en los lineamientos que para tal efecto emita la Secretaría de Movilidad.

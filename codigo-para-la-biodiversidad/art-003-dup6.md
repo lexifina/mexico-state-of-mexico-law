@@ -12,7 +12,7 @@ V. Planeación estratégica: Proceso que orienta a las dependencias, organismos,
 VI. Planeación operativa: Instrumento de los planes que ordena y vincula cronológica, espacial, cuantitativa y técnicamente las acciones o actividades y los recursos necesarios para alcanzar una meta que contribuirá a lograr los objetivos de los planes de desarrollo.
 (REFORMADA, G.G. 24 DE ENERO DE 2014)
 VII. Probosque: Protectora de Bosques del Estado de México, organismo público descentralizado.
-(REFORMADA, G.G. 24 DE ENERO DE 2014)
-VIII. Secretaría: La Secretaría del Medio Ambiente.
+(REFORMADA, G.G. 29 DE SEPTIEMBRE DE 2020)
+VIII. Secretaría: a la Secretaría del Campo.
 (REFORMADA, G.G. 24 DE ENERO DE 2014)
 IX. Veda forestal: Restricción total o parcial del aprovechamiento de recursos forestales en una superficie o para una especie determinada mediante decreto que expida el titular del Ejecutivo Estatal.

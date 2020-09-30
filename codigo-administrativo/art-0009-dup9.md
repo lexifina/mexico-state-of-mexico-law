@@ -1,4 +1,5 @@
-Artículo 9.9.- La Secretaría de Desarrollo Agropecuario promoverá:
+(REFORMADO PRIMER PÁRRAFO, G.G. 29 DE SEPTIEMBRE DE 2020)
+Artículo 9.9.- La Secretaría del Campo promoverá:
 (REFORMADA, G.G. 1 DE AGOSTO DE 2019)
 I. Proyectos de investigación científica y desarrollo tecnológico en materia agropecuaria, de la acuacultura, apicultura, el agave e investigación de la simbiosis de cultivos para su asociación, cultivos múltiples y rotación.
 (REFORMADA, G.G. 6 DE JUNIO DE 2016)

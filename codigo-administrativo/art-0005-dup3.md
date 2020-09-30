@@ -48,7 +48,8 @@ XXXIX Bis. Rehabilitación: A la transformación de espacios públicos urbanos, 
 XL. Relotificación: Al acto por el cual a dos o más lotes o áreas privativas, según corresponda, se le modifican las dimensiones o las ubicaciones originalmente establecidas en la autorización del conjunto urbano, subdivisión o condominio, sin que se incremente el área vendible ni el número de viviendas o lotes.
 XLI. Reservas: A las áreas urbanizables previstas en los planes de desarrollo urbano para el crecimiento de un centro de población.
 XLII. Resiliencia: A la capacidad de un sistema, comunidad o sociedad potencialmente expuesta a un peligro para resistir, asimilar, adaptarse y recuperarse de sus efectos en un corto plazo y de manera eficiente, a través de la preservación y restauración de sus estructuras básicas y funcionales, para lograr mejorar su protección futura y las medidas de reducción de riesgos.
-XLIII. Secretaría: A la Secretaría de Desarrollo Urbano y Metropolitano.
+(REFORMADA, G.G. 29 DE SEPTIEMBRE DE 2020)
+XLIII. Secretaría: A la Secretaría de Desarrollo Urbano y Obra.
 XLIV. Sistema Estatal: Al Sistema Estatal de Información del Desarrollo Urbano.
 XLV. Subdivisión: Al acto por el que se fracciona un predio en lotes, con el fin de que éstos constituyan unidades de propiedad independientes.
 XLVI. Usos: A los fines particulares a que podrán destinarse determinadas áreas, predios o lotes.

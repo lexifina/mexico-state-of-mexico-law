@@ -1,10 +1,11 @@
 (REFORMADO, G.G. 18 DE DICIEMBRE DE 2008)
 Artículo 216-K.- El fideicomiso constituido al efecto contará con un Comité Técnico, que deberá estar integrado con un representante de:
-I. La Secretaría de Desarrollo Agropecuario;
+(REFORMADA, G.G. 29 DE SEPTIEMBRE DE 2020)
+I. La Secretaría del Campo;
 II. La Secretaría de Finanzas;
 III. La Secretaría del Medio Ambiente;
-(REFORMADA, G.G. 15 DE DICIEMBRE DE 2017)
-IV. La Secretaría de Obra Pública;
+(REFORMADA, G.G. 29 DE SEPTIEMBRE DE 2020)
+IV. La Secretaría de Desarrollo Urbano y Obra;
 V. El organismo público descentralizado de carácter estatal denominado Protectora de Bosques del Estado de México;
 VI. El organismo público descentralizado de carácter estatal denominado Comisión del Agua del Estado de México;
 VII. Los organismos públicos descentralizados municipales prestadores de los servicios de agua potable, alcantarillado y saneamiento;

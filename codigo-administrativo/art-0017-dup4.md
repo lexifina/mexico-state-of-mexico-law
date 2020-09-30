@@ -1,10 +1,10 @@
 (ADICIONADO, G.G. 31 DE MARZO DE 2011)
 Artículo 17.4.- Para efectos del presente Libro se entenderá por:
-(REFORMADA, G.G. 13 DE SEPTIEMBRE DE 2017)
-I. Derecho de Vía.- A la franja de terreno de anchura variable, determinada en las normas técnicas que emita la Secretaría de Comunicaciones que se requiere para la construcción, conservación, rehabilitación, ampliación, protección y, en general, para el uso adecuado de la infraestructura vial primaria;
+(REFORMADA, G.G. 29 DE SEPTIEMBRE DE 2020)
+I. Derecho de Vía.- A la franja de terreno de anchura variable, determinada en las normas técnicas que emita la Secretaría de Movilidad, que se requiere para la construcción, conservación, rehabilitación, ampliación, protección y, en general, para el uso adecuado de la infraestructura vial primaria;
 II. Carril Confinado.- Es el carril en la infraestructura vial destinado para uso exclusivo de los vehículos que operan en los sistemas de transporte masivo o de alta capacidad;
-(REFORMADA [N. DE E. REPUBLICADA], G.G. 20 DE SEPTIEMBRE DE 2018)
-III. Evaluación Técnica de Factibilidad de Incorporación e Impacto Vial. A la resolución técnica de la Secretaría de Comunicaciones, que determina la factibilidad de incorporar a la infraestructura vial o de cuota, el flujo vehicular y peatonal previsto, como consecuencia de la construcción, ampliación, modernización u operación de edificaciones o instalaciones de impacto urbano, así como las obras y acciones que, en su caso, deben llevarse a cabo para mitigar su efecto;
+(REFORMADA, G.G. 29 DE SEPTIEMBRE DE 2020)
+III. Evaluación Técnica de Factibilidad de Incorporación e Impacto Vial. A la resolución técnica de la Secretaría de Movilidad, que determina la factibilidad de incorporar a la infraestructura vial o de cuota, el flujo vehicular y peatonal previsto, como consecuencia de la construcción, ampliación, modernización u operación de edificaciones o instalaciones de impacto urbano, así como las obras y acciones que, en su caso, deben llevarse a cabo para mitigar su efecto;
 IV. Estación de Transferencia Modal.- Instalaciones con equipo tecnológico donde converge el transporte de alta capacidad con otro u otros medios de transporte;
 (REFORMADA, G.G. 20 DE SEPTIEMBRE DE 2018)
 IV. Bis. Espacio público en desuso. Parte de un bien inmueble público que no está siendo aprovechado;
@@ -21,8 +21,8 @@ VI. Publicidad Exterior.- Toda forma de difusión de mensajes mediante el uso de
 VI Bis. Responsable de un Inmueble.- Persona física o jurídica colectiva que tenga la propiedad, posesión, administración, disposición, uso o disfrute de un bien inmueble y permita la instalación de un anuncio con o sin estructura en su interior, dentro del derecho de vía; quien será responsable solidario en los términos del capítulo tercero de este Libro;
 (ADICIONADA, G.G. 22 DE ENERO DE 2014)
 VI Ter. Anunciante.- Persona física o jurídica colectiva que difunda o publicite productos, bienes, servicios o actividades, haciendo uso de cualquier elemento que corresponda a la publicidad exterior que se encuentre instalada dentro del derecho de vía;
-(REFORMADA, G.G. 13 DE SEPTIEMBRE DE 2017)
-VII. Secretaría.- A la Secretaría de Comunicaciones;
+(REFORMADA, G.G. 29 DE SEPTIEMBRE DE 2020)
+VII. Secretaría.- A la Secretaría de Movilidad;
 (ADICIONADA, G.G. 22 DE FEBRERO DE 2013)
 VII Bis. Sistema Teleférico.- Conjunto de cables, sistema de apoyos, anclajes, sistema motriz y eléctrico que requiere el transporte teleférico;
 VIII. Transporte Masivo o de Alta Capacidad.- Al que se presta en vías específicas y/o confinadas, con equipos electrónicos de recaudo y despacho centralizado, con rodamiento técnico especializado y/o con equipo vehicular capaz de transportar a más de cien personas a la vez; incluyendo los accesos, vestíbulos, líneas de conducción, andenes, trenes, autobuses de alta capacidad, equipos electromecánicos, vías, carril confinado, talleres, depósitos de vehículos, locales técnicos, sistemas electrónicos de recaudo y despacho y demás construcciones e instalaciones destinadas al servicio público de transporte de alta capacidad;
@@ -30,8 +30,8 @@ VIII. Transporte Masivo o de Alta Capacidad.- Al que se presta en vías específ
 VIII Bis. Transporte Teleférico.- El que se presta a través de un sistema elevado de elementos estructurales, mecánicos y eléctricos que integran el sistema del teleférico y que por consiguiente no utiliza camino terrestre de rodadura, en la mayor parte de su recorrido;
 (ADICIONADA, G.G. 22 DE FEBRERO DE 2013)
 VIII Ter. Zona de Influencia.- Es la extensión, que en relación al teleférico, se determinará en cada caso, atendiendo a la topografía y a la naturaleza geológica del terreno, a las peculiares instalaciones del teleférico y a las características de utilización pública o privada de la zona afectada; y
-(REFORMADA, G.G. 13 DE SEPTIEMBRE DE 2017)
-IX. Zona de Seguridad.- Al predio lindante con el derecho de vía de anchura variable determinada en las normas técnicas que emita la Secretaría de Comunicaciones, cuya preservación y restricción de uso, son necesarios para evitar riesgos a los usuarios de la infraestructura vial.
+(REFORMADA, G.G. 29 DE SEPTIEMBRE DE 2020)
+IX. Zona de Seguridad.- Al predio lindante con el derecho de vía de anchura variable determinada en las normas técnicas que emita la Secretaría de Movilidad, cuya preservación y restricción de uso, son necesarios para evitar riesgos a los usuarios de la infraestructura vial.
 (ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, G.G. 31 DE MARZO DE 2011)
 CAPITULO SEGUNDO
 De las autoridades y sus atribuciones

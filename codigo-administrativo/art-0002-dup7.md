@@ -4,7 +4,8 @@ El Consejo Interno del Instituto de Salud del Estado de México estará integrad
 I. Un Presidente, quien será la o el Titular de la Secretaría de Salud.
 II. Un Secretario, quien será designado por el Consejo Interno a propuesta de su Presidente.
 III. Un Comisario, quien será el representante de la Secretaría de la Contraloría.
-IV. Ocho vocales que son los representantes de las secretarías de Finanzas, del Trabajo, de Educación, de Desarrollo Urbano y Metropolitano, de Desarrollo Agropecuario, del Medio Ambiente, así como un representante de la Secretaría de Salud del Gobierno Federal y otro de los trabajadores designado por el Comité Ejecutivo Nacional del Sindicato Nacional de Trabajadores de la Secretaría de Salud.
+(REFORMADA, G.G. 29 DE SEPTIEMBRE DE 2020)
+IV. Ocho vocales que son los representantes de las secretarías de Finanzas, del Trabajo, de Educación, de Desarrollo Urbano y Obra, del Campo, del Medio Ambiente, así como un representante de la Secretaría de Salud del Gobierno Federal y otro de los trabajadores designado por el Comité Ejecutivo Nacional del Sindicato Nacional de Trabajadores de la Secretaría de Salud.
 Por cada uno de los integrantes, el Consejo Interno aprobará el nombramiento de un suplente quien será propuesto por el propietario.
 Los miembros del Consejo Interno tendrán derecho a voz y voto en las sesiones que celebren, con excepción del Secretario y Comisario quienes sólo tendrán derecho de voz.
 El desempeño de los miembros del Consejo Interno será honorífico.

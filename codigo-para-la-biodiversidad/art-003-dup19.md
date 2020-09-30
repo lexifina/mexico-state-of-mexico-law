@@ -1,4 +1,4 @@
-Articulo 3.19. El patrimonio de la Protectora de bosques se integra con:
+Artículo 3.19. El patrimonio de la Protectora de bosques se integra con:
 I. Los bienes con los que con los que (sic) cuente;
 II. Los ingresos que obtenga en el ejercicio de sus atribuciones;
 III. Las aportaciones, participaciones, subsidios y apoyos que le otorguen los Gobiernos Federal, Estatal y Municipal;

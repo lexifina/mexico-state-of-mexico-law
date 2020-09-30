@@ -1,7 +1,8 @@
 (REFORMADO [N. DE E. ADICIONADO], G.G. 6 DE AGOSTO DE 2009)
 Artículo 4.3.- Para los efectos del presente libro se entenderá por:
 I. Estado.- El Estado Libre y Soberano de México;
-II. Secretaría.- La Secretaría de Turismo del Estado de México;
+(REFORMADA, G.G. 29 DE SEPTIEMBRE DE 2020)
+II. Secretaría.- La Secretaría de Cultura y Turismo;
 III. Sector.- Todas aquellas entidades públicas, sociales y privadas que intervengan en la prestación de servicios turísticos en el Estado;
 (REFORMADA, G.G. 10 DE NOVIEMBRE DE 2010)
 IV. Turista.- La persona que viaja, trasladándose temporalmente fuera de su residencia habitual, así mismo contrata y/o utiliza cualquiera de los servicios a que se refiere este Libro u otros ordenamientos legales aplicables.

@@ -1,4 +1,5 @@
-Artículo 9.6.- La Secretaría de Desarrollo Agropecuario impulsará:
+(REFORMADO PRIMER PÁRRAFO, G.G. 29 DE SEPTIEMBRE DE 2020)
+Artículo 9.6.- La Secretaría del Campo impulsará:
 I. La identificación e inducción de las oportunidades de producción, preferentemente mediante proyectos integrales, de acuerdo con el potencial productivo y rentabilidad económica de cada zona y procurando la conservación y mejoramiento de los recursos naturales;
 II. La expansión, modernización y tecnificación de la infraestructura y equipo, así como la adopción de procesos y tecnologías que contribuyan al óptimo aprovechamiento de las tierras y recursos hidráulicos disponibles y a elevar la producción y calidad de los productos, para reducir los desequilibrios regionales;
 (REFORMADA, G.G. 6 DE JUNIO DE 2016)

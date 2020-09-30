@@ -23,11 +23,13 @@ El pago de estas aportaciones podrá realizarse a plazos, ya sea diferido o en p
 Los ingresos generados por las aportaciones de mejoras para obras de impacto vial, se depositarán en la cuenta autorizada para tal efecto por la Secretaría.
 El Comité de Control y Vigilancia de las Aportaciones para Obras de Impacto Vial constituido para dar seguimiento a la aplicación de las aportaciones, estará integrado por:
 I. Un representante del Poder Legislativo.
-II. Un representante de la Secretaría de Comunicaciones.
+(REFORMADA, G.G. 29 DE SEPTIEMBRE DE 2020)
+II. Un representante de la Secretaría de Movilidad.
 III. Un representante de la Secretaría de Finanzas.
 (REFORMADA, G.G. 23 DE DICIEMBRE DE 2019)
 IV. Dos representantes de los Municipios de la entidad, que serán elegidos anualmente en el seno del Instituto Hacendario, en Sesión de su Consejo Directivo, utilizando el procedimiento de insaculación, debiendo ser municipios en los cuales se genere la aportación.
-Este Comité será presidido por el representante de la Secretaría de Comunicaciones y tendrá, entre otras funciones, las siguientes:
+(REFORMADO [N. DE E. ESTE PÁRRAFO], G.G. 29 DE SEPTIEMBRE DE 2020)
+Este Comité será presidido por el representante de la Secretaría de Movilidad y tendrá, entre otras funciones, las siguientes:
 I. Dar seguimiento al ingreso que se obtenga por estas aportaciones.
 II. Vigilar el comportamiento de estas aportaciones de impacto vial y sus repercusiones y resultados.
 III. Vigilar que el ingreso que se obtenga por estas aportaciones se destine a la realización de obras para infraestructura vial en el territorio del o los municipios en que se hubieren causado.
