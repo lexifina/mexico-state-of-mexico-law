@@ -1,4 +1,0 @@
-P.O. 22 DE DICIEMBRE DE 2015.
-[N. DE E. TRANSITORIOS DEL "DECRETO QUE REFORMA Y ADICIONA DIVERSOS ARTÍCULOS DE LA LEY DE AGUA POTABLE Y ALCANTARILLADO DEL ESTADO DE NAYARIT".]
-Primero.- El presente decreto entrará en vigor el día siguiente de su publicación en el Periódico Oficial, Órgano del Gobierno del Estado de Nayarit.
-Segundo.- Cuando se haga referencia a la Secretaría de Desarrollo Rural y Medio Ambiente se entenderá por nombradas la Secretaría del Medio Ambiente y la Secretaría de Agricultura, Ganadería, Desarrollo Rural y Pesca, en tanto no entre en vigor el decreto por el cual se fusionan dichas dependencias, de conformidad con lo dispuesto en la Fe de Erratas de fecha 24 de octubre de 2015 al decreto que reforma, deroga y adiciona diversas disposiciones de la Ley Orgánica del Poder Ejecutivo del Estado de Nayarit; publicado en el periódico Oficial con fecha 03 de octubre del año 2015.

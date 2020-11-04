@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 5 DE SEPTIEMBRE DE 2017)
+Artículo 27 Septies.- El Instituto Electoral del Estado de México, el Tribunal Electoral del Estado de México, la Comisión de Derechos Humanos del Estado de México, el Poder Judicial del Estado de México, los gobiernos estatal y municipal, en sus respectivas competencias, tienen la obligación de organizar y dirigir las funciones públicas que garanticen el derecho de las mujeres a una vida libre de violencia política.
