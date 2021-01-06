@@ -1,5 +1,5 @@
-(REFORMADO PRIMER PÁRRAFO, G.G. 7 DE SEPTIEMBRE DE 2016)
-Artículo 79 Bis. El Dictamen Único de Factibilidad, pueden (sic) ser revocado a juicio de la Comisión, por las causas siguientes:
+(REFORMADO PRIMER PÁRRAFO, G.G. 5 DE ENERO DE 2021)
+Artículo 79 Bis. El Dictamen de Giro, pueden ser revocado a juicio del Comité, por las causas siguientes:
 (ADICIONADA, G.G. 10 DE JULIO DE 2015)
 I. Se compruebe que la información proporcionada para su expedición es falsa y/o que alguno de los documentos es apócrifo.
 (F. DE E., G.G. 12 DE AGOSTO DE 2015)

@@ -16,9 +16,11 @@ IX. Inspeccionar y vigilar las zonas forestales, así como los aprovechamientos 
 X. Promover la organización productiva de los poseedores y propietarios forestales en el ámbito municipal, regional y estatal, así como gestionar la asesoría técnica y capacitación necesarias para el mejoramiento de sus procesos productivos;
 XI. Organizar los servicios técnicos y el registro y control de los peritos forestales;
 XII. Adquirir toda clase de bienes y realizar los actos que se requieran para el cumplimiento de su objeto; y
-(REFORMADA [N. DE E. ADICIONADA], G.G. 17 DE SEPTIEMBRE DE 2018)
-XIII. Emitir la evaluación técnica de factibilidad de transformación forestal, para la obtención del Dictamen Único de Factibilidad, derivado del análisis que realice a la documentación presentada y de los comprobantes con los que el interesado acredite la legal procedencia de los productos forestales;
-(REFORMADA, G.G. 17 DE SEPTIEMBRE DE 2018)
-XIV. Vigilar, en coordinación con el Instituto de Verificación Administrativa del Estado de México, en el ámbito de sus respectivas competencias, que los centros de almacenamiento o transformación de materias primas forestales, cumplan con lo establecido en la evaluación técnica de factibilidad de transformación forestal aplicando dentro del ámbito de sus atribuciones, las medidas de seguridad e imponiendo las infracciones que correspondan por su inobservancia; y
+(REFORMADA, G.G. 5 DE ENERO DE 2021)
+XIII. Emitir la evaluación técnica de impacto en materia de transformación forestal que sustente la Evaluación de Impacto Estatal para el funcionamiento de los centros de almacenamiento y de transformación de materias primas forestales, derivado del análisis que realice a la documentación presentada y de los comprobantes con los que el interesado acredite la legal procedencia de los productos forestales;
+(ADICIONADO, G.G. 5 DE ENERO DE 2021)
+Para su emisión, los Solicitantes deberán cumplir con los requisitos establecidos en el Reglamento de la Ley de la Comisión de Impacto Estatal y las disposiciones jurídicas aplicables.
+(REFORMADA, G.G. 5 DE ENERO DE 2021)
+XIV. Vigilar, en coordinación con el Instituto de Verificación Administrativa del Estado de México, en el ámbito de sus respectivas competencias, que los centros de almacenamiento o transformación de materias primas forestales, cumplan con lo establecido en la evaluación técnica de impacto en materia de transformación forestal aplicando dentro del ámbito de sus atribuciones, las medidas de seguridad e imponiendo las infracciones que correspondan por su inobservancia; y
 (REFORMADA, G.G. 24 DE ENERO DE 2014)
 XV. Las demás que le atribuyan las disposiciones legales y los convenios o acuerdos en la materia.

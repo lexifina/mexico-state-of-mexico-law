@@ -1,2 +1,2 @@
-(REFORMADO, G.G. 17 DE SEPTIEMBRE DE 2018)
-Artículo 52 Bis. Para unidades económicas de mediano impacto, la Comisión, en términos de lo dispuesto en su Reglamento Interior, en caso de estimarlo indispensable, podrá simplificar los requisitos para la apertura, construcción, instalación, operación, ampliación o funcionamiento de éstas, con la finalidad de evitar que el costo que generan los requisitos aplicables, sea mayor a la inversión del proyecto económico y no se cause un perjuicio a la o al titular del proyecto.
+(REFORMADO, G.G. 5 DE ENERO DE 2021)
+Artículo 52 Bis. Para unidades económicas de alto y mediano impacto, el Comité, en caso de estimarlo indispensable, podrá simplificar los requisitos con la finalidad de evitar que el costo que generan los requisitos aplicables sea mayor a la inversión del proyecto económico y no se cause un perjuicio a la o al titular del proyecto, siempre y cuando no se contraponga con disposición legal alguna.

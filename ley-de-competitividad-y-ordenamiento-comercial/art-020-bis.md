@@ -1,0 +1,6 @@
+(ADICIONADA CON LOS ARTÍCULOS QUE LA INTEGRAN, G.G. 5 DE ENERO DE 2021)
+SECCIÓN III
+DEL DICTAMEN DE GIRO
+(ADICIONADO, G.G. 5 DE ENERO DE 2021)
+Artículo 20 Bis. El Dictamen de Giro es el documento de carácter permanente emitido por el Comité Municipal de Dictámenes de Giro, sustentado en las evaluaciones técnicas de factibilidad en materias de salubridad local tratándose de venta de bebidas alcohólicas y rastros, cuya finalidad es determinar el funcionamiento de unidades económicas, en términos de esta Ley y las disposiciones jurídicas aplicables de acuerdo con los principios de transparencia y publicidad.
+El Comité a que se refiere el párrafo anterior, estará integrado por las personas titulares de las Direcciones municipales de Desarrollo Económico, Desarrollo Urbano, Ecología, Protección Civil, Salud o sus equivalentes, un representante de las Cámaras Empresariales, así como un representante del Comité Coordinador del Sistema Municipal Anticorrupción y un representante de la Contraloría Municipal. Será presidido por la o el Presidente Municipal o quien éste determine, y tendrá la finalidad de establecer la factibilidad para la operación de las actividades previstas en la presente Ley en términos de las disposiciones jurídicas aplicables.

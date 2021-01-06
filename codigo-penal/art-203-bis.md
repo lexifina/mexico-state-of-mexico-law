@@ -3,8 +3,8 @@ CAPITULO III
 OBSTRUCCION A LA INVERSION
 (REFORMADO PRIMER PÁRRAFO, G.G. 17 DE SEPTIEMBRE DE 2018)
 Artículo 203 Bis.- Incurre en el delito de obstrucción a la inversión el servidor público que desempeñe un empleo, cargo o comisión en alguno de los poderes del Estado, municipios u organismos auxiliares estatales o municipales, que en la tramitación, apertura, instalación, operación, ampliación o funcionamiento de obras, unidades económicas, inversiones o proyectos en el Estado de México, dolosamente:
-(REFORMADA, G.G. 17 DE SEPTIEMBRE DE 2018)
-I. Retrase notoriamente la substanciación de trámites, servicios, actos, procesos o procedimientos que la Ley de Competitividad y Ordenamiento Comercial del Estado de México, la Ley de Fomento Económico para el Estado de México, el Código Administrativo del Estado de México, la Ley que crea la Comisión de Factibilidad del Estado de México, los reglamentos respectivos, así como otras leyes de la materia le obligan a realizar en términos de las disposiciones jurídicas aplicables;
+(REFORMADA, G.G. 5 DE ENERO DE 2021)
+I. Retrase notoriamente la substanciación de trámites, servicios, actos, procesos o procedimientos que la Ley de Competitividad y Ordenamiento Comercial del Estado de México, la Ley de Fomento Económico para el Estado de México, el Código Administrativo del Estado de México, la Ley de la Comisión de Impacto Estatal, los reglamentos respectivos, así como otras leyes de la materia le obligan a realizar en términos de las disposiciones jurídicas aplicables;
 (ADICIONADA, G.G. 7 DE SEPTIEMBRE DE 2016)
 II. Exija o solicite más requisitos de los señalados en las leyes u ordenamientos de la materia, para la substanciación del trámite, servicio, acto, proceso o procedimientos para autorizar una inversión económica.
 (ADICIONADA, G.G. 7 DE SEPTIEMBRE DE 2016)

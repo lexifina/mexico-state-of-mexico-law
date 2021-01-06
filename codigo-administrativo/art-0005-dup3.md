@@ -24,8 +24,8 @@ XXI. Desarrollo Metropolitano: Al proceso de planeación, regulación, gestión,
 XXII. Desarrollo Urbano: Al proceso de planeación y regulación de la conservación, mejoramiento y crecimiento de los centros de población.
 XXIII. Destinos: A los fines públicos a que podrá dedicarse el suelo.
 XXIV. Dictamen de Congruencia: Al acto administrativo en el que se determina la congruencia de un plan municipal de desarrollo urbano o de los parciales que deriven de éste, con las políticas, estrategias y objetivos previstos en el Plan Estatal de Desarrollo Urbano y, en su caso, en el plan regional de desarrollo urbano aplicable y en los parciales de competencia estatal.
-(REFORMADA, G.G. 17 DE SEPTIEMBRE DE 2018)
-XXV. Evaluaciones técnicas de factibilidad de impacto urbano: Al estudio y análisis que precisa las condicionantes técnicas que deberán observarse para prevenir y mitigar los efectos que pudiera ocasionar en la infraestructura y el equipamiento urbano, así como en los servicios públicos previstos para una región o centro de población, del uso y aprovechamiento del suelo que pretenda realizarse en los supuestos establecidos en el artículo 5.35 del presente Libro;
+(REFORMADA, G.G. 5 DE ENERO DE 2021)
+XXV. Evaluaciones técnicas de impacto en materia urbana: Al estudio y análisis que precisa las condicionantes técnicas que deberán observarse para prevenir y mitigar los efectos que pudiera ocasionar en la infraestructura y el equipamiento urbano, así como en los servicios públicos previstos para una región o centro de población, del uso y aprovechamiento del suelo que pretenda realizarse en los supuestos establecidos en el artículo 5.35 del presente Libro;
 XXVI. Fusión: A la unión de dos o más predios o lotes contiguos, con el fin de constituir una unidad de propiedad.
 XXVII. Inmueble: Al terreno con o sin construcciones.
 XXVIII. Instituciones Gubernamentales: A las dependencias, entidades y organismos auxiliares, federales, estatales y municipales.
@@ -35,8 +35,8 @@ XXX. Libro: Al Libro Quinto del Código Administrativo del Estado de México.
 XXXI. Lote: A la fracción de terreno que constituirá una unidad de propiedad, resultante de una autorización de fusión, subdivisión o conjunto urbano.
 XXXII. Movilidad: A la capacidad, facilidad y eficiencia de tránsito o desplazamiento de las personas y bienes en el territorio, priorizando la accesibilidad universal, así como la sustentabilidad de la misma.
 XXXIII. Ordenamiento Territorial de los Asentamientos Humanos: A la política pública que tiene como objeto la ocupación y utilización racional del territorio como base espacial de las estrategias del desarrollo socioeconómico y la preservación ambiental.
-(REFORMADA, G.G. 17 DE SEPTIEMBRE DE 2018)
-XXXIV. Opinión técnica: A la que conforme a su competencia u objeto, emitan las instancias gubernamentales, de carácter federal, estatal o municipal, para determinar, en su caso, la procedencia de la evaluación técnica de factibilidad de impacto urbano;
+(REFORMADA, G.G. 5 DE ENERO DE 2021)
+XXXIV. Opinión técnica: A la que conforme a su competencia u objeto, emitan las instancias gubernamentales, de carácter federal, estatal o municipal, para determinar, en su caso, la procedencia de la evaluación técnica de impacto en materia urbana;
 XXXV. Patrimonio Natural y Cultural: A los sitios, lugares o edificaciones con valor arqueológico, histórico, artístico, ambiental, paisajístico y valores simbólicos socialmente relevantes.
 XXXV Bis. Planeación Estratégica, en un instrumento de gestión de la política urbana y ordenamiento territorial que se plantea como un proceso sistemático y creativo de reflexión y debate ciudadano, gestionado por las autoridades, para establecer un sistema continuo de toma de decisiones para articular políticas económicas, sociales ambientales y espaciales.
 XXXVI. Planes de desarrollo urbano: Al conjunto de disposiciones técnicas y jurídicas que regulan el ordenamiento territorial de los asentamientos humanos y el desarrollo urbano de los centros de población.

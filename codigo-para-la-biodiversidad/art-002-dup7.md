@@ -9,8 +9,8 @@ a) La regulación de las actividades que no sean consideradas como altamente rie
 b) La declaración, administración y recategorización de las áreas naturales protegidas de jurisdicción estatal.
 c) La prevención y el control de la contaminación a la atmósfera generada por aquellas fuentes que no sean de jurisdicción federal.
 d) La regulación del aprovechamiento y uso racional, de la prevención y del control de la contaminación de aguas de jurisdicción estatal.
-(REFORMADO, G.G. 17 DE SEPTIEMBRE DE 2018)
-e) La evaluación técnica de factibilidad de impacto ambiental de los proyectos, obras, acciones y servicios, que se ejecuten o se pretendan ejecutar en el Estado.
+(REFORMADO, G.G. 5 DE ENERO DE 2021)
+e) La evaluación técnica de impacto en materia ambiental de los proyectos, obras, acciones y servicios, que se ejecuten o se pretendan ejecutar en el Estado.
 f) La regulación con criterios ecológicos del aprovechamiento de los minerales o sustancias no reservadas a la Federación que constituyan depósitos de naturaleza semejante a los componentes de los terrenos, tales como rocas o productos de su fragmentación o descomposición que solo puedan utilizarse para la fabricación de materiales para la construcción u ornamentales.
 g) El manejo y disposición final de los residuos sólidos que no sean peligrosos conforme al presente Libro y demás disposiciones aplicables.
 h) La regulación de las zonas estatales que tengan un valor escénico o de paisaje para protegerlas de la contaminación visual.

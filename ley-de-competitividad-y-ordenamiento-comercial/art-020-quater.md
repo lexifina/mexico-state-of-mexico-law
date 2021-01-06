@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 5 DE ENERO DE 2021)
+Artículo 20 Quáter. Si del análisis respectivo, se determina que la documentación no cumple con requisitos de forma, se notificará al solicitante dentro del plazo de diez días hábiles y se le otorgará un plazo de tres días hábiles para que la subsane. Si transcurrido el plazo no se ha dado cumplimiento, se tendrá por concluida la solicitud, informando de manera transparente y fundamentada las motivaciones de la determinación en sentido negativo.
