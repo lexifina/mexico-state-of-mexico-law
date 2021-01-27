@@ -1,0 +1,3 @@
+P.O. 31 DE MARZO DE 2023.
+[N. DE E. TRANSITORIO DEL "DECRETO NO. 221 POR EL QUE SE APRUEBA LA REFORMA AL ARTÍCULO 154 DE LA LEY DEL SISTEMA ESTATAL DE SEGURIDAD CIUDADANA DE BAJA CALIFORNIA".]
+ÚNICO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado

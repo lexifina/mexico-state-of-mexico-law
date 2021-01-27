@@ -1,2 +1,0 @@
-(ADICIONADO, G.G. 15 DE DICIEMBRE DE 2017)
-Artículo 337 Bis.- La contratación de servicios financieros relacionados con la apertura de cuentas bancarias para la recepción, manejo, inversión y pago de recursos públicos, estarán sujetos a lo establecido en este Título y deberán observar los principios de imparcialidad, buena fe, veracidad, honradez, publicidad, transparencia, previsión y eficiencia, para que en todo momento se realicen en condiciones favorables para el Estado.

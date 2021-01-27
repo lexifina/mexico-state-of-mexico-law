@@ -1,2 +1,0 @@
-(ADICIONADO, G.G. 31 DE DICIEMBRE DE 2018)
-Artículo 298 Bis.- Dentro del Presupuesto de Egresos que se apruebe para el ejercicio fiscal, se destinará como mínimo un porcentaje igual o superior al ejercicio inmediato anterior, de los ingresos ordinarios del Estado, para la difusión y desarrollo de la cultura, siempre y cuando así lo permita la disponibilidad presupuestal con la que se cuente y de acuerdo con la determinación que tome la Legislatura.

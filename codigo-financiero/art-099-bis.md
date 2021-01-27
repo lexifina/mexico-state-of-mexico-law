@@ -1,1 +1,0 @@
-Artículo 99 Bis.- (DEROGADO, G.G. 30 DE JUNIO DE 2006)

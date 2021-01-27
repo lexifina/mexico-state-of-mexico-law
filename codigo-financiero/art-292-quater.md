@@ -1,2 +1,0 @@
-(ADICIONADO, G.G. 11 DE OCTUBRE DE 2016)
-Artículo 292 Quáter.- El Presupuesto de Egresos deberá prever recursos para atender a la población afectada y los daños causados a la infraestructura pública estatal o municipal ocasionados por la ocurrencia de desastres naturales, así como para llevar a cabo acciones para prevenir y mitigar su impacto a las finanzas públicas, en los términos, montos y condiciones previstos en la Ley de Disciplina Financiera.

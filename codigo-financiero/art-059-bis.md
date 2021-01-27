@@ -1,1 +1,0 @@
-Artículo 59 Bis.- (DEROGADO, G.G. 28 DE NOVIEMBRE DE 2016)

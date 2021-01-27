@@ -1,6 +1,0 @@
-(ADICIONADO, G.G. 15 DE DICIEMBRE DE 2017)
-Artículo 265-F.- La contratación de seguros de garantía financiera, así como de servicios profesionales, consultorías, asesorías, estudios e investigaciones en relación con créditos, empréstitos, préstamos o financiamientos de cualquier naturaleza, incluyendo la emisión de valores o cualquier otro servicio financiero atenderán a lo dispuesto por este Título.
-(REFORMADO, G.G. 23 DE DICIEMBRE DE 2019)
-Cuando los conceptos a que se refiere el párrafo anterior pretendan ser contratados por organismos públicos descentralizados, en relación con su participación en fideicomisos públicos en los términos del artículo 265 B Bis de este Código, deberán contar previamente con la autorización de la Secretaría.
-Los fideicomisos constituidos de conformidad con el artículo 265 B Bis del Código, en las adquisiciones, enajenaciones, arrendamiento de bienes y contratación de servicios que realicen deberán contar con autorización previa de la Secretaría.
-Los contratos de servicios a que se refiere este artículo atenderán a los principios de imparcialidad, buena fe, veracidad, honradez, publicidad, transparencia, previsión y eficiencia, observando en todo momento que se realicen en condiciones favorables para el Estado.
