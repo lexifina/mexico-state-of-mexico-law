@@ -1,0 +1,1 @@
+Artículo 26-A.- (DEROGADO, G.G. 15 DE DICIEMBRE DE 2017)

@@ -1,0 +1,1 @@
+Artículo 176 Bis.- (DEROGADO, G.G. 30 DE DICIEMBRE DE 2003)

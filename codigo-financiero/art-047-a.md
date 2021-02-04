@@ -1,0 +1,20 @@
+(REFORMADO PRIMER PÁRRAFO, G.G. 26 DE ENERO DE 2021)
+Artículo 47 A.- Las personas físicas y jurídicas colectivas que estén obligadas a determinar el Impuesto sobre Erogaciones por Remuneraciones al Trabajo Personal, deberán dictaminar su determinación y pago por el ejercicio fiscal inmediato anterior, por medio de Contador Público Registrado, cuando en dicho ejercicio fiscal se ubiquen en cualquiera de los supuestos que se mencionan para cada una de ellas, en los términos siguientes:
+(REFORMADA, G.G. 18 DE DICIEMBRE DE 2008)
+I. Las que hayan realizado pagos por concepto de remuneraciones al trabajo personal prestado dentro del territorio del Estado a más de 200 trabajadores en promedio mensual.
+(REFORMADA, G.G. 18 DE DICIEMBRE DE 2008)
+II. Las que hayan realizado pagos por concepto de remuneraciones al trabajo personal prestado dentro del territorio del Estado superiores a $400,000.00 en promedio mensual.
+(REFORMADA, G.G. 18 DE DICIEMBRE DE 2008)
+III. Las que se encuentren obligadas a retener y enterar dicho impuesto en términos del presente Código, que hayan contratado servicios que generen la prestación de trabajo personal dentro del territorio del Estado por más de 200 trabajadores o cuando la base para la determinación de dicha retención haya sido superior a $400,000.00, en promedio mensual.
+IV. (DEROGADA, G.G. 18 DE DICIEMBRE DE 2008)
+V. (DEROGADA, G.G. 18 DE DICIEMBRE DE 2008)
+VI. (DEROGADA, G.G. 18 DE DICIEMBRE DE 2008)
+VII. (DEROGADA, G.G. 18 DE DICIEMBRE DE 2008)
+(REFORMADA, G.G. 18 DE DICIEMBRE DE 2008)
+VIII. Las que se hayan fusionado, por el ejercicio fiscal en que ocurra dicho acto. La persona jurídica colectiva que subsista o que surja con motivo de la fusión, se deberá dictaminar además por el ejercicio fiscal siguiente.
+(REFORMADA, G.G. 18 DE DICIEMBRE DE 2008)
+IX. Las que se hayan escindido, tanto la escindente como las escindidas, por el ejercicio fiscal en que ocurra la escisión y por el siguiente. Lo anterior no será aplicable a la escindente cuando ésta desaparezca con motivo de la escisión, salvo por el ejercicio fiscal en que ocurrió la escisión.
+(REFORMADA, G.G. 18 DE DICIEMBRE DE 2008)
+X. Las que hayan entrado en liquidación, por el ejercicio fiscal en que esto ocurra, así como por el ejercicio fiscal en que la sociedad esté en liquidación.
+(REFORMADO, G.G. 16 DE DICIEMBRE DE 2011)
+Las personas físicas y jurídico colectivas que no estén obligadas a dictaminar la determinación y pago del Impuesto sobre Erogaciones por Remuneraciones al Trabajo Personal conforme a este artículo, podrán optar por dictaminarse respecto del ejercicio fiscal inmediato anterior presentando oportunamente ante la autoridad fiscal competente el aviso de dictamen a que se refiere el primer párrafo del artículo 47 B de este Código, en cuyo caso les serán aplicables las mismas disposiciones fiscales atribuibles a los contribuyentes obligados. No se dará efecto legal alguno al ejercicio de la opción de dictaminarse fuera del plazo establecido en el primer párrafo del artículo 47 B de este Código, ni cuando dicha opción se ejerza después de notificado al contribuyente el inicio del ejercicio de las facultades de comprobación de las autoridades fiscales, respecto del impuesto y el ejercicio fiscal que se pretenda dictaminar, salvo que se trate del supuesto previsto en el numeral 7 del párrafo cuarto de la fracción I del artículo 48 del Código.

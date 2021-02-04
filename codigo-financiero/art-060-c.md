@@ -1,0 +1,4 @@
+(ADICIONADO, G.G. 16 DE DICIEMBRE DE 2011)
+Artículo 60 C.- El factor de actualización aplicable a este impuesto será el resultado de dividir el Índice Nacional de Precios al Consumidor publicado por el Instituto Nacional de Estadística y Geografía, correspondiente al mes de noviembre del año anterior al año en que se causa el impuesto, entre el mismo índice del mes de noviembre del año modelo del vehículo, excepto en el caso de vehículos nuevos, caso en que será I (sic).
+(REFORMADO, G.G. 23 DE DICIEMBRE DE 2019)
+Las cuotas fijas establecidas en el artículo 60 G, se actualizarán el primero de enero de cada año con la variación porcentual anual del Índice Nacional de Precios al Consumidor observada en el mes de noviembre del año inmediato anterior y deberán ser publicadas en el portal electrónico de la Secretaría.

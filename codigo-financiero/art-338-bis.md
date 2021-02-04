@@ -1,0 +1,4 @@
+(REFORMADO PRIMER PÁRRAFO, G.G. 23 DE DICIEMBRE DE 2019)
+Artículo 338 Bis.- Para la devolución de pagos efectuados en forma indebida, duplicados, y/o en demasía; ya sea por mandato de autoridad o a solicitud del contribuyente, se deberá presentar ante la Dirección General de Tesorería por conducto de la autoridad fiscal, el oficio original de autorización en el que se fundamenten los motivos y el importe a devolver, así como copia de la documentación comprobatoria que ampare la procedencia de la devolución.
+(ADICIONADO, G.G. 16 DE DICIEMBRE DE 2011)
+La devolución del pago, se efectuará solamente al titular del mismo, quien deberá presentar además identificación oficial vigente; o bien, a su representante legal, quien deberá acreditarse como tal, única y exclusivamente mediante poder notarial, o resolución judicial, ya que no se realizarán devoluciones a beneficiarios que no acrediten su personalidad jurídica.

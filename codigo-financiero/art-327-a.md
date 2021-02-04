@@ -1,0 +1,18 @@
+(REFORMADO PRIMER PÁRRAFO, G.G. 26 DE ENERO DE 2021)
+Artículo 327-A.- Los titulares de las Dependencias, Entidades Públicas y Organismos Autónomos en el ejercicio de su presupuesto, serán responsables de que se ejecuten con oportunidad, eficiencia, eficacia y honestidad los proyectos previstos en sus respectivos programas presupuestarios y serán los responsables del resultado, evaluación, así como del análisis de la información relativa al desarrollo y grado de avance de los mismos, ya sea que se ejecuten por cuenta propia o a través de terceros. Asimismo, deberán enviar a la Secretaría o la Contraloría, según sea el caso, a través de las Unidades de Información, Planeación, Programación y Evaluación o su equivalente, los resultados obtenidos de la evaluación, el informe del comportamiento del ejercicio presupuestal y el informe de avance programático en forma trimestral, para la revisión, seguimiento y evaluación del desempeño del cumplimiento de los objetivos y metas establecidas en los proyectos aprobados en relación con el presupuesto y ejercicio.
+(ADICIONADO, G.G. 30 DE DICIEMBRE DE 2003)
+En el caso de los municipios, los informes a que se refiere este artículo, se enviarán a la Tesorería.
+(ADICIONADO, G.G. 2 DE DICIEMBRE DE 2013)
+En materia de evaluación del desempeño, son obligaciones de las Dependencias y Entidades Públicas del Ejecutivo Estatal:
+I. Elaborar y proponer anualmente a la Secretaría, los objetivos estratégicos de los programas presupuestarios;
+II. Elaborar y proponer los indicadores de desempeño con enfoque a resultados, de los programas a su cargo conforme a los Lineamientos que emita la Secretaría y demás disposiciones aplicables;
+III. Cumplir con lo establecido en el Programa Anual de Evaluación, de los programas presupuestarios a su cargo con base en los Lineamientos que emita la Secretaría, así como atender las revisiones a las evaluaciones de desempeño que ordene la Secretaría;
+(REFORMADA, G.G. 26 DE ENERO DE 2021)
+IV. Dar seguimiento y monitoreo de los indicadores de desempeño de los programas presupuestarios a su cargo, mediante el cálculo de su valor, de manera mensual, con el propósito de analizar su tendencia;
+(REFORMADO, G.G. 23 DE DICIEMBRE DE 2019)
+V. Informar trimestralmente a través de la Unidad de Información, Planeación, Programación y Evaluación a la Secretaría, los resultados de las evaluaciones a los indicadores de desempeño de los programas a su cargo, dentro de los diez días hábiles siguientes a la conclusión del periodo correspondiente, respecto de los indicadores de desempeño;
+VI. Atender y dar seguimiento a las recomendaciones derivadas de las evaluaciones de desempeño que emitan la Secretaría y la Contraloría;
+VII. Elaborar e implementar proyectos de mejora para incorporarlos en el diseño, adecuación y operación de los programas presupuestarios a su cargo, y
+VIII. Acordar con la Secretaría y la Contraloría las adecuaciones a los programas presupuestarios en cumplimiento de las recomendaciones resultantes de los procesos de seguimiento y evaluación mediante la celebración de un Convenio para la mejora del Desempeño y Resultados Gubernamentales.
+(ADICIONADO, G.G. 2 DE DICIEMBRE DE 2013)
+Las Dependencias y Entidades Públicas deberán tomar las previsiones presupuestales necesarias para dar cumplimiento a las disposiciones de este Código, en materia del Sistema de Evaluación del Desempeño.
