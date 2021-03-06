@@ -1,0 +1,4 @@
+G.G. 5 DE MARZO DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 248.- POR EL QUE SE ADICIONA EL CAPÍTULO VII "DELITOS CONTRA EL LIBRE DESARROLLO DE LA PERSONALIDAD Y LA IDENTIDAD SEXUAL" AL SUBTÍTULO CUARTO DEL TÍTULO SEGUNDO DEL LIBRO SEGUNDO CON EL ARTÍCULO 211 SEXIES DEL CÓDIGO PENAL DEL ESTADO DE MÉXICO".]
+PRIMERO. Publíquese el presente Decreto en el Periódico Oficial "Gaceta de Gobierno".
+SEGUNDO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "Gaceta del Gobierno".
