@@ -1,0 +1,4 @@
+G.G. 14 DE MAYO DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 267.- POR EL QUE SE REFORMA EL ARTÍCULO 211 QUATER Y SE ADICIONAN UN SEXTO PÁRRAFO A LA FRACCIÓN III DEL ARTÍCULO 204, RECORRIÉNDOSE LOS SUBSECUENTES, Y UN SEGUNDO PÁRRAFO AL ARTÍCULO 211 TER, RECORRIÉNDOSE LOS SUBSECUENTES, DEL CÓDIGO PENAL DEL ESTADO DE MÉXICO".]
+PRIMERO. Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
+SEGUNDO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "Gaceta del Gobierno".
