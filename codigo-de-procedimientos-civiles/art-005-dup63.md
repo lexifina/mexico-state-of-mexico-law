@@ -1,6 +1,3 @@
-Artículo 5.60.- Si las pruebas admitidas, por su naturaleza, fueron desahogadas y el juez no considera la recepción de otra, se recibirán alegatos y, en su caso, dictará sentencia.
-(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, G.G. 19 DE FEBRERO DE 2009)
-CAPITULO VI
-De la Audiencia Principal
+Artículo 5.59.- El juez señalará día y hora para la celebración de la audiencia principal dentro de los quince días siguientes, en la que recibirá las pruebas pendientes de desahogo, se formularán alegatos y, en su caso, dictará la resolución definitiva.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Desarrollo de la audiencia principal
+Recepción de alegatos

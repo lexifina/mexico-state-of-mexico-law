@@ -1,3 +1,4 @@
-Artículo 5.46.- En el auto que tenga por contestada la demanda o reconvención, en su caso, se citará a las partes a la audiencia inicial a verificarse dentro de los cinco días siguientes.
-(REFORMADO, G.G. 20 DE DICIEMBRE DE 2016)
-Apercibimiento para el caso de inasistencia
+Artículo 5.45.- Las medidas provisionales serán revisadas de oficio y, en su caso, modificadas en la audiencia inicial en la que, inclusive, podrán dictarse otras.
+Las resoluciones provisionales dictadas en la audiencia inicial sólo podrán modificarse en sentencia definitiva.
+(REFORMADO, G.G. 14 DE MAYO DE 2021)
+Fecha para la celebración de la audiencia inicial

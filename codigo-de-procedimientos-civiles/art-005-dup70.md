@@ -1,2 +1,1 @@
-Artículo 5.66. (DEROGADO, G.G. 7 DE JUNIO DE 2018)
-Análisis del convenio
+Artículo 5.65.- (DEROGADO, G.G. 3 DE MAYO DE 2012)

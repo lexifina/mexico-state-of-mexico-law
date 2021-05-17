@@ -1,0 +1,5 @@
+(ADICIONADO, G.G. 14 DE MAYO DE 2021)
+Artículo 30 Bis.- El procedimiento de Mediación, Conciliación o Restauración Familiar se compondrá de dos etapas:
+1.- Junta Informativa. En esta etapa acudirá el o los interesados con un mediador, conciliador o facilitador para efecto de que se le informen sobre el servicio de mediación y conciliación; los derechos que tienen las partes; explique brevemente su problemática y se les informará sobre la viabilidad de resolver su conflictiva en el procedimiento. Esta será obligatoria para aquellos procesos judiciales que así lo prevean.
+En caso de no aceptar continuar con el servicio de mediación, conciliación o justicia restaurativa, se expedirá al o a los solicitantes la Constancia de Asistencia a dicha junta.
+2.- Procedimiento de Mediación, Conciliación o Restauración Familiar. Al aceptar los interesados, se llevarán a cabo sesiones de manera grupal o individual de acuerdo a los manuales que para tal efecto emita el Centro de Mediación, Conciliación y Justicia Restaurativa.

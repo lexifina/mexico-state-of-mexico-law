@@ -1,3 +1,3 @@
-Artículo 5.59.- El juez señalará día y hora para la celebración de la audiencia principal dentro de los quince días siguientes, en la que recibirá las pruebas pendientes de desahogo, se formularán alegatos y, en su caso, dictará la resolución definitiva.
+Artículo 5.58.- Las medidas provisionales serán revisadas, a través del análisis conjunto de lo manifestado por las partes y las documentales exhibidas. El juez determinará las que perdurarán durante la tramitación del proceso, y sólo podrán ser modificadas en sentencia definitiva.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Recepción de alegatos
+Día y hora de la audiencia principal

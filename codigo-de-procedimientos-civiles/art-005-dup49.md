@@ -1,3 +1,3 @@
-Artículo 5.47.- El juez apercibirá a las partes, que para el caso de inasistencia a la audiencia inicial, se impondrá una multa de hasta cincuenta veces el valor diario de la Unidad de Medida y Actualización vigente, que se aplicará a favor del Fondo Auxiliar de la Administración de Justicia, excepto cuando el demandado no haya producido contestación ni cuando a su juicio se cause un perjuicio mayor.
-(ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Citación personal para la audiencia inicial
+Artículo 5.46.- Una vez contestada la demanda o en su caso la reconvención y exhibida la constancia expedida por el Centro de Mediación, Conciliación y Justicia Restaurativa del Poder Judicial del Estado México, relativa a la Junta Informativa que prevé la Ley de Mediación, Conciliación y Promoción de la Paz Social para el Estado de México, que acredite que no se logró la extinción total del conflicto a través de convenio, el o la Jueza en el auto que tenga por presentada dicha constancia, citará a audiencia inicial, la cual, se verificará dentro de los cinco días siguientes.
+(REFORMADO, G.G. 20 DE DICIEMBRE DE 2016)
+Apercibimiento para el caso de inasistencia

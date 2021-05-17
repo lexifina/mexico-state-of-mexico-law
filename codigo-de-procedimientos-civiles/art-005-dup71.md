@@ -1,2 +1,2 @@
-Artículo 5.67.- (DEROGADO, G.G. 3 DE MAYO DE 2012)
-Aprobación del convenio
+Artículo 5.66. (DEROGADO, G.G. 7 DE JUNIO DE 2018)
+Análisis del convenio

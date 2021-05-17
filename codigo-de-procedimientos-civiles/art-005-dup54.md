@@ -1,3 +1,3 @@
-Artículo 5.52.- Declarada abierta la audiencia inicial, el juez precisará sucintamente las pretensiones de las partes.
+Artículo 5.51.- De inasistir las partes a la audiencia inicial, ésta se verificará de manera reservada, sin necesidad de que sea video o audiograbada; sólo se instrumentará un acta en la que se puntualizarán los acuerdos y providencias que se lleguen a emitir en el desahogo de cada fase.
 (ADICIONADO, G.G. 19 DE FEBRERO DE 2009)
-Fase conciliatoria
+Enunciación de la litis

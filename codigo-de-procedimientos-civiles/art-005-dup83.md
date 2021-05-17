@@ -1,3 +1,3 @@
-Artículo 5.79.- La Sala podrá ordenar la recepción o ampliación de pruebas, cuando se trate asuntos que afecten los derechos de menores o incapaces y en materia de alimentos, guarda y custodia y patria potestad a favor del acreedor alimentario.
+Artículo 5.78.- El trámite y substanciación del recurso de apelación, se sujetará a las disposiciones generales de este código, con la salvedad de que en el auto de la calificación del grado, en su caso, se realizará el turno respectivo para su resolución.
 (REFORMADO, G.G. 18 DE DICIEMBRE DE 2014)
-Reposición del procedimiento
+Recepción de pruebas en segunda instancia
