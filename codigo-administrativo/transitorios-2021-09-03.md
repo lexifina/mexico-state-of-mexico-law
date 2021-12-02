@@ -1,0 +1,9 @@
+G.G. 3 DE SEPTIEMBRE DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 324.- POR EL QUE SE ADICIONA LA FRACCIÓN VII AL ARTÍCULO 6.6, RECORRIÉNDOSE EN SU ORDEN LA SUBSECUENTE Y LA FRACCIÓN VI AL ARTÍCULO 6.12, DEL CÓDIGO ADMINISTRATIVO DEL ESTADO DE MÉXICO, SE REFORMA EL SEGUNDO PÁRRAFO DEL ARTÍCULO 142, LOS ARTÍCULOS 144, 144 BIS, Y EL PRIMER PÁRRAFO DEL ARTÍCULO 144 TER, DE LA LEY ORGÁNICA MUNICIPAL DEL ESTADO DE MÉXICO Y SE EXPIDE LA LEY DE LOS CUERPOS DE BOMBEROS DEL ESTADO DE MÉXICO".]
+PRIMERO. Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
+SEGUNDO. El presente Decreto entrará en vigor a los noventa días siguientes de su publicación en el Periódico Oficial "Gaceta del Gobierno".
+TERCERO. Quedan derogadas todas aquellas disposiciones legales que se opongan a lo dispuesto por la presente Ley.
+CUARTO. Los municipios del Estado, dentro de los cien días siguientes a la entrada en vigor del presente Decreto, deberán armonizar sus reglamentos de conformidad con la presente Ley.
+QUINTO. Los Ayuntamientos de los 125 Municipios tomarán las previsiones necesarias dentro de la planeación y programación de su presupuesto para garantizar el cumplimiento del presente Decreto.
+SEXTO. La antigüedad, prestaciones y demás derechos adquiridos a los que sean sujetos los miembros de los Cuerpos de Bomberos municipales ya establecidas en las diferentes modalidades que prevalecen en el Estado, serán respetados a partir de la entrada en vigor de la presente Ley.
+SÉPTIMO. La Secretaría General de Gobierno a través de la Coordinación General de Protección Civil y Gestión Integral del Riesgo, establecerá las previsiones para que a partir de la entrada en vigor de la presente Ley, las Bases Regionales que cuenten con las condiciones de centros de formación, se adapten para cumplir con los señalado en el Título Sexto de este Decreto.

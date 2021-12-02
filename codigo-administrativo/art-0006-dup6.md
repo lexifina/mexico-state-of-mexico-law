@@ -8,5 +8,7 @@ IV. Los Presidentes Municipales;
 (REFORMADA, G.G. 13 DE NOVIEMBRE DE 2014)
 V. El Coordinador General de Protección Civil del Estado de México;
 VI. Los Sistemas y Consejos Municipales de Protección Civil;
-VII. La representación de los sectores social y privados, de las instituciones educativas, grupos voluntarios y expertos en diferentes áreas relacionadas con la protección civil.
+(ADICIONADA, G.G. 3 DE SEPTIEMBRE DE 2021)
+VII. Los Cuerpos de Bomberos Municipales;
+VIII. La representación de los sectores social y privados, de las instituciones educativas, grupos voluntarios y expertos en diferentes áreas relacionadas con la protección civil.
 El Ejecutivo del Estado y los presidentes municipales, tendrán la responsabilidad de la integración y funcionamiento de los sistemas de protección civil.
