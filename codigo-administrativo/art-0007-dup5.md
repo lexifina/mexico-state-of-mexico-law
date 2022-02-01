@@ -10,8 +10,10 @@ III. Mixto;
 IV. Particular:
 a) El destino para transporte de pasajeros de uso propio no considerado en las fracciones anteriores;
 b) De carga particular, que es el destinado exclusivamente al servicio particular de carga de un establecimiento o empresa que constituya un instrumento de trabajo, y que no preste servicios a terceros.
-(REFORMADO [N. DE E. ESTE PÁRRAFO], G.G. 15 DE DICIEMBRE DE 2017)
-V. El destinado para prestar un servicio a la población por parte de organismos y dependencias federales, estatales o municipales, tales como de seguridad pública, tránsito estatal y municipal, protección civil, rescate, bomberos, policía ministerial, servicio médico forense, traslado de valores, ambulancias, servicios funerarios, de traslado de residuos y materiales peligrosos, pipas para agua potable, recolección y traslado de residuos líquidos y sólidos, mantenimiento de redes hidráulicas y eléctricas, y de particulares sobre servicios similares; y que no esté considerado en las fracciones anteriores.
+(ADICIONADO, G.G. 31 DE ENERO DE 2022)
+c) El destinado para prestar servicios a la población, tales como el de seguridad privada, traslado de valores, servicios funerarios, pipas para agua potable, traslado de residuos y materiales peligrosos, recolección y traslado de residuos líquidos y sólidos, mantenimiento de redes hidráulicas y eléctricas y demás vehículos que no sean de servicio público.
+(REFORMADO [N. DE E. ESTE PÁRRAFO], G.G. 31 DE ENERO DE 2022)
+V. El destinado para prestar un servicio a la población por parte de organismos y dependencias federales, estatales o municipales, tales como de seguridad pública, tránsito estatal y municipal, protección civil, rescate, bomberos, policía ministerial, servicio médico forense, traslado de valores, ambulancias, servicios funerarios, de traslado de residuos y materiales peligrosos, pipas para agua potable, recolección y traslado de residuos líquidos y sólidos, mantenimiento de redes hidráulicas y eléctricas.
 (ADICIONADO [N. DE E. PERTENECE A LA FRACCIÓN V, G.G. 15 DE DICIEMBRE DE 2017)
 Para efectos de esta fracción se entenderá por equipamiento específico, sistemas, dispositivos y accesorios de seguridad; al conjunto de instalaciones, servicios, funciones, aparatos auxiliares, elementos u objetos complementarios, que sean indispensables para realizar la actividad o propósito afectos a dicho servicio.
 En la normatividad reglamentaria respectiva podrán establecerse otras modalidades que esta clase de servicios requieran.

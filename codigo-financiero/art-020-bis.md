@@ -6,8 +6,8 @@ I. Requerir hasta en dos ocasiones la presentación del documento con el que acr
 Lo establecido en el párrafo anterior, no será aplicable tratándose del aviso de dictaminación de contribuciones o dictámenes correspondientes a que se encuentran obligados.
 (ADICIONADO, G.G. 28 DE NOVIEMBRE DE 2016)
 La autoridad fiscal que haya requerido podrá cancelar el o los requerimientos formulados al contribuyente, así como las multas correspondientes que en los mismos se refieran, siempre que se exhiba la declaración, aviso y demás documentos presuntamente omitidos, y que éstos se hayan presentado con anterioridad a la fecha de notificación del requerimiento.
-(ADICIONADO, G.G. 28 DE NOVIEMBRE DE 2016)
-Si los documentos a que se refiere el párrafo anterior se exhiben en el momento de la diligencia de notificación del requerimiento, el notificador levantará acta circunstanciada en la que precise los documentos exhibidos.
+(REFORMADO, G.G. 31 DE ENERO DE 2022)
+Si los documentos a que se refiere el párrafo anterior, se exhiben en el momento de la diligencia de notificación del requerimiento, el notificador levantará acta circunstanciada en la que precise los documentos exhibidos, los cuales podrán ser recabados a través de medios electrónicos y deberán agregarse al acta de referencia, para el seguimiento que corresponda por parte de la autoridad.
 (REFORMADO [N. DE E. ESTE PÁRRAFO], G.G. 15 DE DICIEMBRE DE 2017)
 II. Tratándose de la omisión de pago o la presentación de una declaración periódica para el pago de contribuciones, una vez realizada la actuación prevista en la fracción anterior, podrán hacer efectiva al contribuyente que haya incurrido en la omisión, una cantidad igual al monto mayor que hubiera determinado a su cargo en cualquiera de los últimos seis pagos o declaraciones de la contribución de que se trate, a partir de la fecha en que la autoridad fiscal ejerza dicha facultad.
 (ADICIONADO, G.G. 15 DE DICIEMBRE DE 2017) [N. DE E. PERTENECE A LA FRACCIÓN II, G.G. 15 DE DICIEMBRE DE 2017]
