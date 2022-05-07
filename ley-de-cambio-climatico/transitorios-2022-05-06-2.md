@@ -1,0 +1,5 @@
+G.G. 6 DE MAYO DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 54.- POR EL QUE SE REFORMA LA FRACCIÓN XI DEL ARTÍCULO 4, LAS FRACCIONES II, VIII Y XVII DEL ARTÍCULO 8, LAS FRACCIONES V Y VII DEL ARTÍCULO 10, LA FRACCIÓN III DEL ARTÍCULO 46, LOS INCISOS A), B) Y C) DE LA FRACCIÓN III, EL INCISO E) DE LA FRACCIÓN IV Y EL SEGUNDO PÁRRAFO DEL ARTÍCULO 47, EL PRIMER PÁRRAFO DEL ARTÍCULO 48, LOS ARTÍCULOS 53, 54 Y 55; Y SE ADICIONA UN TERCER PÁRRAFO AL ARTÍCULO 16, Y LOS INCISOS D) Y E) A LA FRACCIÓN III DEL ARTÍCULO 47, DE LA LEY DE CAMBIO CLIMÁTICO DEL ESTADO DE MÉXICO".]
+PRIMERO. Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
+SEGUNDO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "Gaceta del Gobierno".
+TERCERO. El Titular del Ejecutivo del Estado y los Titulares de los Ayuntamientos, por conducto de los órganos competentes, adecuarán las disposiciones jurídicas reglamentarias correspondientes en un plazo no mayor a ciento ochenta días hábiles contados a partir de la entrada en vigor del presente Decreto.
