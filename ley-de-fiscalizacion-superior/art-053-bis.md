@@ -1,0 +1,4 @@
+(ADICIONADO, G.G. 25 DE MAYO DE 2022)
+Artículo 53 Bis.- El Órgano Superior, previo a la presentación del Informe de Resultados, entregará a las entidades fiscalizadas los resultados preliminares que se deriven de la fiscalización de la Cuenta Pública, a efecto de que dichas entidades presenten, en un plazo no mayor a cinco días hábiles, las justificaciones y aclaraciones que correspondan.
+Una vez que el Órgano Superior valore las justificaciones, aclaraciones y demás información a que hace referencia el párrafo anterior, en un plazo máximo de 10 días hábiles posteriores, podrá determinar la procedencia de eliminar, rectificar o ratificar las observaciones preliminares, para efectos de la emisión de los resultados finales.
+Posterior a la entrega de los resultados finales, el Órgano Superior contará con treinta días hábiles a efecto de notificar a las entidades fiscalizadas el informe de auditoría.
