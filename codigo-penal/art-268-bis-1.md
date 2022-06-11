@@ -8,3 +8,5 @@ a) Si el delito es cometido en contra de una persona menor de dieciocho años de
 b) Si el delito es cometido en contra de una persona mayor de sesenta años de edad;
 c) Si el delito es cometido en contra de quien no tenga capacidad para comprender el significado del hecho o de resistirlo;
 d) Cuando el sujeto activo del delito tenga parentesco por consaguinidad (sic), afinidad o civil, habite en el mismo domicilio con la víctima, tenga una relación similar al parentesco o una relación sentimental o de confianza con el sujeto pasivo; además, en los casos que proceda, perderá la patria potestad, guarda y custodia o régimen de visitas y convivencias, el derecho de alimentos que le correspondiera por su relación con la víctima y el derecho que pudiere tener respecto de los bienes de ésta.
+(ADICIONADO, G.G. 10 DE JUNIO DE 2022)
+e) Si el delito es cometido en contra de una persona perteneciente a un grupo indígena o persona en condición de marginalidad o vulnerabilidad social.
