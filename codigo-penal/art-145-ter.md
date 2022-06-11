@@ -1,2 +1,2 @@
-(REFORMADO, G.G. 5 DE ENERO DE 2021)
-Artículo 145 Ter.- A quien distribuya agua potable a través de pipa, sin contar con el permiso de distribución o evaluación correspondiente, expedidos por la autoridad competente, se le impondrán de dos a seis años de prisión y de cincuenta a doscientos días multa.
+(REFORMADO, G.G. 10 DE JUNIO DE 2022)
+Artículo 145 Ter.- A quien distribuya o suministre agua potable a través de pipa u otro medio de almacenamiento, sin contar con el permiso de distribución o la evaluación correspondiente, expedidos por la autoridad competente, con la finalidad de obtener un beneficio económico, se le impondrán de dos a seis años de prisión y de cincuenta a doscientas unidades de medida y actualización.
