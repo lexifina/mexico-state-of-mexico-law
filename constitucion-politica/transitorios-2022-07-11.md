@@ -1,0 +1,6 @@
+G.G. 11 DE JULIO DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 75.- POR EL QUE SE REFORMA EL PRIMER PÁRRAFO DEL ARTÍCULO 12 Y EL ARTÍCULO 66, Y SE ADICIONA UN PÁRRAFO SEXTO RECORRIÉNDOSE LOS SUBSECUENTES DEL ARTÍCULO 12 DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE MÉXICO".]
+PRIMERO. Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
+SEGUNDO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "Gaceta del Gobierno".
+TERCERO. Para efectos de lo dispuesto en los párrafos primero y sexto del articulo 12; así como lo dispuesto en el párrafo segundo del artículo 66, los partidos políticos podrán postular libremente para el proceso electoral del año 2023 a un candidato o una candidata. Alternándose el género para las subsecuentes elecciones de Gobernador o Gobernadora.
+CUARTO. La designación de género de los partidos políticos para candidato o candidata en la elección de Gobernador o Gobernadora del Estado Libre y Soberano de México, no estará condicionada por la designación de género de otros candidatos o candidatas de otros Estados que concurran con la misma fecha de la elección del Estado Libre y Soberano de México.
