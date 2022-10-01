@@ -1,0 +1,4 @@
+G.G. 30 DE SEPTIEMBRE DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 91.- POR EL QUE SE REFORMA LA FRACCIÓN III DEL ARTÍCULO 202, LA FRACCIÓN XVIII DEL ARTÍCULO 390, EL PRIMER PÁRRAFO DEL ARTÍCULO 407; SE ADICIONA EL ARTÍCULO 74 BIS, LA FRACCIÓN XIX DEL ARTÍCULO 390, LA FRACCIÓN IV DEL ARTÍCULO 407 DEL CÓDIGO ELECTORAL DEL ESTADO DE MÉXICO".]
+PRIMERO. Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
+SEGUNDO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "Gaceta del Gobierno".

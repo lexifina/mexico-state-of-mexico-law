@@ -1,0 +1,4 @@
+(ADICIONADO, G.G. 30 DE SEPTIEMBRE DE 2022)
+Artículo 74 Bis. En el caso de coalición o candidatura común para postular personas candidatas a Gobernador o Gobernadora, los partidos que la integren podrán suscribir un Acuerdo específico en el que se establezca la forma en que éstos participarán en la integración de las dependencias del Ejecutivo y sus organismos auxiliares, así como en la definición de la agenda legislativa.
+El Acuerdo de Participación previsto en el párrafo anterior deberá ser suscrito por la persona candidata a Gobernadora o Gobernador y las personas dirigentes estatales de los partidos políticos que integran la candidatura, con la aprobación de sus respectivos órganos directivos estatales.
+El Acuerdo deberá presentarse ante el Instituto para efectos de su inscripción, dentro de los plazos previstos para el registro de los convenios de coalición o de candidatura común, según se trate.
