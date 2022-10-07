@@ -1,4 +1,5 @@
 LEY QUE CREA LOS ORGANISMOS PÚBLICOS DESCENTRALIZADOS, DE ASISTENCIA SOCIAL, DE CARÁCTER MUNICIPAL, DENOMINADOS «SISTEMAS MUNICIPALES PARA EL DESARROLLO INTEGRAL DE LA FAMILIA» DEL ESTADO DE MÉXICO
+[N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN LA GACETA DEL GOBIERNO DEL 7 DE OCTUBRE DE 2022.]
 Ley publicada en la Sección Tercera de la Gaceta del Gobierno del Estado de México, el martes 16 de julio de 1985.
 El Ciudadano LICENCIADO ALFREDO DEL MAZO G., Gobernador Constitucional del Estado Libre y Soberano de México, a sus habitantes sabed:
 Que la Legislatura del Estado, ha tenido a bien aprobar lo siguiente:
