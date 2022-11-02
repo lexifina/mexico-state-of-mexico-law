@@ -1,2 +1,3 @@
 Artículo 4.71.- La acción de nulidad del matrimonio por violencia, sólo puede deducirse por el cónyuge agraviado, dentro de los sesenta días desde que cesó la misma.
-Legitimación y plazo para pedir la nulidad por embriaguez o uso de drogas y bisexualidad
+(REFORMADO, G.G. 1 DE NOVIEMBRE DE 2022)
+Legitimación y plazo para pedir la nulidad por embriaguez y uso de drogas

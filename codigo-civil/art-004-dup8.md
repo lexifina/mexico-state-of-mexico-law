@@ -10,8 +10,8 @@ VI. El atentado contra la vida de alguno de los casados, judicialmente comprobad
 (REFORMADA, G.G. 6 DE MARZO DE 2010)
 VII. La violencia para obtener el consentimiento para celebrar el matrimonio;
 VIII. La embriaguez habitual y el uso indebido y persistente de estupefacientes, psicotrópicos o de cualquier otra sustancia que altere la conducta y produzca dependencia;
-(REFORMADA, G.G. 7 DE MAYO DE 2015)
-IX. La impotencia incurable para la cópula o la bisexualidad; las enfermedades crónicas e incurables que sean contagiosas o hereditarias. No serán impedimentos cuando por escrito sean aceptadas por el otro contrayente.
+(REFORMADA, G.G. 1 DE NOVIEMBRE DE 2022)
+IX. Las enfermedades crónicas e incurables que sean contagiosas o hereditarias. Salvo cuando por escrito sean aceptadas por el otro contrayente.
 X. Trastornos mentales, aunque haya espacios de lucidez;
 XI. El matrimonio subsistente de alguno de los contrayentes.
 Imposibilidad de matrimonio entre adoptante y adoptado
