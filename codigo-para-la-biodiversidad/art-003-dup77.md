@@ -1,7 +1,5 @@
-Artículo 3.77. El Fondo Forestal Estatal se podrá integrar con:
-I. Las aportaciones que efectúen los Gobiernos Federal, Estatal y Municipal;
-II. Créditos y apoyos de organismos nacionales e internacionales;
-III. Las aportaciones y donaciones de personas físicas o jurídicas colectivas de carácter privado, mixto, nacionales e internacionales;
-IV. Las aportaciones que los propietarios y poseedores forestales realicen por cada metro cúbico aprovechado en lo maderable y por unidad de medida en lo no maderable;
-V. Las aportaciones del sector industrial forestal; y
-VI. Los demás recursos legítimos que obtenga por cualquier otro concepto.
+SECCION SEGUNDA
+DEL FONDO FORESTAL ESTATAL
+Artículo 3.76. El Fondo Forestal Estatal será el instrumento para promover la conservación, incremento, aprovechamiento sostenible y la protección y restauración de los recursos forestales y sus recursos asociados facilitando el acceso a los servicios financieros en el mercado, impulsando proyectos que contribuyan a la integración y competitividad de la cadena productiva y desarrollando los mecanismos de cobro y pago de bienes y servicios ambientales.
+El Fondo Forestal Estatal operará a través de un Comité Mixto, en él habrá una representación igualitaria y proporcionada del sector público estatal y municipal por un lado, y por otro de las organizaciones privadas y sociales del sector forestal.
+La existencia del Fondo no limita la creación de diversos fondos privados o sociales tales como fideicomisos que tengan una relación directa con el desarrollo forestal que en todo caso estarán autorizados por la Secretaría.

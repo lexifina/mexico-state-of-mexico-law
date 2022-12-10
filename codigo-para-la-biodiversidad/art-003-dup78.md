@@ -1,11 +1,7 @@
-CAPITULO II
-DE LA CULTURA, EDUCACION Y CAPACITACION FORESTALES
-Artículo 3.78. La Secretaría y PROBOSQUE en coordinación con la Comisión Nacional Forestal, las dependencias competentes de la administración pública federal y las correspondientes de los Municipios, organizaciones e instituciones públicas, privadas y sociales realizarán en materia de cultura forestal las siguientes acciones:
-I. Establecer y operar la red estatal de comunicación y difusión de asuntos culturales en materia forestal;
-II. Promover y realizar campañas permanentes de difusión y eventos especiales orientados al logro de la participación organizada de la sociedad en programas inherentes al Desarrollo Forestal Sostenible;
-III. Establecer espacios orientados a elevar el nivel de cultura, educación y capacitación forestales;
-IV. Propiciar la divulgación, el uso, respeto y reconocimiento de costumbres, tradiciones y prácticas culturales propias de los pueblos y comunidades indígenas que habitan en las regiones forestales del Estado;
-V. Contribuir al diseño, formulación, elaboración y publicación de materiales de comunicación educativa y guías técnicas actualizadas que reorienten la relación de la sociedad con lo forestal;
-VI. Fomentar la formación de instructores y promotores forestales voluntarios;
-VII. Promover los criterios de política forestal previstos en el presente Código; y
-VIII. Otras que sean de interés para desarrollar y fortalecer la cultura forestal.
+Artículo 3.77. El Fondo Forestal Estatal se podrá integrar con:
+I. Las aportaciones que efectúen los Gobiernos Federal, Estatal y Municipal;
+II. Créditos y apoyos de organismos nacionales e internacionales;
+III. Las aportaciones y donaciones de personas físicas o jurídicas colectivas de carácter privado, mixto, nacionales e internacionales;
+IV. Las aportaciones que los propietarios y poseedores forestales realicen por cada metro cúbico aprovechado en lo maderable y por unidad de medida en lo no maderable;
+V. Las aportaciones del sector industrial forestal; y
+VI. Los demás recursos legítimos que obtenga por cualquier otro concepto.

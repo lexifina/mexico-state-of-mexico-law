@@ -4,3 +4,5 @@ II. No se deberá efectuar la quema de manera simultánea con predios colindante
 III. Se debe circular con línea corta fuegos o guardarrayas;
 IV. La quema deberá iniciarse de arriba hacia abajo en los terrenos con pendientes de menos de quince grados y en los planos en sentido contrario al de la dirección dominante del viento; y
 V. La quema deberá efectuarse en el período y horario establecido en el Reglamento de la Ley General de Desarrollo Forestal Sustentable.
+(ADICIONADA, G.G. 9 DE DICIEMBRE DE 2022)
+VI. La persona que realice la quema deberá contar con la capacitación y acreditación vigente que corresponda por parte de PROBOSQUE.

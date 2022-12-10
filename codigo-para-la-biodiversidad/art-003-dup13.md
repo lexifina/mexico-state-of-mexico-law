@@ -31,7 +31,8 @@ XXVII. Elaborar, monitorear y mantener actualizado el Inventario Estatal Foresta
 XXVIII. Integrar el Sistema Estatal de Información Forestal e incorporar su contenido al Sistema Nacional de Información Forestal;
 XXIX. Compilar y procesar la información sobre uso doméstico de los recursos forestales e incorporarla al Sistema Estatal de Información Forestal;
 XXX. Coadyuvar y participar de conformidad con la Ley General de Desarrollo Forestal Sustentable en la adopción y consolidación del Servicio Nacional Forestal;
-XXXI. Regular el uso del fuego en relación con actividades agropecuarias o de otra índole que pudieran afectar los ecosistemas forestales;
+(REFORMADA, G.G. 9 DE DICIEMBRE DE 2022)
+XXXI. Regular el uso del fuego en relación con actividades agropecuarias o de otra índole que pudieran afectar los ecosistemas forestales; así como la capacitación y acreditación de personas para realizar quemas en terrenos agropecuarios colindantes con terrenos forestales y preferentemente forestales;
 XXXII. Promover y participar en la restauración de los ecosistemas forestales afectados por incendio o cualquier otro desastre natural;
 XXXIII. Realizar y supervisar las labores de conservación, protección y restauración de los terrenos estatales forestales;
 XXXIV. Elaborar y aplicar de forma coordinada con los Municipios programas de forestación y reforestación en zonas degradadas que no sean competencia de la Federación, así como llevar a cabo acciones de protección y mantenimiento de las zonas forestadas o reforestadas;

@@ -1,1 +1,2 @@
-Artículo 3.68 Será obligatorio para las autoridades estatales y municipales incluir en sus planes de desarrollo respectivos programas tendientes a la forestación y reforestación que les correspondan.
+Artículo 3.67. El Gobierno del Estado y los Municipios promoverán programas tendientes a la forestación y reforestación de los terrenos de vocación forestal, degradados o que han sufrido cambio de uso del suelo.
+Para tal efecto el Gobierno del Estado y los Municipios podrán celebrar convenios con instituciones públicas y privadas.

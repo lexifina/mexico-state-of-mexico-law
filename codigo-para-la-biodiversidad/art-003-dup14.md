@@ -23,6 +23,8 @@ XVII. Participar en el establecimiento de sistemas y esquemas de ventanilla úni
 XVIII. Diseñar, formular y aplicar en concordancia con la política nacional y estatal, la política forestal del Municipio;
 XIX. Promover programas y proyectos de fomento a la educación, la capacitación, investigación y cultura forestal;
 XX. Participar y coadyuvar en las acciones de prevención y combate de incendios forestales en coordinación con los Gobiernos Federal y Estatal y participar en la atención de las emergencias y contingencias forestales de acuerdo con los programas de protección civil;
+(ADICIONADA, G.G. 9 DE DICIEMBRE DE 2022)
+XX Bis. Autorizar cualquier tipo de quema en terrenos agropecuarios colindantes con terrenos forestales y preferentemente forestales;
 XXI. Desarrollar viveros y apoyar programas de producción de plantas;
 XXII. Hacer del conocimiento a las autoridades competentes y denunciar las infracciones, faltas administrativas o delitos que se cometan en materia forestal; y
 XXIII. Regular y vigilar la disposición final de residuos provenientes de la extracción de materias primas forestales.

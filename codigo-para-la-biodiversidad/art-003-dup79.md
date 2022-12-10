@@ -1,7 +1,11 @@
-Artículo 3.79. En materia de educación y capacitación la Secretaría y PROBOSQUE en coordinación con la Comisión Nacional Forestal, la Secretaría de Educación, Cultura y Bienestar Social y con las demás dependencias o entidades competentes de los tres órdenes de gobierno, así como de los sectores social y privado realizarán las siguientes acciones:
-I. Promover la formación, capacitación y certificación de competencia laboral de técnicos y profesionistas forestales;
-II. Recomendar la actualización constante de los planes de estudios de carreras forestales y afines que se impartan por escuelas públicas o privadas;
-III. Organizar programas de formación continua y actualización de los servidores públicos del ramo forestal, estatal y municipal;
-IV. Impulsar programas de educación y capacitación forestal destinados a propietarios y productores forestales, pobladores de regiones forestales en materia de conservación, protección, restauración y aprovechamiento sostenible de los recursos forestales, así como en materia de contingencias, emergencias e incendios forestales; y
-V. Formular programas de becas para la formación y capacitación forestal.
-Las anteriores acciones se considerarán enunciativas y no limitativas
+CAPITULO II
+DE LA CULTURA, EDUCACION Y CAPACITACION FORESTALES
+Artículo 3.78. La Secretaría y PROBOSQUE en coordinación con la Comisión Nacional Forestal, las dependencias competentes de la administración pública federal y las correspondientes de los Municipios, organizaciones e instituciones públicas, privadas y sociales realizarán en materia de cultura forestal las siguientes acciones:
+I. Establecer y operar la red estatal de comunicación y difusión de asuntos culturales en materia forestal;
+II. Promover y realizar campañas permanentes de difusión y eventos especiales orientados al logro de la participación organizada de la sociedad en programas inherentes al Desarrollo Forestal Sostenible;
+III. Establecer espacios orientados a elevar el nivel de cultura, educación y capacitación forestales;
+IV. Propiciar la divulgación, el uso, respeto y reconocimiento de costumbres, tradiciones y prácticas culturales propias de los pueblos y comunidades indígenas que habitan en las regiones forestales del Estado;
+V. Contribuir al diseño, formulación, elaboración y publicación de materiales de comunicación educativa y guías técnicas actualizadas que reorienten la relación de la sociedad con lo forestal;
+VI. Fomentar la formación de instructores y promotores forestales voluntarios;
+VII. Promover los criterios de política forestal previstos en el presente Código; y
+VIII. Otras que sean de interés para desarrollar y fortalecer la cultura forestal.

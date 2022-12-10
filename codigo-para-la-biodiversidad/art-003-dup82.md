@@ -1,1 +1,1 @@
-Artículo 3.82. Los recursos, producto de los estímulos fiscales y los incentivos gubernamentales obtenidos por los pueblos hospital serán administrados y operados en autogestión y bajo la responsabilidad de los mismos beneficiarios comunitarios.
+Artículo 3.81. Los pueblos hospital podrán ser beneficiarios de estímulos fiscales en los términos que se establezcan en el presente Libro y su reglamento, y de incentivos otorgados por los entes públicos mediante la atención preferente en lo que respecta a los programas sociales de los diferentes órdenes de gobierno.

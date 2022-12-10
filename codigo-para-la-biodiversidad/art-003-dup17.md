@@ -22,5 +22,7 @@ XIII. Emitir la evaluación técnica de impacto en materia de transformación fo
 Para su emisión, los Solicitantes deberán cumplir con los requisitos establecidos en el Reglamento de la Ley de la Comisión de Impacto Estatal y las disposiciones jurídicas aplicables.
 (REFORMADA, G.G. 5 DE ENERO DE 2021)
 XIV. Vigilar, en coordinación con el Instituto de Verificación Administrativa del Estado de México, en el ámbito de sus respectivas competencias, que los centros de almacenamiento o transformación de materias primas forestales, cumplan con lo establecido en la evaluación técnica de impacto en materia de transformación forestal aplicando dentro del ámbito de sus atribuciones, las medidas de seguridad e imponiendo las infracciones que correspondan por su inobservancia; y
-(REFORMADA, G.G. 24 DE ENERO DE 2014)
-XV. Las demás que le atribuyan las disposiciones legales y los convenios o acuerdos en la materia.
+(REFORMADA [N. DE E. ADICIONADA], G.G. 9 DE DICIEMBRE DE 2022)
+XV. Capacitar y acreditar a las personas que pretendan realizar cualquier tipo de quema en terrenos agropecuarios colindantes con terrenos forestales y preferentemente forestales, y
+(ADICIONADA [N. DE E. REPUBLICADA Y REUBICADA ANTES FRACCIÓN XV], G.G. 9 DE DICIEMBRE DE 2022)
+XVI. Las demás que le atribuyan las disposiciones legales y los convenios o acuerdos en la materia.

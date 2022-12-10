@@ -1,2 +1,1 @@
-Artículo 3.83. Los pueblos hospital al momento de constituirse fijarán sus propios objetivos y planes de desarrollo para alcanzar la sostenibilidad social, económica y ambiental de sus comunidades.
-El Consejo Forestal Estatal emitirá su opinión respecto de dichos planes.
+Artículo 3.82. Los recursos, producto de los estímulos fiscales y los incentivos gubernamentales obtenidos por los pueblos hospital serán administrados y operados en autogestión y bajo la responsabilidad de los mismos beneficiarios comunitarios.
