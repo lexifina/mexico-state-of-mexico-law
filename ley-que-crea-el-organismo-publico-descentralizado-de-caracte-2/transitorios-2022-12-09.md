@@ -1,0 +1,5 @@
+G.G. 9 DE DICIEMBRE DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 110.- POR EL QUE SE REFORMAN EL ARTÍCULO 2, LAS FRACCIONES V Y VI DEL ARTÍCULO 3, LAS FRACCIONES I Y X DEL ARTÍCULO 4, LA FRACCIÓN III DEL ARTÍCULO 6, LA FRACCIÓN VII DEL ARTÍCULO 8, EL ARTÍCULO 9, LA FRACCIÓN VI DEL ARTÍCULO 17, EL SEGUNDO PÁRRAFO DEL ARTÍCULO 18, LA FRACCIÓN I Y EL SEGUNDO PÁRRAFO DEL ARTÍCULO 25, EL ARTÍCULO 26, EL ARTÍCULO 27, Y EL ARTÍCULO 28; SE ADICIONAN LA FRACCIÓN VII AL ARTÍCULO 3 Y LAS FRACCIONES V BIS Y V TER AL ARTÍCULO 4 DE LA LEY QUE CREA EL ORGANISMO PÚBLICO DESCENTRALIZADO DE CARÁCTER ESTATAL DENOMINADO COLEGIO DE ESTUDIOS CIENTIFICOS Y TECNOLÓGICOS DEL ESTADO DE MÉXICO".]
+PRIMERO.- Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
+SEGUNDO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "Gaceta del Gobierno".
+TERCERO.- A la entrada en vigor del presente Decreto, en todo caso, se respetarán los derechos laborales del personal docente con cargos de funciones de Dirección del Colegio, de conformidad con las disposiciones jurídicas aplicables.
