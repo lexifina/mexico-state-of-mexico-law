@@ -1,0 +1,3 @@
+(ADICIONADO, G.G. 21 DE DICIEMBRE DE 2022)
+Artículo 60 Ter.- Las empresas fabricantes, ensambladores o importadoras de automóviles, distribuidores autorizados y comerciantes de motocicletas, motonetas, trimotos y cuadrimotos, están obligadas a realizar la entrega material al adquirente, siempre y cuando acredite que ha realizado la matriculación e inscripción en el Registro Estatal Vehicular.
+En los casos en que las personas señaladas en el párrafo anterior realicen la entrega de la motocicleta, motonetas, trimoto o cuadrimoto, sin que tenga asignadas placas de circulación, serán sancionadas en términos del artículo 361 fracción XXIII de este Código.

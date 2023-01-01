@@ -1,5 +1,5 @@
-(REFORMADO PRIMER PÁRRAFO, G.G. 28 DE NOVIEMBRE DE 2016)
-Artículo 130 Bis.- Por el servicio de drenaje y alcantarillado los usuarios conectados a la red municipal de agua pagarán mensual o bimestral o de manera anticipada, según la opción que elijan, siempre y cuando los Municipios por sí o por conducto de los organismos operadores de agua de que se trate, cuenten con los dispositivos y modalidades que para tal fin establezcan o con cargo a tarjeta de crédito otorgada por instituciones bancarias, en las oficinas o establecimientos que el propio Ayuntamiento designe, conforme a lo siguiente:
+(REFORMADO PRIMER PÁRRAFO, G.G. 21 DE DICIEMBRE DE 2022)
+Artículo 130 Bis.- Por el servicio de drenaje y alcantarillado, los usuarios conectados a la red municipal de agua, pagarán de forma mensual o bimestral o de manera anticipada, según la opción que elijan, siempre y cuando, los municipios por sí o por conducto de los organismos operadores de agua de que se trate, cuenten con los dispositivos y modalidades que para tal fin establezcan o con cargo a tarjeta de crédito otorgada por instituciones bancarias, en las oficinas o establecimientos que el propio Ayuntamiento u organismo operador designe, conforme a lo siguiente:
 (REFORMADA, G.G. 19 DE DICIEMBRE DE 2012)
 I. Para uso doméstico:
 A). Con medidor.

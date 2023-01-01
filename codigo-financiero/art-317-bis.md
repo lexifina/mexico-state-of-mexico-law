@@ -3,8 +3,10 @@ Artículo 317 Bis.- Los traspasos presupuestarios externos serán aquellos que s
 (REFORMADO, G.G. 2 DE DICIEMBRE DE 2013)
 La solicitud deberá contener la justificación necesaria, así como el dictamen de reconducción y actualización programática-presupuestal, correspondiente que deberá incluir los montos, fuentes de financiamiento, programas y proyectos afectados, la descripción del ajuste en sus metas y objetivos, así como las unidades ejecutoras afectadas y los capítulos de gasto que comprenden.
 Para el caso de las entidades públicas, adicionalmente a la solicitud de traspasos externos, deberán contar con la aprobación del órgano de gobierno y presentarla a la Secretaría.
-(REFORMADO, G.G. 23 DE DICIEMBRE DE 2019)
-Los traspasos presupuestarios autorizados deberán informarse dentro de los primeros diez días hábiles del mes siguiente en el que se realicen para ser integrados al informe que el Poder Ejecutivo rinda al Poder Legislativo, el que invariablemente deberá contener montos, fuentes de financiamiento, programas, unidades ejecutoras y capítulos afectados por cada uno de los traspasos realizados.
+(REFORMADO, G.G. 21 DE DICIEMBRE DE 2022)
+Los traspasos presupuestarios autorizados, deberán informarse dentro de los primeros diez días hábiles del mes siguiente a aquel en el que se realicen, para ser integrados al informe que el Titular del Poder Ejecutivo presente al Poder Legislativo, el que invariablemente, deberá contener información sobre montos, fuentes de financiamiento, programas, unidades ejecutoras y capítulos afectados, por cada uno de los traspasos realizados.
+(ADICIONADO, G.G. 21 DE DICIEMBRE DE 2022)
+Las unidades ejecutoras, deberán integrar un informe de manera trimestral, de los traspasos presupuestarios externos efectuados, el cual deberá ser enviado a la Secretaría, dentro de los primeros diez días hábiles posteriores al término del periodo que se informa.
 (REFORMADO, G.G. 23 DE DICIEMBRE DE 2019)
 El monto total de traspasos presupuestarios externos que autorice la Secretaría no podrá exceder del 3% del presupuesto total autorizado anual, exceptuando de este capítulo los ajustes por incrementos salariales de carácter general, los ajustes derivados de la firma de convenios específicos con otros ámbitos de gobierno y las contingencias derivadas de desastres naturales y siniestros.
 (REFORMADO, G.G. 2 DE DICIEMBRE DE 2013)

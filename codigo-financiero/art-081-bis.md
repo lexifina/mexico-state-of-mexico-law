@@ -1,8 +1,7 @@
 [N. DE E. PARA CONSULTAR LAS CUOTAS O TARIFAS, APLICABLES DURANTE EL EJERCICIO FISCAL 2022, VÉASE LA INFORMACIÓN FISCAL EMITIDA POR LA SECRETARÍA DE FINANZAS DEL GOBIERNO DEL ESTADO, Y PUBLICADA EN LA SECCIÓN PRIMERA DE LA G.G. DE 8 DE FEBRERO DE 2022, PÁGINA 17.]
 (REFORMADO PRIMER PÁRRAFO, G.G. 5 DE ENERO DE 2021)
 Artículo 81 Bis.- Por los estudios y evaluaciones necesarios para la emisión de la Evaluación de Impacto Estatal, las y los solicitantes deberán cubrir los conceptos siguientes, tomando en consideración la unidad económica y el tipo de proyecto solicitado:
-(ADICIONADA, G.G. 15 DE DICIEMBRE DE 2017)
-I. Por la evaluación de las condiciones de seguridad para usos del suelo que generen impacto regional o urbano.$ 4,629
+I. (DEROGADA, G.G. 21 DE DICIEMBRE DE 2022)
 (ADICIONADA, G.G. 15 DE DICIEMBRE DE 2017)
 II. Por las evaluaciones para usos de impacto regional, urbano o de factibilidad para conjuntos urbanos.$ 3,857
 (REFORMADO [N. DE E. ESTE PÁRRAFO], G.G. 5 DE ENERO DE 2021)

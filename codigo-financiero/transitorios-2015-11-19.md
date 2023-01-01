@@ -5,6 +5,7 @@ TERCERO.- Se deja sin efectos el Artículo Sexto Transitorio del Decreto Número
 [N. DE E. PARA CONSULTAR LAS CUOTAS Y TARIFAS, APLICABLES DURANTE EL EJERCICIO FISCAL 2019, VÉASE LA INFORMACIÓN FISCAL EMITIDA POR LA SECRETARÍA DE FINANZAS DEL GOBIERNO DEL ESTADO, Y PUBLICADA EN LA SECCIÓN QUINTA DE LA G.G. DE 8 DE ENERO DE 2019, PÁGINA 32.]
 CUARTO.- Los artículos 60 E y 60 H no serán aplicables para vehículos cuyo modelo sea más antiguo que 2002. Los contribuyentes obligados al Impuesto Sobre Tenencia o Uso de Vehículos establecido en la Sección Segunda del Capítulo Primero del Título Tercero del Código Financiero del Estado de México y Municipios respecto de estos vehículos, lo calcularán conforme a lo siguiente:
 I. En el caso de automóviles de uso particular y embarcaciones la determinación será atendiendo al número de cilindros del motor, conforme a lo siguiente:
+.
 Tratándose de aeronaves se pagará una cuota fija, conforme a lo siguiente:
 Tipo de vehículoCuota
 Aeronaves

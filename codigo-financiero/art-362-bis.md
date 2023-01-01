@@ -8,8 +8,7 @@ II. No advertir a los contribuyentes a los que se refiera su opinión plasmada e
 III. Formular dictamen sobre la determinación y pago del Impuesto sobre Erogaciones por Remuneraciones al Trabajo Personal en contravención a lo dispuesto en este Código, lo cual se sancionará conforme a lo siguiente:
 A). Se amonestará al Contador Público cuando:
 1. Presente incompleta la información que deberá contener el dictamen de conformidad con este Código.
-2. No cumpla con lo dispuesto en los incisos A) y C) de la fracción I del artículo 48-
-B de este Código, sin justificación que lo motive.
+2. No cumpla con lo dispuesto en los incisos A) y C) de la fracción I del artículo 48-B de este Código, sin justificación que lo motive.
 (REFORMADO, G.G. 2 DE DICIEMBRE DE 2013)
 3. No manifieste a la autoridad fiscal competente cualquier modificación a la información que le haya proporcionado, de conformidad con el artículo 47 D, segundo párrafo del Código.
 (ADICIONADO, G.G. 2 DE DICIEMBRE DE 2013)
@@ -21,6 +20,10 @@ B). Se suspenderán temporalmente los efectos de su registro para formular dicta
 (REFORMADO, G.G. 2 DE DICIEMBRE DE 2013)
 2. El Contador Público acumule dos amonestaciones.
 3. No formule el dictamen debiendo hacerlo.
+(ADICIONADO, G.G. 21 DE DICIEMBRE DE 2022)
+4. Formule dictamen sin contar con la certificación vigente a la que se refiere el artículo 47 D inciso B), de este Código.
+(ADICIONADO, G.G. 21 DE DICIEMBRE DE 2022)
+La suspensión a que se refiere este inciso, comenzará a partir del día hábil siguiente al de la presentación del o los dictámenes formulados por el Contador Público Registrado sin que este cuente con el requisito antes mencionado y cesará hasta que este, acredite ante la autoridad fiscal competente, que cuenta con la certificación vigente requerida, en términos de lo dispuesto por las Reglas de Carácter General correspondientes, que al efecto emita y publique la Secretaría en el Periódico Oficial.
 En el caso de que el Contador Público se encuentre sujeto a proceso por la comisión de delitos de carácter fiscal o delitos intencionales que ameriten pena corporal, se suspenderán temporalmente los efectos de su registro durante el tiempo que se encuentre sujeto a dicho proceso.
 C). Se cancelará definitivamente su registro para formular dictamen, revocándose la autorización otorgada, cuando:
 (REFORMADO, G.G. 2 DE DICIEMBRE DE 2013)
