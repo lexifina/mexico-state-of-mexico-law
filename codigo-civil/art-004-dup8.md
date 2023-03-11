@@ -14,4 +14,6 @@ VIII. La embriaguez habitual y el uso indebido y persistente de estupefacientes,
 IX. Las enfermedades crónicas e incurables que sean contagiosas o hereditarias. Salvo cuando por escrito sean aceptadas por el otro contrayente.
 X. Trastornos mentales, aunque haya espacios de lucidez;
 XI. El matrimonio subsistente de alguno de los contrayentes.
+(ADICIONADA, G.G. 10 DE MARZO DE 2023)
+XII. Que sea concertado por tradiciones, usos, o costumbres que coaccionen la voluntad de la o del contrayente y vulneren su dignidad y libre desarrollo personal.
 Imposibilidad de matrimonio entre adoptante y adoptado
