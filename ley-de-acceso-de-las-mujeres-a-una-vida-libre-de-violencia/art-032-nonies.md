@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 11 DE MAYO DE 2023)
+Artículo 32 Nonies.- En los casos donde la persona agresora pertenezca a los cuerpos policiacos, militares o de seguridad, ya sea de corporaciones públicas o privadas, la autoridad que emita la orden de protección solicitará al superior jerárquico o a la empresa privada donde labore la persona agresora, el retiro del arma de cargo o de cualquier otra que tenga registrada.

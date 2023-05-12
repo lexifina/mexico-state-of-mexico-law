@@ -1,8 +1,9 @@
-(ADICIONADO, G.G. 27 DE JUNIO DE 2014)
-Artículo 31 Bis.- Son órdenes de protección de naturaleza civil las siguientes:
-I. Suspensión temporal al agresor del régimen de visitas y convivencia con sus descendientes;
-II. Prohibición al agresor de enajenar o hipotecar bienes de su propiedad cuando se trate del domicilio conyugal; y en cualquier caso cuando se trate de bienes de la sociedad conyugal;
-III. Posesión exclusiva de la víctima sobre el inmueble que sirvió de domicilio;
-IV. Embargo preventivo de bienes del agresor, que deberá inscribirse con carácter temporal en el Instituto de la Función Registral del Estado de México, a efecto de garantizar las obligaciones alimentarias; y
-V. Obligación alimentaria provisional e inmediata.
-Serán tramitadas ante los juzgados de lo familiar o a falta de éstos ante los juzgados civiles que correspondan.
+(REFORMADO, G.G. 11 DE MAYO DE 2023)
+Artículo 31 Bis.- Para la emisión de las órdenes de protección las autoridades administrativas, el Ministerio Público o el órgano jurisdiccional competente tomará en consideración:
+I. Los hechos relatados por la niña, la adolescente o la mujer, en situación de violencia, considerando su desarrollo evolutivo y cognoscitivo o por quien lo haga del conocimiento a la autoridad;
+II. Las peticiones explícitas de la niña, la adolescente o la mujer, en situación de violencia, considerando su desarrollo evolutivo y cognoscitivo o de quien informe sobre el hecho;
+III. Las medidas que la mujer víctima, o la madre, padre o persona tutora de la adolescente o la niña víctima considere oportunas, una vez informada de cuáles pueden ser esas medidas. Tratándose de niñas y adolescentes, las medidas siempre serán determinadas atendiendo al principio del interés superior de la niñez; garantizando la representación jurídica a cargo de la Procuraduría de Protección de Niñas, Niños y Adolescentes del Estado de México y/o Procuradurías Municipales de Protección de Niñas Niños y Adolescentes;
+IV. Las necesidades que se deriven de su situación particular analizando su identidad de género, orientación sexual, raza, origen étnico, edad, nacionalidad, discapacidad, religión, así como cualquier otra condición relevante;
+V. La persistencia del riesgo aún después de su salida de un refugio temporal;
+VI. La manifestación de actos o hechos previos de cualquier tipo de violencia que hubiese sufrido la víctima, y
+VII. Las demás establecidas en otras disposiciones legales.

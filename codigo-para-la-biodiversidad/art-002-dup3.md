@@ -18,3 +18,5 @@ XVI. Las acciones tendientes al mejoramiento, a la preservación y conservación
 XVII. El evitar la deforestación promoviendo la protección del paisaje rural y urbano del Estado;
 XVIII. El establecimiento de zoológicos, centros de exhibición de animales domésticos y jardines botánicos para la conservación y preservación de especies raras, endémicas, amenazadas, en peligro de extinción, las sujetas a protección especial y las extintas en el medio silvestre; y
 XIX. Las interacciones del sector acuícola con el medio ambiente y los ecosistemas acuáticos de tal manera que garanticen su uso y aprovechamiento sostenible.
+(ADICIONADA, G.G. 11 DE MAYO DE 2023)
+XX. Fomentar y promover la optimización de la energía en todos los procesos y actividades de la entidad para lograr la eficiencia energética, así como el uso de energías renovables y limpias.

@@ -1,0 +1,3 @@
+(ADICIONADO, G.G. 11 DE MAYO DE 2023)
+Artículo 32 Decies.- Al momento de dictarse sentencia las autoridades judiciales competentes determinarán las órdenes de protección y medidas similares necesarias de manera temporal o durante el tiempo que dure la sentencia.
+Las órdenes de protección podrán ser dictadas de oficio o a solicitud de la mujer en situación de violencia, de su representante legal o del Ministerio Público, tratándose de niñas víctimas de un delito, la autoridad judicial se encuentra obligada a atender el principio de interés superior de la niñez a fin de dictar órdenes de protección, aun cuando no exista una solicitud.

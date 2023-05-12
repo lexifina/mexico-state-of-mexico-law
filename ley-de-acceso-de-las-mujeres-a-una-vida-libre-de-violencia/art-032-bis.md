@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 11 DE MAYO DE 2023)
+Artículo 32 Bis.- Las autoridades administrativas, el Ministerio Público o el órgano jurisdiccional que emita las órdenes de protección, realizará las gestiones necesarias para garantizar su cumplimiento, monitoreo, y ejecución. Para lo anterior se allegará de los recursos materiales y humanos necesarios, asimismo podrá solicitar la colaboración de las autoridades competentes de considerarlo necesario.

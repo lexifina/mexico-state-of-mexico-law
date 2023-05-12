@@ -1,0 +1,5 @@
+G.G. 11 DE MAYO DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 160.- POR EL QUE SE REFORMA LA FRACCIÓN V DEL ARTÍCULO 4.6, LA FRACCIÓN III DEL ARTÍCULO 4.7, LA FRACCIÓN XV DEL ARTÍCULO 4.9, EL ARTÍCULO 4.13 Y LA FRACCIÓN VI DEL ARTÍCULO 4.60; SE ADICIONA LA FRACCIÓN XX AL ARTÍCULO 2.3, LA FRACCIÓN VI BIS AL ARTÍCULO 2.7, LA FRACCIÓN VIII AL ARTÍCULO 2.18, LA FRACCIÓN VI AL ARTÍCULO 4.6, LA FRACCIÓN XVIII AL ARTÍCULO 4.7 Y LA FRACCIÓN XVI BIS AL ARTÍCULO 4.9 DEL CÓDIGO PARA LA BIODIVERSIDAD DEL ESTADO DE MÉXICO, Y SE REFORMA LA FRACCIÓN III DEL ARTÍCULO 125 DE LA LEY ORGÁNICA MUNICIPAL DEL ESTADO DE MÉXICO".]
+PRIMERO.- Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
+SEGUNDO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "Gaceta del Gobierno".
+TERCERO.- Se derogan las disposiciones de igual o menor jerarquía que contravengan lo dispuesto por este Decreto.
