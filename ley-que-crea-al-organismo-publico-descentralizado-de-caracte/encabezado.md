@@ -1,4 +1,4 @@
-LEY QUE CREA AL ORGANISMO PUBLICO DESCENTRALIZADO DE CARACTER ESTATAL DENOMINADO UNIVERSIDAD TECNOLOGICA «FIDEL VELAZQUEZ»
+LEY QUE CREA AL ORGANISMO PÚBLICO DESCENTRALIZADO DE CARÁCTER ESTATAL DENOMINADO UNIVERSIDAD TECNOLÓGICA «FIDEL VELÁZQUEZ»
 Ley publicada en la Sección Primera de la Gaceta del Gobierno del Estado de México, el martes 27 de diciembre de 1994.
 EMILIO CHUAYFFET CHEMOR, Gobernador Constitucional del Estado Libre y Soberano de México, a sus habitantes sabed:
 Que la Legislatura del Estado, ha tenido a bien aprobar lo siguiente:
