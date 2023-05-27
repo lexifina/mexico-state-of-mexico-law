@@ -1,0 +1,7 @@
+(ADICIONADO, G.G. 26 DE MAYO DE 2023)
+Artículo 25 Quáter.- Una vez admitida la solicitud de Alerta de Violencia de Género contra las mujeres, se conformará un Grupo Interinstitucional y Multidisciplinario integrado por la Secretaría de las Mujeres, la Dirección o el Instituto Municipal de las Mujeres, la Comisión de Derechos Humanos del Estado de México, organizaciones de la sociedad civil, incluidas las solicitantes; así como personas e instituciones que se consideren especialistas en derechos humanos de las mujeres.
+El Grupo Interinstitucional y Multidisciplinario tendrá como objetivo fundamental analizar, valorar y emitir recomendaciones que mejoren la implementación de acciones que se generen con motivo de la Alerta de Violencia de Género contra las mujeres, a través de las siguientes acciones:
+A. Proponer a las instancias competentes las acciones y medidas preventivas, correctivas, de seguridad, de procuración e impartición de justicia, de reparación del daño y legislativas que correspondan, para ser establecidas en la Alerta de Violencia de Género contra las mujeres;
+B. Brindar asesoría técnica a las autoridades encargadas de instrumentar las medidas señaladas en la Alerta de Violencia de Género contra las mujeres, y
+C. Analizar y dictaminar los informes periódicos presentados por las autoridades responsables de cumplir con la Alerta de Violencia de Género contra las mujeres.
+Dichos informes y dictámenes deberán presentarse anualmente.

@@ -1,0 +1,4 @@
+(ADICIONADO, G.G. 26 DE MAYO DE 2023)
+Artículo 25 Sexies.- En los casos donde la Secretaría de las Mujeres, identifique y documente alguna circunstancia de procedencia de la Alerta de Violencia de Género contra las mujeres, se podrá emitir por el Gobierno del Estado, a través de la Secretaría General de Gobierno, sin que se requiera la conformación del Grupo Interinstitucional y Multidisciplinario.
+En aquellos casos, donde el Grupo Interinstitucional y Multidisciplinario no culmine el Informe de conclusiones en el periodo establecido, la Secretaría de las Mujeres, realizará el informe correspondiente para que, en su caso, la Secretaría General de Gobierno emita la Alerta de Violencia de Género contra las mujeres.
+La Secretaría de las Mujeres, a solicitud de Grupo Interinstitucional y Multidisciplinario, si se estima necesario, podrá otorgar una prórroga de hasta treinta días hábiles para la emisión de Informe de conclusiones.

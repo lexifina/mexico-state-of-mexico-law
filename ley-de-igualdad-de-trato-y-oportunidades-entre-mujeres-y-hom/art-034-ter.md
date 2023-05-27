@@ -6,4 +6,7 @@ III. Dar cumplimiento a los instrumentos internacionales, nacionales y estatales
 IV. Coadyuvar en la elaboración de sus presupuestos con perspectiva de género, con la finalidad de incorporar acciones relacionadas con la materia;
 V. Informar periódicamente, en el marco del Sistema Estatal, los resultados de la ejecución de sus planes y programas, con el propósito de integrar y rendir el informe anual correspondiente;
 VI. Ser el primer punto de contacto para los casos de acoso y hostigamiento sexual; y
-VII. Las demás que se establezcan en otras disposiciones jurídicas.
+(REFORMADA [N. DE E. ADICIONADA], G.G. 26 DE MAYO DE 2023)
+VII. Brindar asesoramiento especializado, en la materia que le corresponde, al enlace designado ante el mecanismo interinstitucional de seguimiento de las medidas de seguridad, prevención y justicia, para atender y erradicar la violencia contra las niñas, adolescentes y mujeres, previsto en la Ley de Acceso de las Mujeres a una Vida Libre de Violencia del Estado de México, así como coadyuvar con aquél en las responsabilidades que se le encomienden para el cumplimiento de las acciones y acuerdos que se determinen en sus sesiones, y
+(ADICIONADA [N. DE E. REUBICADA], G.G. 26 DE MAYO DE 2023)
+VIII. Las demás que se establezcan en otras disposiciones jurídicas.

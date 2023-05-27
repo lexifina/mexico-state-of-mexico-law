@@ -1,0 +1,3 @@
+(ADICIONADO, G.G. 26 DE MAYO DE 2023)
+Artículo 25 Nonies.- La Secretaría de las Mujeres dará acompañamiento y seguimiento a la Alerta de Violencia de Género contra las mujeres.
+Para el levantamiento de medidas, atendiendo a la naturaleza de las mismas, se tendrá que acreditar fehacientemente su cumplimento (sic), a través de la incorporación en las políticas públicas o legislación, y/o de la disminución sostenida de la violencia identificada en la Declaratoria de la Alerta de Violencia de Género contra las mujeres.
