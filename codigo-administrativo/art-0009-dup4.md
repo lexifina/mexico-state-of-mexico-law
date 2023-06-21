@@ -1,3 +1,5 @@
-Artículo 9.4.- Los municipios podrán participar en las acciones reguladas en este Libro.
+(REFORMADO, G.G. 2 DE JUNIO DE 2023)
+Artículo 9.4.- Los municipios y las instancias públicas y privadas podrán participar y coadyuvar en las acciones reguladas en este Libro.
+(REFORMADA SU DENOMINACIÓN, G.G. 2 DE JUNIO DE 2023)
 CAPITULO TERCERO
-De las organizaciones de productores
+De las personas productoras
