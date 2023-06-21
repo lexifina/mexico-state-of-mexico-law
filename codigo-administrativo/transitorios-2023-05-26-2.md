@@ -1,0 +1,4 @@
+G.G. 26 DE MAYO DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 173.- POR EL QUE SE REFORMA LA FRACCIÓN IV DEL ARTÍCULO 5.3, EL PRIMER PÁRRAFO DEL ARTÍCULO 5.6 Y LA FRACCIÓN II DEL ARTÍCULO 5.26; SE ADICIONAN LAS FRACCIONES XLVI Y XLVII RECORRIÉNDOSE LAS SUBSECUENTES DEL ARTÍCULO 5.3 DEL CÓDIGO ADMINISTRATIVO DEL ESTADO DE MÉXICO".]
+PRIMERO. Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
+SEGUNDO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "Gaceta del Gobierno".
