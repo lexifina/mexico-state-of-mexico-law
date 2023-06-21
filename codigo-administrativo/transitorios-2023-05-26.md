@@ -1,0 +1,4 @@
+G.G. 26 DE MAYO DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO. NÚMERO 170.- POR EL QUE SE REFORMA LA DENOMINACIÓN DEL CAPÍTULO TERCERO DEL TÍTULO TERCERO DEL LIBRO DÉCIMO OCTAVO, EL PRIMER PÁRRAFO Y LAS FRACCIONES I, II Y IX DEL ARTÍCULO 18.47; SE ADICIONA EL ARTÍCULO 18.47 BIS AL CÓDIGO ADMINISTRATIVO DEL ESTADO DE MÉXICO".]
+PRIMERO. Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
+SEGUNDO. Este Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "Gaceta del Gobierno".
