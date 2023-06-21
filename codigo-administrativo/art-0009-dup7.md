@@ -1,5 +1,5 @@
-(REFORMADO PRIMER PÁRRAFO, G.G. 1 DE AGOSTO DE 2019)
-Artículo 9.7. El impulso del desarrollo agropecuario, de la acuacultura, apicultura y el agave tendrá presente en todo momento el desarrollo sustentable de la producción primaria bajo criterios de conservación, recuperación, rehabilitación y uso óptimo de los suelos con rotación y asociación de cultivos, del agua y demás recursos naturales, así como de prevención y mitigación del impacto ambiental y de las emisiones de gases de efecto invernadero de las actividades productivas en los ecosistemas y la biodiversidad.
+(REFORMADO PRIMER PÁRRAFO, G.G. 21 DE JUNIO DE 2022)
+Artículo 9.7.- El impulso del desarrollo agropecuario, de la acuacultura, apicultura y el agave tendrá presente en todo momento un eje prioritario de atender el consumo y comercialización interno (sic) del Estado, atendiendo el desarrollo sustentable de la producción primaria bajo criterios de conservación, recuperación, rehabilitación y uso óptimo de los suelos con rotación y asociación de cultivos, del agua y demás recursos naturales, así como de prevención y mitigación del impacto ambiental y de las emisiones de gases de efecto invernadero de las actividades productivas en los ecosistemas y la biodiversidad.
 (REFORMADO [N. DE E. ESTE PÁRRAFO], G.G. 29 DE SEPTIEMBRE DE 2020)
 Para tal efecto, la Secretaría del Campo promoverá:
 I. La aplicación de métodos, técnicas y prácticas que aseguren la conservación del suelo, el agua y los recursos naturales utilizados en los procesos productivos, así como la reducción de la pérdida de estos recursos, y que hagan posible el mejor aprovechamiento de los mismos;
@@ -8,5 +8,7 @@ III. Que los programas para la tecnificación del riego que realicen los diferen
 IV. La erradicación del sistema de rosa, tumba y quema y de incendios inducidos para fines de explotación agropecuarias.
 (ADICIONADA, G.G. 1 DE AGOSTO DE 2019)
 V. Un modelo de agricultura sostenible, inclusiva y eficaz en el uso de los recursos, a través de la implementación de rotación, asociación de cultivos y cultivos múltiples que lleve a la adaptación de la agroecología.
+(ADICIONADA, G.G. 21 DE JUNIO DE 2022)
+VI. Fomentar y promover la producción y distribución de granos, frutas, legumbres, semillas, así como productos de origen animal que se desarrollen en el territorio mexiquense, teniendo como eje prioritario atender el consumo y comercialización interno del Estado, con políticas y programas de enfoque local.
 CAPITULO SEGUNDO
 De la comercialización

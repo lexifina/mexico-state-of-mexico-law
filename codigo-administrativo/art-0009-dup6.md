@@ -12,3 +12,5 @@ VIII. Los mecanismos que permitan la obtención de financiamientos con tasas pre
 IX. La utilización de instrumentos de mercado para la administración de riesgos. Lo anterior, sin perjuicio de gestionar recursos y apoyos ante los gobiernos federal y municipales para atender a los productores afectados por desastres naturales.
 (ADICIONADA, G.G. 1 DE AGOSTO DE 2019)
 X. La producción agroecológica en el Estado de México, desarrollando programas de capacitación, investigación e inversión para implementar la rotación, cultivos múltiples y asociación de cultivos buscando el equilibrio entre la responsabilidad ecológica, la viabilidad económica y la justicia social en la producción agropecuaria.
+(ADICIONADA, G.G. 21 DE JUNIO DE 2022)
+XI. Fomentar y promover la producción y distribución de granos, frutas, legumbres, semillas, así como productos de origen animal que se produzcan en el territorio mexiquense, teniendo como eje prioritario atender el consumo y comercialización interno del Estado.

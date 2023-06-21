@@ -8,5 +8,7 @@ II. Adoptar las medidas necesarias para llevar a cabo la verificación e inspecc
 III. Vigilar el control sanitario en la movilización de la agricultura, acuacultura, apicultura y el agave, sus productos y subproductos y demás actividades agropecuarias dentro del Estado de México.
 (ADICIONADA, G.G. 1 DE AGOSTO DE 2019)
 IV. Fomentar la rotación, asociación de cultivos y cultivos múltiples para la conservación del suelo y sostenibilidad del campo mexiquense.
+(ADICIONADA, G.G. 21 DE JUNIO DE 2022)
+V. Fomentar y promover la producción y distribución de productos agrícolas que se desarrollen en el campo mexiquense, priorizando el consumo y comercialización interno del Estado.
 (REFORMADA, G.G. 6 DE JUNIO DE 2016)
-V. Las demás que señale este Libro, su Reglamento y otras disposiciones jurídicas aplicables en la materia.
+VI. Las demás que señale este Libro, su Reglamento y otras disposiciones jurídicas aplicables en la materia.
