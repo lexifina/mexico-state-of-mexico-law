@@ -13,5 +13,6 @@ IX. Guardar congruencia en su contenido y, en su caso, con lo solicitado;
 X. Señalar el lugar y la fecha de su emisión, así como los datos relativos a la identificación precisa del expediente, documentos, nombre y domicilio físico o correo electrónico de las personas de que se trate;
 (REFORMADA, G.G. 6 DE ENERO DE 2016)
 XI. Tratándose de actos administrativos que deban notificarse, se hará mención expresa de la dependencia emisora, la oficina en la que se encuentra dicho expediente o el portal electrónico a través del cual puede realizar la consulta del expediente respectivo;
-XII. Tratándose de resoluciones desfavorables a los derechos e intereses legítimos de los particulares, deberá hacerse mención del derecho y plazo que tienen para promover el recurso administrativo de inconformidad o el juicio ante el Tribunal de lo Contencioso Administrativo;
+(REFORMADA, G.G. 22 DE JUNIO DE 2023)
+XII. Tratándose de resoluciones desfavorables a los derechos e intereses legítimos de los particulares, deberá hacerse mención del derecho y plazo que tienen para promover el recurso administrativo de inconformidad o el juicio ante el Tribunal de Justicia Administrativa del Estado de México, y
 XIII. Resolver expresamente todos los puntos propuestos por los interesados o previstos en las disposiciones aplicables.

@@ -1,7 +1,7 @@
 (ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, G.G. 6 DE ENERO DE 2012)
 CAPITULO XI
 IRRUPCION DE EVENTO PUBLICO
-(ADICIONADO, G.G 6 DE ENERO DE 2012)
+(ADICIONADO, G.G. 6 DE ENERO DE 2012)
 Artículo 268 Quater.- Comete este delito quien sin derecho interrumpa de manera intempestiva o violenta un evento público, provocando la suspensión temporal o definitiva de éste, ya sea ingresando al lugar donde se desarrolla o provocando desorden entre la multitud que haya acudido a presenciarlo.
 Para los efectos de este artículo, se considerarán eventos públicos:
 a) El espectáculo deportivo, artístico o cultural;

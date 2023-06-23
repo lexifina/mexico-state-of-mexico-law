@@ -9,7 +9,8 @@ V. Proponer al Consejo Directivo los precios, cuotas y tarifas para el cobro de 
 VI. Ejecutar los acuerdos y disposiciones del Consejo Directivo, dictando las medidas necesarias para su cumplimiento;
 VII. Presentar al Consejo Directivo, los proyectos de presupuestos de ingresos y egresos y los programas de trabajo y financiamiento para el siguiente año;
 VIII. Presentar al Consejo Directivo, dentro de los tres primeros meses del año, los estados financieros y el informe de actividades del ejercicio anterior;
-IX. Proponer, elaborar, supervisar y evaluar los acuerdos y convenios de coordinación y colaboración en materia de información e investigación geográfica, estadística y catastral que celebre con las dependencias de la administración pública federal, entidades federativas y con los ayuntamientos;
+(REFORMADA, G.G. 22 DE JUNIO DE 2023)
+IX. Proponer, elaborar, supervisar, y evaluar los acuerdos y convenios de coordinación y colaboración en materia de información e investigación geográfica, estadística y catastral que celebre con los entes de la administración pública federal, entidades federativas, los ayuntamientos y entidades del sector privado;
 X. Asumir mediante convenio las actividades geográficas, estadísticas y catastrales de los ayuntamientos del Estado de México, cuando se considere procedente y medie solicitud;
 XI. Elaborar el Programa Estatal;
 XII. Establecer los procedimientos técnicos y administrativos en materia geográfica, estadística y catastral y verificar su cumplimiento, en los términos de este Libro, su Reglamento y demás disposiciones legales aplicables;

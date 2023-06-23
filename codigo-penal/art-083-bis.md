@@ -9,7 +9,8 @@ II. Tratándose del delito de robo con violencia solo cuando el monto de lo roba
 III. Que la pena privativa de libertad sea desde tres años hasta quince años;
 IV. Que sea solicitado dentro de los dos años antes de tener derecho a la libertad condicional;
 V. Que pague la reparación del daño y la multa impuesta;
-VI. Que el Patronato de Ayuda para la Prevención y Readaptación Social o alguna persona con reconocida solvencia moral y arraigo, se obligue a supervisar y cuidar que el beneficiado cumpla con las condiciones impuestas al momento de su liberación, la cual deberá residir en la misma localidad a la que se integrará el beneficiado;
+(REFORMADA, G.G. 22 DE JUNIO DE 2023)
+VI. Que alguna persona con reconocida solvencia moral y arraigo se obligue a supervisar y cuidar que el beneficiado cumpla con las condiciones impuestas al momento de su liberación, la cual deberá residir en la misma localidad a la que se integrará el beneficiado;
 VII. Que compruebe contar en el exterior con un ofrecimiento de trabajo, un oficio, arte o profesión que le permita tener ingresos, o exhiba las constancias que acrediten que continuará estudiando;
 VIII. Que cuente con apoyo familiar o de la sociedad civil que garantice su vinculación a las condiciones que le fueron fijadas para el otorgamiento del beneficio;
 IX. Que no se encuentre sujeto a ningún proceso pendiente por causa distinta ni tener sentencia ejecutoriada que cumplir en reclusión del fuero común o federal, sea cual fuere el delito;

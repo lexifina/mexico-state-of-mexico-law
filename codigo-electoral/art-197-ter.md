@@ -9,7 +9,8 @@ VI. No poner en conocimiento del Consejo General todo acto tendiente a vulnerar 
 VII. No preservar los principios que rigen el funcionamiento del Instituto en el desempeño de sus labores.
 VIII. Emitir opinión pública que implique prejuzgar sobre un asunto de su conocimiento.
 IX. Dejar de desempeñar las funciones o las labores que tenga a su cargo.
-X. Las previstas, en lo conducente, en el artículo 42 de la ley de Responsabilidades de los Servidores Públicos del Estado y municipios, y
+(REFORMADA, G.G. 22 DE JUNIO DE 2023)
+X. Las previstas, en lo conducente, en la Ley de Responsabilidades Administrativas del Estado de México y Municipios, y
 XI. Las demás que determine este Código o las leyes que resulten aplicables.
 (REFORMADA SU DENOMINACIÓN, G.G. 31 DE MAYO DE 2016)
 CAPÍTULO SEXTO
