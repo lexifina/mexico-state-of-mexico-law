@@ -1,0 +1,7 @@
+(ADICIONADO, G.G. 20 DE OCTUBRE DE 2023)
+Artículo 270 Bis.- Las penas previstas para el abuso sexual se aumentarán hasta en una tercera parte en su mínimo y máximo, cuando:
+I. Se hiciere uso de la violencia física o moral;
+II. El delito fuere cometido por uno de los cónyuges, por un ascendiente contra su descendiente, por éste contra aquél, por un hermano contra otro, por el tutor en contra de su pupilo o por el padrastro, madrastra, concubina, concubinario, amasio o amasia en contra del hijastro o hijastra. Además de la pena de prisión, el culpable perderá la patria potestad o la tutela, en los casos en que la ejerciere sobre la víctima;
+III. Cuando el delito sea cometido por quienes tengan o hayan tenido relación con la víctima por motivos laborales, docentes, médicos, domésticos, religiosos o cualquier otro que implique confianza o subordinación. Además de la pena de prisión, si el delito es contra una persona menor de edad, el condenado será destituido del cargo o empleo, inhabilitado o suspendido hasta por el término de cinco años en el ejercicio de su profesión, independientemente de las sanciones a que se haga acreedor, y
+IV. Cuando el ofendido tenga alguna discapacidad, que limite las actividades de su vida diaria e impida su desarrollo individual y social.
+Es obligación de quien ejerza la patria potestad de las niñas, niños y adolescentes, hacer del conocimiento o denunciar ante las instancias competentes, cualquier presunto caso de abuso sexual en su contra.
