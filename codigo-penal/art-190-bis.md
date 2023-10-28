@@ -1,0 +1,4 @@
+(ADICIONADO, G.G. 27 DE OCTUBRE DE 2023)
+Artículo 190 Bis.- A quien realice la ilegítima sustracción, apoderamiento, comercialización, detentación o posesión del equipamiento o mobiliario urbano, se le impondrá una pena de dos a cuatro años de prisión y hasta mil veces la Unidad de Medida y Actualización.
+Para efectos del presente artículo se entenderá por mobiliario urbano los elementos complementarios al equipamiento urbano, ya sean fijos, móviles, permanentes o temporales, ubicados en la vía pública o en espacios públicos formando parte de la imagen de la Ciudad, los que, según su función, se aplican para el descanso, comunicación, información, necesidades fisiológicas, comercio, seguridad, higiene, servicio, jardinería, así como aquellos otros muebles que determinen la Secretaría de Desarrollo Urbano e Infraestructura, o su equivalente.
+En el caso de tapas de registro o rejillas de alcantarillado propiedad gubernamental se aumentará la pena hasta en una mitad.
