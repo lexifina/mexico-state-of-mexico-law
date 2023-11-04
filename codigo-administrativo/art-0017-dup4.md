@@ -17,6 +17,8 @@ a) Infraestructura Vial Primaria.- La integrada por carreteras, pasos vehiculare
 b) Infraestructura Vial Local.- La integrada por pasos vehiculares, avenidas, calzadas, calles y cerradas que permiten la comunicación al interior del municipio y la integración con la red vial primaria.
 (REFORMADA, G.G. 28 DE AGOSTO DE 2015)
 VI. Publicidad Exterior.- Toda forma de difusión de mensajes mediante el uso de anuncios, carteles o cualquier otro medio de comunicación visual o auditiva que para su instalación requieran el concurso de diversos elementos, tales como estructuras, soportes, cartelera, pantalla, equipamientos u otros, que siempre serán considerados como una unidad integral y estén colocados o instalados dentro del derecho de vía y puedan ser observados o escuchados desde la infraestructura vial primaria sea de cuota, libre de peaje o de uso restringido y local incluyendo sus elementos complementarios;
+(ADICIONADO, G.G. 3 DE NOVIEMBRE DE 2023)
+a) Publicidad Sexista.- Todo contenido publicitario que utilice la imagen de la mujer con carácter vejatorio o discriminatorio.
 (ADICIONADA, G.G. 22 DE ENERO DE 2014)
 VI Bis. Responsable de un Inmueble.- Persona física o jurídica colectiva que tenga la propiedad, posesión, administración, disposición, uso o disfrute de un bien inmueble y permita la instalación de un anuncio con o sin estructura en su interior, dentro del derecho de vía; quien será responsable solidario en los términos del capítulo tercero de este Libro;
 (ADICIONADA, G.G. 22 DE ENERO DE 2014)
