@@ -1,5 +1,6 @@
 Artículo 3.2.- Las disposiciones de este Libro tienen como finalidad:
-I. Garantizar y fortalecer el derecho de todo individuo a recibir educación;
+(REFORMADA, G.G. 1 DE DICIEMBRE DE 2023)
+I. Garantizar y fortalecer el derecho de todo individuo a recibir educación, el respeto a sus derechos humanos sin discriminación, desigualdad, ni violencia;
 (ADICIONADA, G.G. 11 DE OCTUBRE DE 2012)
 II. Erradicar el analfabetismo en la Entidad;
 III. Asegurar que quienes ejerzan una profesión cuenten con los conocimientos necesarios para ello;

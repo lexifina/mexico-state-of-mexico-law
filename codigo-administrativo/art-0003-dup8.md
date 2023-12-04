@@ -19,11 +19,11 @@ XIII. Promover que las instituciones que forman parte del sistema educativo esta
 (ADICIONADA, G.G. 11 DE OCTUBRE DE 2012)
 XIV. Impulsar el establecimiento de centros de desarrollo infantil con el apoyo de los municipios y de los beneficiarios de los servicios;
 XV. Impulsar el establecimiento de centros de desarrollo infantil y de educación para adultos, con el apoyo de los municipios y de los beneficiarios de los servicios;
-(REFORMADA, G.G. 12 DE MAYO DE 2010)
-XVI. Promover y favorecer la sana alimentación y la activación física, la educación para la salud, sexual, civismo, ética, fomento al respeto a la mujer, ambiental, las bellas artes y el deporte, así como la enseñanza de un idioma extranjero, preferentemente el inglés, en todos los tipos y niveles educativos;
+(REFORMADA, G.G. 1 DE DICIEMBRE DE 2023)
+XVI. Promover y favorecer la sana alimentación y la activación física, la educación para la salud, sexual y reproductiva donde se considere la gestión menstrual, civismo, ética, fomento al respeto a la mujer, ambiental, las bellas artes y el deporte, así como la enseñanza de un idioma extranjero, preferentemente el inglés, en todos los tipos y niveles educativos;
 XVII. Promover la incorporación de los estudiantes de las instituciones públicas y privadas a los servicios de atención médica;
-(REFORMADA, G.G. 16 DE MARZO DE 2011)
-XVIII. Propiciar, en coordinación con las instituciones del sector salud y asistenciales, la orientación para la prevención y detección temprana de enfermedades; así como la integración de los niños en edad escolar, condición vulnerable e infortunio familiar a los servicios de educación básica;
+(REFORMADA, G.G. 1 DE DICIEMBRE DE 2023)
+XVIII. Propiciar, en coordinación con las instituciones del sector salud y asistenciales, la orientación para la prevención y detección temprana de enfermedades; así como la integración de las niñas, niños y adolescentes en edad escolar, condición vulnerable e infortunio familiar a los servicios de educación básica;
 XIX. Promover la utilización de los medios de comunicación para acrecentar la educación y la cultura en la entidad;
 XX. Establecer políticas para el magisterio orientadas a la obtención de mejores condiciones académicas, profesionales, sociales, incluida la vivienda digna, culturales y económicas, de conformidad con lo dispuesto por la Ley General de Educación;
 XXI. Operar los sistemas de créditos y equivalencias que faciliten el tránsito de educandos entre las diferentes instituciones y planteles del sistema educativo estatal, de acuerdo a las disposiciones legales aplicables;
@@ -32,3 +32,5 @@ XXII. Vigilar el cumplimiento de las disposiciones jurídicas, políticas y plan
 XXIII. Imponer sanciones;
 (REFORMADA, G.G. 15 DE AGOSTO DE 2008)
 XXIV. Propiciar, en coordinación con las autoridades federales y municipales, programas de educación ambiental en los planteles educativos del Estado de México, buscando que los contenidos teóricos de los programas de estudio se vinculen con proyectos prácticos, que fomenten la conciencia ambiental de los estudiantes.
+(ADICIONADA, G.G. 1 DE DICIEMBRE DE 2023)
+XXV. Diseñar e implementar planes, programas y acciones donde se priorice el interés superior de niñas, niños y adolescentes, la igualdad de género y la gestión menstrual, así como otorgar becas de acuerdo con los recursos financieros con los que se cuente y demás apoyos económicos para este tipo de gestión.

@@ -11,5 +11,7 @@ VIII. Promover la gestión de recursos para contribuir a la atención de las nec
 IX. Promover y apoyar los programas y acciones de capacitación y difusión dirigidas a los padres de familia y tutores, para que orienten y guíen adecuadamente la educación de sus hijos o pupilos, así como para fortalecer la integración familiar;
 (ADICIONADA, G.G. 15 DE AGOSTO DE 2008)
 X. Implementar, en coordinación con las autoridades federales y estatales, programas de educación ambiental en las comunidades de los municipios, buscando se vinculen con proyectos prácticos, que fomenten la conciencia ambiental de sus habitantes.
+(ADICIONADA, G.G. 1 DE DICIEMBRE DE 2023)
+XI. Diseñar e implementar planes, programas y acciones donde se priorice el interés superior de niñas, niños y adolescentes, la igualdad de género y la gestión menstrual, y en su caso, de acuerdo con los recursos financieros con los que se cuente otorgar becas y demás apoyos económicos para este tipo de gestión.
 CAPITULO SEGUNDO
 Del Sistema Educativo Estatal
