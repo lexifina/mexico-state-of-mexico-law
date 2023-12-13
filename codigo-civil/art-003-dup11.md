@@ -4,7 +4,9 @@ Artículo 3.10.- El acta de nacimiento contendrá lugar y fecha de registro, fec
 En todos los casos que se requiera, el oficial registrará en el acta de nacimiento el nombre solicitado, con estricto apego a las formas orales, funcionales y simbólicas de comunicación pertenecientes a las lenguas indígenas.
 (ADICIONADO, G.G. 1 DE AGOSTO DE 2019)
 Las copias certificadas de las actas de nacimiento expedidas por el Registro Civil tendrán vigencia permanente, en tanto mantengan lo establecido en el párrafo primero de este artículo; por lo que, para la realización de trámites y servicios ante cualquier institución pública o privada, bastará con que sean legibles y no presenten alteraciones que dañen el estado físico del documento.
-Por ningún motivo se asentará en el acta que el presentado es adulterino o incestuoso, aún cuando así apareciere de las declaraciones.
+(REFORMADO, G.G. 12 DE DICIEMBRE DEL 2023)
+Por ningún motivo se asentará en el acta del presentado algún adjetivo que vulnere su dignidad.
 (REFORMADO, G.G. 7 DE MAYO DE 2015)
 Si el presentado aparece como hijo de padres desconocidos, el Oficial del Registro Civil le pondrá nombre, sin hacer mención de esta circunstancia en el acta.
-Acta de nacimiento del hijo de matrimonio
+(REFORMADO SU EPÍGRAFE, G.G. 12 DE DICIEMBRE DEL 2023)
+Acta de nacimiento de la hija o hijo
