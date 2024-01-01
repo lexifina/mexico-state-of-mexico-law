@@ -1,6 +1,6 @@
 (DEROGADO SEGUNDO PÁRRAFO, G.G. 19 DE NOVIEMBRE DE 2015)
-(REFORMADO, G.G. 6 DE DICIEMBRE DE 2002)
-Artículo 196 Bis.- El Ayuntamiento deberá proponer las modificaciones para efectos de actualización de la Tabla de Valores Unitarios de Construcciones, adjuntando los soportes técnicos correspondientes, considerando los siguientes métodos:
+(REFORMADO PRIMER PÁRRAFO, G.G. 28 DE DICIEMBRE DE 2023)
+Artículo 196 Bis.- En las modificaciones para efectos de actualización de la Tabla de Valores Unitarios de Construcciones, se deberán incluir los soportes técnicos correspondientes, considerando los siguientes métodos:
 (REFORMADA, G.G. 27 DE DICIEMBRE DE 2005)
 I. Se determinará el costo de ejecución empleando el método directo, que considera el precio de los materiales y mano de obra, mediante el análisis y cálculo de números generadores, especificaciones y cuantificaciones de obra, y cálculo de costos por partida, para obtener el costo final de la obra, considerándose adicionalmente los costos indirectos por unidad de medida, para cada una de las tipologías clasificadas en la Tabla de Valores Unitarios de Construcciones, de acuerdo a lo que establece el reglamento de este Título y el Manual Catastral.
 (REFORMADA, G.G. 27 DE DICIEMBRE DE 2005)

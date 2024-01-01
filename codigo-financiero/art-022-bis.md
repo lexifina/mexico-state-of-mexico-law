@@ -18,11 +18,11 @@ En el caso de que la autoridad, no reciba el acuse de recibo por parte del contr
 Cuando se realicen notificaciones por medios electrónicos se tendrá como fecha de notificación la que corresponda al acuse de recibo y surtirá efectos a partir del día hábil siguiente.
 (ADICIONADO, G.G. 19 DE DICIEMBRE DE 2012
 Las notificaciones que deban realizar los terceros habilitados, serán únicamente respecto de los actos a que se refiere el artículo 20 Bis de este ordenamiento, y se realizarán conforme a las siguientes formalidades:
-(ADICIONADO, G.G. 19 DE DICIEMBRE DE 2012
-El tercero habilitado deberá mostrar a la persona a quien realice la notificación del acto, la constancia que lo acredite como tal.
-(ADICIONADO, G.G. 19 DE DICIEMBRE DE 2012
-Al constituirse en el domicilio del destinatario de los actos, el notificador deberá identificarse con la constancia a que se refiere el párrafo anterior.
-(ADICIONADO, G.G. 19 DE DICIEMBRE DE 2012
-Si la persona o su representante no se encontraren en el momento en que se practica la notificación, el notificador podrá realizarla con la persona que se encuentre en el domicilio, siempre y cuando se cerciore que el domicilio corresponde al destinatario del acto a notificar y la persona que atiende la diligencia cuente con capacidad de ejercicio.
-(ADICIONADO, G.G. 19 DE DICIEMBRE DE 2012
-La entrega del acto se hará constar en un acuse de recibo, el que deberá contener los datos del acto notificado, de la persona con quien se entendió la diligencia y del cercioramiento del domicilio que realizó el notificador.
+(REFORMADO, G.G. 28 DE DICIEMBRE DE 2023)
+1. El tercero habilitado deberá mostrar a la persona ante quien realice la notificación del acto, la constancia que lo acredite como tal.
+(ADICIONADO [N. DE E. REFORMADO], G.G. 28 DE DICIEMBRE DE 2023)
+2. Al constituirse en el domicilio del destinatario de los actos, el notificador deberá identificarse con la constancia a que se refiere el párrafo anterior.
+(ADICIONADO [N. DE E. REFORMADO], G.G. 28 DE DICIEMBRE DE 2023)
+3. Si la persona o su representante no se encontraren en el momento en que se practica la notificación, el notificador podrá realizarla con la persona que se encuentre en el domicilio, siempre y cuando se cerciore que el domicilio corresponde al destinatario del acto a notificar y la persona que atiende la diligencia cuente con capacidad de ejercicio.
+(REFORMADO, G.G. 28 DE DICIEMBRE DE 2023)
+4. El acto de entrega física se hará constar en un documento que tendrá los efectos de acuse de recibo, el cual deberá contener los datos del acto administrativo notificado, los de la persona con quien se entendió la diligencia y los relativos al cercioramiento del domicilio que realizó el notificador, entregándole al notificado o a la persona que atienda la diligencia, un tanto del documento original a que se refiere la notificación.

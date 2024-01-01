@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 28 DE DICIEMBRE DE 2023)
+Artículo 69 V.- Están obligadas al pago de este impuesto, las personas físicas y las jurídicas colectivas que realicen actividades con fines de lucro, independientemente de su naturaleza jurídica, financiera y fiscal, domicilio fiscal y que bajo cualquier título, por sí mismas o a través de intermediarios, depositen, desechen o descarguen sustancias contaminantes en el agua en el territorio del Estado, como resultado de sus actividades.

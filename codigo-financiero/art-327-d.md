@@ -1,6 +1,6 @@
 (REFORMADO PRIMER PÁRRAFO, G.G. 2 DE DICIEMBRE DE 2013)
 Artículo 327-D.- La Secretaría y la Contraloría, en el ámbito de sus competencias, evaluarán el desempeño conforme a este Código y verificarán periódicamente los resultados de la ejecución de los programas de las Dependencias y Entidades Públicas, a fin de que en su caso, se adopten las medidas necesarias, para corregir las desviaciones detectadas.
-(REFORMADO, G.G. 31 DE ENERO DE 2022)
-Las dependencias a través de las Unidades de Información, Planeación, Programación y Evaluación, así como las entidades públicas, por conducto de sus dependencias coordinadoras de sector, enviarán a la Secretaría dentro de los primeros diez días hábiles posteriores al cierre del trimestre inmediato anterior sus avances del informe programático-presupuestal, sin detrimento de la actualización periódica que hagan de sus indicadores contenidos en el Sistema Integral de Evaluación del Desempeño.
+(REFORMADO, G.G. 28 DE DICIEMBRE DE 2023)
+Las dependencias a través de las Unidades de Información, Planeación, Programación y Evaluación o equivalente, así como las entidades públicas, por conducto de sus dependencias coordinadoras de sector; enviarán a la Secretaría dentro de los primeros diez días hábiles posteriores al cierre del trimestre inmediato anterior, sus avances del informe programático-presupuestal, sin detrimento de la actualización periódica que hagan de sus indicadores contenidos en el Sistema Integral de Evaluación del Desempeño.
 (REFORMADO, G.G. 2 DE DICIEMBRE DE 2013)
 Al efecto, se llevará a cabo la revisión, seguimiento y evaluación del desempeño en el cumplimiento de objetivos y metas establecidas en los proyectos aprobados, contra los resultados del ejercicio del Presupuesto de Egresos.

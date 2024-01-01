@@ -1,4 +1,4 @@
-(ADICIONADO, G.G. 27 DE MARZO DE 2008)
-Artículo 230-E.- La Secretaría deberá efectuar los depósitos correspondientes a las retenciones y pagos a que se refiere el artículo 230 B del Código, dentro de los 5 días siguientes a la realización de la afectación correspondiente.
+(REFORMADO PRIMER PÁRRAFO, G.G. 28 DE DICIEMBRE DE 2023)
+Artículo 230-E.- La Secretaría deberá efectuar los depósitos correspondientes a las retenciones y pagos, a que se refiere el artículo 230 B del Código, dentro de los 5 días siguientes a la recepción de la documentación completa, relacionada con el pago por este concepto.
 (REFORMADO, G.G. 2 DE DICIEMBRE DE 2013)
 En caso de que los recursos del Fondo previsto en la fracción IV del artículo 228 del presente ordenamiento no sean suficientes para cubrir las obligaciones de pago de derechos y aprovechamientos por concepto de agua que correspondan a la Comisión Nacional del Agua y a la Comisión de Agua del Estado de México, la Secretaría efectuará los depósitos de manera proporcional al monto del derecho y/o aprovechamiento correspondiente al volumen suministrado y al volumen de descarga. Sin perjuicio de lo anterior, los saldos pendientes deberán cubrirse conforme se reciban las aportaciones futuras de dicho Fondo.

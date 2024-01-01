@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 28 DE DICIEMBRE DE 2023)
+Artículo 69 V Sexies.- Para determinar la base gravable las autoridades fiscales podrán considerar los libros y registros de contaminantes, cual sea su denominación, que los contribuyentes obligados al pago del impuesto deban tener conforme a las disposiciones legales sean de carácter fiscal, mercantil, ambiental o para dar cumplimiento a las Normas Oficiales Mexicanas en materia de ecología y medio ambiente.

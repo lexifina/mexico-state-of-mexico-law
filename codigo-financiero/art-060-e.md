@@ -7,20 +7,19 @@ Artículo 60 E.- Este impuesto se calculará como a continuación se indica:
 (ACTUALIZADO EN SUS CUOTAS Y TARIFAS, G.G. 1 DE ENERO DE 2014)
 I. En el caso de automóviles destinados al transporte particular de hasta quince pasajeros, motocicletas y embarcaciones, el impuesto será el que resulte de aplicar el procedimiento siguiente:
 A). El valor total del vehículo se multiplicará por el factor de depreciación, de acuerdo al año modelo del vehículo, de conformidad con la siguiente:
-(REFORMADA EN SUS TARIFAS, G.G. 23 DE DICIEMBRE DE 2019)
+(REFORMADA EN SUS TARIFAS, G.G. 28 DE DICIEMBRE DE 2023)
 TABLA
-Años deFactor de
-antigüedaddepreciación
+Años de antigüedadFactor de depreciación
 01
-10.850
-20.725
-30.600
-40.500
-50.400
-60.300
-70.225
-80.150
-9 y 100.075
+10.900
+20.775
+30.650
+40.550
+50.450
+60.350
+70.275
+80.200
+9 y 100.125
 B). La cantidad obtenida conforme al inciso anterior, se actualizará de acuerdo con el factor de actualización determinado con base en lo establecido en el primer párrafo del artículo 60 C de este Código.
 (REFORMADO [N. DE E. ESTE PÁRRAFO], G.G. 23 DE DICIEMBRE DE 2019)
 C). Al resultado obtenido en el inciso anterior, se le aplicará una tasa del 3% para determinar el monto del impuesto a pagar.
@@ -84,4 +83,11 @@ AÑOS DE ANTIGÜEDADFACTOR DE ANTIGÜEDAD
 170.20
 18 y en adelante0.25
 Las tarifas de la presente fracción se actualizarán cada ejercicio fiscal, aplicando el factor de actualización a que hace referencia el artículo 70 del Código Financiero del Estado de México y Municipios.
+(ADICIONADA, G.G. 28 DE DICIEMBRE DE 2023)
+V. Tratándose de automóviles destinados al transporte particular, con capacidad de hasta quince pasajeros y con valor total superior a $1,000,001.00 depreciado y actualizado; aplicando el procedimiento dispuesto por los incisos A) y B) de la fracción I de este artículo, la tarifa del impuesto a pagar se determinará ubicando el valor resultante, en la siguiente tabla:
+Rango de valor depreciado y actualizadoTarifa
+De 1,000,001 a 2,000,000$30,000
+De 2,000,001 a 3,000,000$40,000
+De 3,000,001 en adelante$50,000
+Esta fracción no será aplicable para vehículos con antigüedad mayor a 10 años, en cuyo caso, se aplicará lo dispuesto en la fracción IV del presente artículo.
 Para los efectos de este artículo, se entiende por vehículos destinados a transporte de más de 15 pasajeros o para el transporte de carga, los camiones, vehículos pick up sin importar la capacidad de carga, tractores no agrícolas tipo quinta rueda, así como minibuses, microbuses y autobuses integrales, cualquiera que sea su tipo y capacidad de carga.
