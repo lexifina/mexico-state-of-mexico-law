@@ -9,7 +9,8 @@ Tratándose de proyectos de inversión pública productiva que se pretendan cont
 Dichas evaluaciones deberán ser públicas a través de las páginas oficiales de internet de la Secretaría o de los municipios según corresponda.
 IV. Solo procederá hacer pagos con base en el Presupuesto de Egresos autorizado, y por los conceptos efectivamente devengados, siempre que se hubieren registrado y contabilizado debida y oportunamente las operaciones consideradas en éste.
 V. La asignación global de servicios personales aprobada originalmente en el Presupuesto de Egresos no podrá incrementarse durante el ejercicio fiscal. Lo anterior, exceptuando el pago de sentencias laborales definitivas emitidas por la autoridad competente.
-La Secretaría o la Tesorería en el ámbito de sus respectivas competencias, contarán con un sistema de registro y control de las erogaciones de servicios personales.
+(REFORMADO, G.G. 5 DE ABRIL DE 2024)
+La Secretaría o la Tesorería, en coordinación con la Oficialía Mayor, en el ámbito de sus respectivas competencias, contarán con un sistema de registro y control de las erogaciones de servicios personales.
 VI. Deberán tomar medidas para racionalizar el gasto corriente.
 Los ahorros y economías generados como resultado de la aplicación de dichas medidas, así como los ahorros presupuestarios y las economías que resulten por concepto de un costo financiero de la deuda pública menor al presupuestado, deberán destinarse en primer lugar a corregir desviaciones del balance presupuestario de recursos disponibles negativo, y en segundo lugar a los programas prioritarios del Estado.
 VII. En materia de subsidios se deberá identificar la población objetivo, el propósito o destino principal y la temporalidad de su otorgamiento. Los mecanismos de distribución, operación y administración de los subsidios deberán garantizar que los recursos se entreguen a la población objetivo y reduzcan los gastos administrativos del programa correspondiente.

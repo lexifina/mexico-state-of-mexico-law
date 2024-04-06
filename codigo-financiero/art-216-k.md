@@ -3,9 +3,10 @@ Artículo 216-K.- El fideicomiso constituido al efecto contará con un Comité T
 (REFORMADA, G.G. 29 DE SEPTIEMBRE DE 2020)
 I. La Secretaría del Campo;
 II. La Secretaría de Finanzas;
-III. La Secretaría del Medio Ambiente;
-(REFORMADA, G.G. 29 DE SEPTIEMBRE DE 2020)
-IV. La Secretaría de Desarrollo Urbano y Obra;
+(REFORMADA, G.G. 5 DE ABRIL DE 2024)
+III. La Secretaría del Medio Ambiente y Desarrollo Sostenible;
+(REFORMADA, G.G. 5 DE ABRIL DE 2024)
+IV. La Secretaría del Agua;
 V. El organismo público descentralizado de carácter estatal denominado Protectora de Bosques del Estado de México;
 VI. El organismo público descentralizado de carácter estatal denominado Comisión del Agua del Estado de México;
 VII. Los organismos públicos descentralizados municipales prestadores de los servicios de agua potable, alcantarillado y saneamiento;
