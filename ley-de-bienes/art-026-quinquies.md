@@ -10,5 +10,5 @@ VII. Seguros que deberá presentar el permisionario durante la construcción y o
 VIII. Vigencia del permiso;
 IX. Características de la construcción Y condiciones de conservación, mantenimiento y operación; y
 X. Causas de revocación y terminación.
-(REFORMADO, G.G. 29 DE SEPTIEMBRE DE 2020)
-Una vez otorgado el permiso correspondiente, la Secretaría de Movilidad deberá hacerlo del conocimiento de la Secretaría de Finanzas para el efecto de que actualice el inventario patrimonial y el régimen jurídico de los bienes propiedad del Estado.
+(REFORMADO, G.G. 5 DE ABRIL DE 2024)
+Una vez otorgado el permiso correspondiente, la Secretaría de Movilidad deberá hacerlo del conocimiento de la Oficialía Mayor para el efecto de que actualice el inventario patrimonial y el régimen jurídico de los bienes propiedad del Estado.

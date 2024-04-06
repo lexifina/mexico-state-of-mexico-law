@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 5 DE ABRIL DE 2024)
+Artículo 11 Ter. La Agencia Digital coordinará con la Presidencia del Consejo la implementación, desarrollo y fomento de las políticas de Gobierno Digital y uso estratégico de las tecnologías de la información en el ejercicio de la gestión pública, así como participarán en la emisión de los lineamientos técnicos y brindarán asesoría a los sujetos de la presente Ley.

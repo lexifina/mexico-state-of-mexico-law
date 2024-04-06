@@ -8,3 +8,4 @@ Lo tendrá entendido el Gobernador del Estado, haciendo que se publique y se cum
 Dado en el Palacio del Poder Legislativo, en la ciudad de Toluca de Lerdo, capital del Estado de México, a los veintidós días del mes de febrero del año dos mil veintidós.- Presidente.- Dip. Mónica Angélica Álvarez Nemer.- Secretario.- Dip. Silvia Barberena Maldonado.- Dip. Viridiana Fuentes Cruz.- Dip. Claudia Desiree Morales Robledo.- Rúbricas.
 Por tanto, mando se publique, circule, observe y se le dé el debido cumplimiento.
 Toluca de Lerdo, México, a 8 de marzo de 2022.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO DE MÉXICO, LIC. ALFREDO DEL MAZO MAZA.- RÚBRICA.- EL SECRETARIO GENERAL DE GOBIERNO, MTRO. ERNESTO NEMER ALVAREZ.- RÚBRICA.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]

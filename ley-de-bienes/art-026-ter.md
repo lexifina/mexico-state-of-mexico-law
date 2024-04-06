@@ -5,4 +5,5 @@ a) Durante la vigencia del permiso se justifique la viabilidad de realizar inver
 b) Cuando al vencimiento del plazo originalmente otorgado, queden inversiones realizadas y debidamente acreditadas pendientes por recuperar, en cuyo caso se otorgará la prórroga estrictamente necesaria para dichos fines.
 (REFORMADO, G.G. 22 DE JUNIO DE 2023)
 c) Se presenten causas que lo justifiquen, no atribuibles a los permisionarios.
-Para efectos de la prórroga, el permisionario deberá estar en cumplimiento de las condiciones impuestas y solicitarla por escrito a la Secretaría, al menos, 90 días hábiles antes del vencimiento del plazo original.
+(REFORMADO, G.G. 5 DE ABRIL DE 2024)
+Para efectos de la prórroga, el permisionario deberá estar en cumplimiento de las condiciones impuestas y solicitarla por escrito a la Oficialía Mayor, al menos, 90 días hábiles antes del vencimiento del plazo original

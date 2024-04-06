@@ -16,7 +16,8 @@ XIV. Residuos inorgánicos: Todo aquel que no tenga características de residuo 
 XV. Residuos orgánicos: Todo residuo sólido biodegradable;
 XVI. Residuos sólidos: El material, producto o subproducto que sin ser considerado como peligroso se descarte o deseche y que sea susceptible de ser aprovechado o requiera sujetarse a métodos de tratamiento o disposición final;
 XVII. Reutilizar: El empleo de un producto usado para el mismo fin para el que fue diseñado originariamente o destinada para otro fin útil;
-XVIII. Secretaría: La Secretaría del Medio Ambiente del Estado de México;
+(REFORMADA, G.G. 5 DE ABRIL DE 2024)
+XVIII. Secretaría: La Secretaría del Medio Ambiente y Desarrollo Sostenible del Estado de México;
 XIX. Sistemas de Manejo Ambiental: Conjunto de medidas adoptadas a través de las cuales se incorporan criterios ambientales en las actividades cotidianas de una organización con el objetivo de minimizar su impacto negativo al ambiente mediante el ahorro y consumo eficiente de agua, energía y materiales que alienta con sus políticas de adquisiciones la prevención de la generación de residuos, su aprovechamiento y su manejo integral;
 XX Suelo contaminado: Todo aquel cuyas características físicas, químicas o biológicas han sido alteradas negativamente por la presencia de componentes de carácter peligroso originados por el humano en concentración tal que sea un riesgo para la salud humana o a la biodiversidad de acuerdo con los criterios y estándares que se determinen por el Gobierno del Estado;
 XXI. Tratamiento: El procedimiento mecánico, físico, químico, biológico, térmico o cualquier otro mediante el cual se cambian las características de los residuos sólidos y se reduce su volumen o peligrosidad; y

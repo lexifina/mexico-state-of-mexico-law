@@ -1,4 +1,5 @@
-Artículo 6.8. Corresponde a la Secretaría del Medio Ambiente del Estado de México, en el ámbito de su competencia el ejercicio de las siguientes facultades:
+(REFORMADO PRIMER PÁRRAFO, G.G. 5 DE ABRIL DE 2024)
+Artículo 6.8. Corresponde a la Secretaría del Medio Ambiente y Desarrollo Sostenible del Estado de México, en el ámbito de su competencia el ejercicio de las siguientes facultades:
 I. La promoción de información y difusión que genere una cultura cívica de protección, responsabilidad, respeto y trato digno a los animales:
 II. El desarrollo de programas de educación y capacitación en materia de trato digno y respetuoso a los animales en coordinación con las autoridades competentes relacionadas con las instituciones de educación básica, media y superior de jurisdicción del Estado, así como con las organizaciones no gubernamentales legalmente constituidas y el desarrollo de programas de educación formal e informal con el sector social, privado y académico;
 III. La regulación para el manejo, control y remediación de los problemas asociados a los animales abandonados y callejeros;

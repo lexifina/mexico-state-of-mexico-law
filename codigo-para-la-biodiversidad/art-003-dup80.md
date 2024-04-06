@@ -1,4 +1,5 @@
-Artículo 3.79. En materia de educación y capacitación la Secretaría y PROBOSQUE en coordinación con la Comisión Nacional Forestal, la Secretaría de Educación, Cultura y Bienestar Social y con las demás dependencias o entidades competentes de los tres órdenes de gobierno, así como de los sectores social y privado realizarán las siguientes acciones:
+(REFORMADO PRIMER PÁRRAFO, G.G. 5 DE ABRIL DE 2024)
+Artículo 3.79. En materia de educación y capacitación la Secretaría y PROBOSQUE en coordinación con la Comisión Nacional Forestal, la Secretaría de Educación, Ciencia, Tecnología e Innovación y con las demás dependencias o entidades competentes de los tres órdenes de gobierno, así como de los sectores social y privado realizarán las siguientes acciones:
 I. Promover la formación, capacitación y certificación de competencia laboral de técnicos y profesionistas forestales;
 II. Recomendar la actualización constante de los planes de estudios de carreras forestales y afines que se impartan por escuelas públicas o privadas;
 III. Organizar programas de formación continua y actualización de los servidores públicos del ramo forestal, estatal y municipal;

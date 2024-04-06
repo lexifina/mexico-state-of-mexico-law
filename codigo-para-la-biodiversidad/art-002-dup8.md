@@ -1,5 +1,6 @@
+(REFORMADA SU DENOMINACIÓN, G.G. 5 DE ABRIL DE 2024)
 CAPITULO III
-DE LAS FACULTADES DEL EJECUTIVO ESTATAL A TRAVES DE LA SECRETARIA DEL MEDIO AMBIENTE
+DE LAS FACULTADES DEL EJECUTIVO ESTATAL A TRAVES DE LA SECRETARIA DEL MEDIO AMBIENTE Y DESARROLLO SOSTENIBLE
 Artículo 2.8. Corresponde a la Secretaría:
 I. Conducir y evaluar la política y los criterios ecológicos en el Estado acorde a las disposiciones legales de carácter federal y estatal que vinculen el crecimiento con los aspectos de protección al medio ambiente y al desarrollo sostenible;
 II. Aplicar en coordinación con las dependencias o entidades competentes los instrumentos de política ambiental y los programas a que se refiere el artículo 2.7 del presente Libro, propiciando para tal efecto la participación ciudadana en la aplicación de los instrumentos de política y gestión ambiental previstos en este mismo Libro y demás disposiciones jurídicas aplicables en la materia;

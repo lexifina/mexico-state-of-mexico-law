@@ -10,3 +10,5 @@ Comete también el delito de acoso sexual quien con fines de lujuria asedie reit
 En estos casos se impondrán penas de un año a cuatro años de prisión y de cien a trescientos días de multa. Si el pasivo del delito fuera menor de edad o persona que no tenga la capacidad para comprender el significado del hecho o de resistirlo, la pena se incrementará en un tercio.
 (ADICIONADO, G.G. 5 DE SEPTIEMBRE DE 2017)
 Si el sujeto activo del delito es servidor público, además de las penas previstas se le inhabilitará para desempeñar empleos, cargos o comisiones en el servicio público de uno a tres años.
+(ADICIONADO, G.G. 5 DE ABRIL DE 2024)
+Tratándose de una persona servidora pública de institución educativa pública o personal que se desempeñe en institución educativa privada y utilizare los medios o circunstancias que el cargo le proporciona, la pena señalada en el primer párrafo se incrementará en una mitad, será destituido del cargo y se le inhabilitará para desempeñar empleos, cargos o comisiones en el servicio público de uno a diez años.

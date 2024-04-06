@@ -1,6 +1,7 @@
 (ADICIONADO, G.G. 19 DE DICIEMBRE DE 2013)
 Artículo 27 Bis.- La recuperación administrativa de bienes del dominio público y/o privado del Estado se sujetará al siguiente procedimiento:
-I. La Secretaría de Finanzas, por conducto de la Dirección General de Recursos Materiales, determinará la recuperación administrativa de bienes del dominio público y/o privado, mediante acuerdo en el que funde y motive debidamente su procedencia adjuntando la documentación con la que se acredite la propiedad del bien a favor del Estado.
+(REFORMADO [N. DE E. ESTE PÁRRAFO}, G.G. 5 DE ABRIL DE 2024)
+I. La Oficialía Mayor, por conducto de la Dirección General de Recursos Materiales, determinará la recuperación administrativa de bienes del dominio público y/o privado, mediante acuerdo en el que funde y motive debidamente su procedencia adjuntando la documentación con la que se acredite la propiedad del bien a favor del Estado.
 La orden de recuperación administrativa deberá reunir los mismos requisitos que para la orden de visita de verificación que establece el Código de Procedimientos Administrativos del Estado de México.
 II. A más tardar, al día siguiente, la autoridad competente en compañía de un notificador y de dos testigos, se constituirán ante la persona que detente la posesión del bien inmueble. En la notificación se le hará saber que tiene la obligación de acreditar, en tres días, la calidad con la que se encuentra en posesión de dicho bien y mostrar los documentos que lo comprueben.
 III. Si el particular no acreditaré la posesión del inmueble en recuperación con los documentos fehacientes, se le dará un plazo, a criterio de la autoridad competente, para desalojar el lugar.

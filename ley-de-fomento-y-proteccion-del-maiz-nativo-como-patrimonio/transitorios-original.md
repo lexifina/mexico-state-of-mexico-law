@@ -10,3 +10,4 @@ Lo tendrá entendido el Gobernador del Estado, haciendo que se publique y se cum
 Dado en el Palacio del Poder Legislativo, en la ciudad de Toluca de Lerdo, capital del Estado de México, a los veinte días del mes de septiembre del año dos mil veintidós. - Presidente. - Dip. Enrique Edgardo Jacob Rocha. - Secretarias. - Dip. María Elida Castelán Mondragón. - Dip. Silvia Barberena Maldonado. - Dip. Claudia Desiree Morales Robledo.
 Por tanto, mando se publique, circule, observe y se le dé el debido cumplimiento.
 Toluca de Lerdo, México, a 4 de octubre de 2022.- EL GOBERNADOR CONSTITUCIONAL DEL ESTADO DE MÉXICO, LIC. ALFREDO DEL MAZO MAZA.- RÚBRICA.- EL SECRETARIO GENERAL DE GOBIERNO, LUIS FELIPE PUENTE ESPINOSA.- RÚBRICA.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]

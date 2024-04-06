@@ -1,5 +1,5 @@
-(REFORMADO PRIMER PÁRRAFO, G.G. 6 DE MARZO DE 2010)
-Artículo 3.8.- Son atribuciones de la Secretaría de Educación:
+(REFORMADO PRIMER PÁRRAFO, G.G. 5 DE ABRIL DE 2024)
+Artículo 3.8.- Son atribuciones de la Secretaría de Educación, Ciencia, Tecnología e Innovación:
 I. Fortalecer la educación pública;
 II. Prestar los servicios de educación inicial básica, - incluyendo la indígena -, la especial, la normal y demás para la formación de maestros;
 (ADICIONADA, G.G. 11 DE OCTUBRE DE 2012)
