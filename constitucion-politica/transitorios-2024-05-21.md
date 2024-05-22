@@ -1,0 +1,4 @@
+G.G. 21 DE MAYO DE 2024.
+[N. DE E. TRANSITORIOS DE LA "DECLARATORIA DE APROBACIÓN DE LA MINUTA CON PROYECTO DE DECRETO NÚMERO 262.- POR EL QUE SE REFORMA EL PRIMER PÁRRAFO DEL ARTÍCULO 5 Y LOS PÁRRAFOS SEGUNDO Y CUARTO DEL ARTÍCULO 18 DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE MÉXICO".]
+ARTÍCULO PRIMERO.- Publíquese este Decreto en el Periódico Oficial "Gaceta del Gobierno".
+ARTÍCULO SEGUNDO.- Este Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "Gaceta del Gobierno".
