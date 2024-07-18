@@ -1,0 +1,10 @@
+G.G. 17 DE JULIO DE 2024.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 269.- POR EL QUE SE CAMBIA LA DENOMINACIÓN DE LA LEY DEL ADULTO MAYOR DEL ESTADO DE MÉXICO, POR LA LEY DE LAS PERSONAS ADULTAS MAYORES DEL ESTADO DE MÉXICO, Y POR EL QUE SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA MISMA".]
+PRIMERO.- Este Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "Gaceta del Gobierno".
+SEGUNDO.- La Secretaría de Bienestar dentro de su ámbito de competencia deberá emitir o ajustar los reglamentos, acuerdos, lineamientos y demás disposiciones normativas conforme con lo establecido en este Decreto, en un plazo no mayor a ciento ochenta días hábiles siguientes contados a partir de su entrada en vigor.
+TERCERO.- Hasta la publicación de las disposiciones normativas a las que se refiere el artículo anterior, seguirán aplicándose las disposiciones normativas vigentes.
+CUARTO.- Las erogaciones que se generen con motivo de la entrada en vigor del presente Decreto se realizarán con cargo a la disponibilidad presupuestaria que se apruebe para tal fin a la Secretaría de Bienestar en el ejercicio fiscal de que se trate, lo cual se llevará a cabo de manera progresiva.
+QUINTO.- El Grupo Multidisciplinario, previsto en el artículo 18 de este Decreto deberá constituirse dentro de los noventa días siguientes a la publicación de este Decreto.
+SEXTO.- El Ejecutivo del Estado expedirá la reglamentación necesaria en un plazo no mayor a ciento ochenta días naturales a partir de la entrada en vigor de (sic) Decreto.
+SÉPTIMO.- Los sistemas DIF, estatal y municipales, deberán reformar su normatividad en un plazo no mayor a ciento ochenta días naturales, a partir de la entrada en vigor de este Decreto, para formalizar la creación de los grupos multidisciplinarios de atención a Personas Adultas Mayores.
+OCTAVO.- El Ejecutivo del Estado proveerá lo necesario para que las entidades de la administración pública estatal adecuen sus documentos administrativos desde una perspectiva gerontogeriátrica de servicio a las Personas Adultas Mayores.

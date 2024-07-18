@@ -1,1 +1,0 @@
-Artículo 19 Bis.- (DEROGADO, G.G. 5 DE ABRIL DE 2024)
