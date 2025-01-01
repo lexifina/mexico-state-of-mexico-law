@@ -1,2 +1,6 @@
-(ADICIONADO, G.G. 31 DE DICIEMBRE DE 2018)
-Artículo 337 Ter.- Las cuentas bancarias específicas para el manejo de recursos públicos, ya sean federales o estatales deberán ser canceladas al término del ejercicio fiscal correspondiente o al término del cumplimiento del objeto para el que fueron solicitadas.
+(REFORMADO PRIMER PÁRRAFO, G.G. 20 DE DICIEMBRE DE 2024)
+Artículo 337 Ter.- Las cuentas bancarias específicas para el manejo de recursos públicos, ya sean federales o estatales, deberán ser canceladas al término del ejercicio fiscal correspondiente o al término del cumplimiento del objeto para el que fueron solicitadas.
+(ADICIONADO, G.G. 20 DE DICIEMBRE DE 2024)
+Al efecto, las unidades ejecutoras del gasto tienen la obligación de solicitar la cancelación de la cuenta bancaria correspondiente, en un plazo no mayor a tres meses, contado a partir de la fecha en la que se haya terminado el convenio respectivo o en la que se haya cumplido su objeto, según corresponda.
+(ADICIONADO, G.G. 20 DE DICIEMBRE DE 2024)
+Concluido dicho plazo, la Secretaría, por conducto de la Subsecretaría de Tesorería, podrá efectuar el cierre de las cuentas de ejercicios anteriores, previa notificación a la unidad ejecutora de que se trate, siempre que dichas cuentas no cuenten con saldos, no estén sujetas a procesos de fiscalización y una vez transcurridos cinco años al término del cumplimiento de su objeto, de conformidad con la normativa aplicable y, en su caso, la reglamentación que al efecto emita la Secretaría.

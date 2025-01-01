@@ -1,5 +1,5 @@
-(REFORMADO PRIMER PÁRRAFO, G.G. 23 DE DICIEMBRE DE 2019)
-Artículo 216-L.- El Comité Técnico será presidido por el representante de la Secretaría a la que esté adscrito la Protectora de Bosques del Estado de México y tendrá al menos las siguientes funciones:
+(REFORMADO PRIMER PÁRRAFO, G.G. 20 DE DICIEMBRE DE 2024)
+Artículo 216-L.- El Comité Técnico será presidido por la persona representante de la Secretaría a la que esté adscrito la Protectora de Bosques del Estado de México y tendrá al menos las siguientes funciones:
 (ADICIONADA, G.G. 26 DE DICIEMBRE DE 2007)
 I. Dar seguimiento al ingreso que se obtenga por concepto de estas aportaciones;
 (REFORMADA, G.G. 31 DE ENERO DE 2022)

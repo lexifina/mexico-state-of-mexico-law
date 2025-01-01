@@ -8,7 +8,8 @@ A). Cuando el Estado se clasifique en un nivel de endeudamiento elevado, de acue
 B). Cuando el Estado se clasifique en un nivel de endeudamiento en observación, de acuerdo al Sistema de Alertas, cuando menos el 30 por ciento.
 II. En su caso, el remanente para:
 a) Inversión pública productiva, a través de un fondo que se constituya para tal efecto, con el fin de que los recursos correspondientes se ejerzan a más tardar en el ejercicio inmediato siguiente.
-b) La creación de un fondo cuyo objetivo sea compensar la caída de ingresos de libre disposición de ejercicios subsecuentes.
+(REFORMADO, G.G. 20 DE DICIEMBRE DE 2024)
+b) La creación de un fondo permanente, administrado a través de un Fideicomiso de Estabilización de Ingresos Estatales, cuyo objetivo sea compensar la caída de ingresos de libre disposición de ejercicios subsecuentes.
 (ADICIONADO, G.G. 31 DE DICIEMBRE DE 2018)
 Los ingresos excedentes derivados de ingresos de libre disposición del Estado podrán destinarse a los rubros mencionados en el presente artículo, sin limitación alguna, siempre y cuando el Estado se clasifique en un nivel de endeudamiento sostenible de acuerdo al Sistema de Alertas.
 (REFORMADO, G.G. 31 DE DICIEMBRE DE 2018)

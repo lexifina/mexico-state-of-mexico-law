@@ -1,6 +1,8 @@
 (ADICIONADO, G.G. 31 DE DICIEMBRE DE 2018)
 Artículo 69 E Bis.- La persona física o jurídica colectiva que, en su carácter de intermediario, promotor o facilitador, realice por medio de plataformas tecnológicas, el cobro de las erogaciones por el servicio de hospedaje y en caso de que se cubra a través de ella el impuesto sobre hospedaje como se prevé en el artículo 69 A estará obligada a:
 I. Inscribirse al Registro Estatal de Contribuyentes en su carácter de intermediario, promotor o facilitador a efecto de coadyuvar en el cumplimiento de lo establecido en el artículo 69 A de esta ley.
-II. Enterar el impuesto sobre hospedaje que se haya pagado a través de las plataformas tecnológicas, mediante declaración mensual a través de los mecanismos definidos por la Secretaría de Finanzas.
+(REFORMADA, G.G. 20 DE DICIEMBRE DE 2024)
+II. Enterar el impuesto sobre hospedaje que se haya pagado a través de las plataformas tecnológicas, mediante declaración mensual a través de los mecanismos definidos por la Secretaría.
 III. Presentar declaraciones de manera mensual agregada hasta en tanto no presente el aviso de baja al registro o de suspensión temporal de actividades.
-La Secretaría de Finanzas emitirá reglas de carácter general donde reglamente la forma de inscripción, suspensión de registro y cancelación de registro ante el Registro Estatal de Contribuyentes de persona física o jurídica colectiva en su carácter de intermediario, promotor o facilitador, así como la forma de pago y entero del impuesto.
+(REFORMADO, G.G. 20 DE DICIEMBRE DE 2024)
+La Secretaría emitirá Reglas de Carácter General donde establecerá la forma de inscripción, suspensión de registro y cancelación de registro ante el Registro Estatal de Contribuyentes de persona física o jurídica colectiva en su carácter de intermediario, promotor o facilitador, así como la forma de pago y entero del impuesto.

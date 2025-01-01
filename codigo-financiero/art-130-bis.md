@@ -24,8 +24,8 @@ TARIFA BIMESTRAL
 [N. DE E. VÉASE TABLA EN LA G.G. DE 19 DE DICIEMBRE DE 2012, PÁGINA 44.]
 [N. DE E. VÉASE REFORMAS A LA TABLA, G.G. 20 DE DICIEMBRE DE 2016, PÁGINA 22 Y F. DE E., G.G. 23 DE ENERO DE 2017, PÁGINA 26.]
 En caso de que el medidor se encuentre descompuesto, el usuario pagará las descargas de drenaje y alcantarillado de conformidad al promedio de consumos del último año inmediato anterior, según sea el caso, en que estuvo funcionando el aparato.
-(REFORMADO, G.G. 28 DE DICIEMBRE DE 2023)
-B). Cuota fija: Si no existe aparato medidor se pagarán los derechos dentro de los primeros diez días siguientes al mes o bimestre que corresponda pagando el 10% del monto determinado por el servicio de Suministro de Agua Potable.
+(REFORMADO, G.G. 20 DE DICIEMBRE DE 2024)
+B). Cuota fija: Si no existe aparato medidor se pagarán los derechos dentro de los primeros diez días siguientes al mes o bimestre que corresponda pagando el 15% del monto determinado por el servicio de Suministro de Agua Potable.
 En caso de que la determinación de los derechos se realice en base a volúmenes de descargas de aguas residuales cuantificados a través de aparato medidor, el pago se deberá efectuar dentro de los primeros diez días siguientes al mes o bimestre que corresponda.
 (ADICIONADO, G.G. 19 DE NOVIEMBRE DE 2015)
 El 50% de lo recaudado por lo previsto en este artículo se destinará a obras de saneamiento hídrico.

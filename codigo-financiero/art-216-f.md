@@ -31,16 +31,16 @@ El pago de estas aportaciones podrá realizarse a plazos, ya sea diferido o en p
 Los ingresos generados por las aportaciones de mejoras para obras y/o acciones de impacto vial, se depositarán en la cuenta autorizada para tal efecto por la Secretaría.
 (REFORMADO [N. DE E. ESTE PÁRRAFO], G.G. 19 DE DICIEMBRE DE 2012)
 El Comité de Control y Vigilancia de las Aportaciones para Obras de Impacto Vial constituido para dar seguimiento a la aplicación de las aportaciones, estará integrado por:
-(REFORMADO, G.G. 19 DE DICIEMBRE DE 2012)
-I. Un representante del Poder Legislativo.
-(REFORMADA, G.G. 29 DE SEPTIEMBRE DE 2020)
-II. Un representante de la Secretaría de Movilidad.
-(REFORMADO, G.G. 19 DE DICIEMBRE DE 2012)
-III. Un representante de la Secretaría de Finanzas.
+(REFORMADA, G.G. 20 DE DICIEMBRE DE 2024)
+I. Una persona representante del Poder Legislativo.
+(REFORMADA, G.G. 20 DE DICIEMBRE DE 2024)
+II. Una persona representante de la Secretaría de Movilidad.
+(REFORMADA, G.G. 20 DE DICIEMBRE DE 2024)
+III. Una persona representante de la Secretaría.
 (REFORMADA, G.G. 23 DE DICIEMBRE DE 2019)
 IV. Dos representantes de los Municipios de la entidad, que serán elegidos anualmente en el seno del Instituto Hacendario, en Sesión de su Consejo Directivo, utilizando el procedimiento de insaculación, debiendo ser municipios en los cuales se genere la aportación.
-(REFORMADO [N. DE E. ESTE PÁRRAFO], G.G. 29 DE SEPTIEMBRE DE 2020)
-Este Comité será presidido por el representante de la Secretaría de Movilidad y tendrá, entre otras funciones, las siguientes:
+(REFORMADO [N. DE E. ESTE PÁRRAFO], G.G. 20 DE DICIEMBRE DE 2024)
+Este Comité será presidido por la persona representante de la Secretaría de Movilidad y tendrá, entre otras funciones, las siguientes:
 (REFORMADA, G.G. 19 DE DICIEMBRE DE 2012)
 I. Dar seguimiento al ingreso que se obtenga por estas aportaciones.
 (REFORMADA, G.G. 19 DE DICIEMBRE DE 2012)

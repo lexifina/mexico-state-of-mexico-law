@@ -1,5 +1,5 @@
-(REFORMADO PRIMER PÁRRAFO, G.G. 16 DE DICIEMBRE DE 2011)
-Artículo 47 H.- En el informe a que se refiere la fracción IV del artículo 47 B, en relación a la fracción III del artículo 47 C ambos del Código, el Contador Público deberá manifestar bajo protesta de decir verdad lo siguiente:
+(REFORMADO PRIMER PÁRRAFO, G.G. 20 DE DICIEMBRE DE 2024)
+Artículo 47 H.- En el informe a que se refiere la fracción IV del párrafo quinto del artículo 47 B, en relación a la fracción III del artículo 47 C ambos del Código, el Contador Público deberá manifestar bajo protesta de decir verdad lo siguiente:
 (ADICIONADA, G.G. 26 DE DICIEMBRE DE 2007)
 I. Que se emite con estricto apego a lo dispuesto en este Código y de conformidad con las reglas de carácter general que al efecto expidan las autoridades fiscales, respecto de toda la información y documentación del contribuyente relacionada con la determinación y pago del Impuesto sobre Erogaciones por Remuneraciones al Trabajo Personal.
 (REFORMADA, G.G. 2 DE DICIEMBRE DE 2013)

@@ -1,2 +1,4 @@
+(DEROGADO TERCER PÁRRAFO, G.G. 20 DE DICIEMBRE DE 2024)
+(DEROGADO CUARTO PÁRRAFO, G.G. 20 DE DICIEMBRE DE 2024)
 (REFORMADO, G.G. 28 DE DICIEMBRE DE 2023)
 Artículo 69 S Quáter.- Los contribuyentes presentarán declaraciones mensuales, mediante la forma oficial aprobada por la autoridad fiscal, a más tardar el día diez del mes siguiente a aquél en el que se causó el impuesto, y serán a cuenta del impuesto anual, que deberá presentarse en el mes de julio del Ejercicio Fiscal siguiente a aquél en el que se causó, de conformidad con lo previsto en las Reglas de Carácter General que emita y publique la Secretaría en el Periódico Oficial.

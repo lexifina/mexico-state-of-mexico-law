@@ -17,7 +17,8 @@ Octubre0.83
 Noviembre0.92
 Diciembre 1.00
 En caso de que lo pagado haya sido superior a lo determinado en términos del párrafo anterior, la diferencia será considerada saldo a favor del contribuyente y podrá acreditarla contra el pago de la Tenencia del año inmediato siguiente de cualquier vehículo de su propiedad, sin que tenga la posibilidad de solicitar devolución.
-Para los supuestos referidos en el segundo párrafo de este artículo, no se pagará este impuesto a partir del año fiscal siguiente y hasta que, en su caso, deje de estar en dichos supuestos y vuelva a inscribirse el vehículo.
+(REFORMADO, G.G. 20 DE DICIEMBRE DE 2024)
+Para los supuestos referidos en el párrafo tercero de este artículo, no se pagará este impuesto a partir del año fiscal siguiente y hasta que, en su caso, deje de estar en dichos supuestos y vuelva a inscribirse el vehículo.
 (REFORMADO PRIMER PÁRRAFO, G.G. 28 DE NOVIEMBRE DE 2016)
 Tratándose de la adquisición de vehículos nuevos, así como de la adquisición de vehículos nuevos o usados importados en forma definitiva, y los que se inscriban por primera vez provenientes de otra entidad o, tratándose de vehículos recuperados respecto de los cuales se realice el trámite correspondiente en tiempo y forma, el impuesto causado por dicho año se pagará en la proporción que resulte de aplicar al impuesto anual el factor correspondiente de la siguiente tabla:
 Mes deFactor aplicable al

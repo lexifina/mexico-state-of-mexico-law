@@ -13,5 +13,5 @@ X. Rellenos sanitarios- Obra de infraestructura que involucra métodos y obras d
 XI. Residuo- Material o producto cuyo propietario o poseedor desecha y que se encuentra en estado sólido o semisólido, o es un líquido o gas contenido en recipientes o depósitos, y que puede ser susceptible de ser valorizado o requiere sujetarse a tratamiento o disposición final conforme a lo dispuesto en los ordenamientos aplicables.
 XII. Riesgo- La probabilidad de que al liberar al medio ambiente o exponerse a un material o residuo se ocasionen efectos adversos a la salud humana, en los demás organismos vivos, en el agua, en el aire, en el suelo, en los ecosistemas o en los bienes y propiedades pertenecientes a los particulares.
 XIII. Sitios de disposición final- Lugar donde se depositan los residuos sólidos urbanos y residuos de manejo especial en forma definitiva.
-XIV. Tajos mineros-Aprovechamientos mineros o explotaciones mineras, que se desarrollan en la superficie del terreno o a cielo abierto.
-XV. Tóxico- Propiedad de una sustancia o mezcla de sustancias de provocar efectos adversos en la salud o en los ecosistemas.
+XIV. (DEROGADA, G.G. 20 DE DICIEMBRE DE 2024)
+XV. (DEROGADA, G.G. 20 DE DICIEMBRE DE 2024)
