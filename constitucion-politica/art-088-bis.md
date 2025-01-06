@@ -20,4 +20,9 @@ IV. La Sala Constitucional conocerá de los recursos ordinarios en contra de res
 Las resoluciones dictadas en los procesos a que se refiere este artículo, que declaren la invalidez de disposiciones generales del Poder Ejecutivo, del Poder Legislativo o de los Municipios, tendrán efectos generales cuando sean aprobados cuando menos por cuatro votos de los integrantes de la Sala Constitucional.
 Las resoluciones que no fueren aprobadas por cuatro de cinco votos, tendrán efectos particulares.
 Contra la resolución emitida por la Sala Constitucional en primera instancia, podrá interponer el recurso de revisión, mismo que será resuelto por la propia Sala, y para su aprobación se requerirá de unanimidad de votos.
+[N. DE E. ESTE PÁRRAFO PERTENECE A LA FRACCIÓN IV, G.G. 3 DE MAYO DE 2012)
 En caso de que la controversia o acción de inconstitucionalidad verse sobre la constitucionalidad de actos, o presunta violación o contradicción de preceptos constitucionales federales, se estará a lo dispuesto en la Constitución General de la Republica, así como a la Ley Reglamentaria de las fracciones I y II del artículo 105 de la Constitución Política de los Estados Unidos Mexicanos.
+(ADICIONADO, G.G. 6 DE ENERO DE 2025)
+Tratándose de controversias constitucionales o de acciones de inconstitucionalidad planteadas respecto de normas generales, en ningún caso su admisión dará lugar a la suspensión de la norma cuestionada.
+(ADICIONADO, G.G. 6 DE ENERO DE 2025)
+Son improcedentes las controversias constitucionales o acciones de inconstitucionalidad que tengan por objeto controvertir las adiciones o reformas a esta Constitución.

@@ -2,8 +2,7 @@
 Artículo 104-Bis.- El proceso penal será acusatorio y oral. Se regirá por los principios de publicidad, contradicción, concentración, continuidad e inmediación, así como los principios señalados en la Constitución Política de los Estados Unidos Mexicanos y el Código Nacional de Procedimientos Penales.
 (REFORMADO, G.G. 30 DE SEPTIEMBRE DE 2009)
 La imposición de las penas, su modificación y duración son propias y exclusivas del Poder Judicial del Estado.
-(REFORMADO, G.G. 24 DE SEPTIEMBRE DE 2020)
-Las y los jueces ejecutores de sentencias durarán en su encargo seis años, podrán ser ratificados en los mismos términos que los demás jueces de primera instancia, y únicamente podrán ser suspendidos y destituidos en sus funciones conforme a la ley.
+(DEROGADO TERCER PÁRRAFO, G.G. 6 DE ENERO DE 2025)
 (REFORMADO, G.G. 24 DE SEPTIEMBRE DE 2020)
 Las y los jueces de ejecución de sentencias deberán reunir los mismos requisitos que por ley se establecen para las y los demás jueces de primera instancia.
 (REFORMADO, G.G. 24 DE SEPTIEMBRE DE 2020)
