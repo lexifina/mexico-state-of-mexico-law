@@ -1,3 +1,4 @@
+[N. DE E. PARA CONSULTAR LAS CUOTAS O TARIFAS, APLICABLES DURANTE EL EJERCICIO FISCAL 2025, VÉASE LA INFORMACIÓN FISCAL EMITIDA POR LA SECRETARÍA DE FINANZAS DEL GOBIERNO DEL ESTADO, Y PUBLICADA EN LA SECCIÓN PRIMERA DE LA G.G. DE 17 DE ENERO DE 2025, PÁGINA 5.]
 (REFORMADO PRIMER PÁRRAFO, G.G. 31 DE ENERO DE 2022)
 Artículo 216-B.- Para determinar el monto de la aportación para obras y/o acciones de impacto vial que deba cubrir el contribuyente, se multiplicará el número de cajones de estacionamiento requeridos para el inmueble, por el del factor de mitigación de impacto vial y este producto se multiplicará por el factor de uso de suelo.
 (REFORMADO, G.G. 28 DE NOVIEMBRE DE 2016)

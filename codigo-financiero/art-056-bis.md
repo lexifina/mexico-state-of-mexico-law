@@ -1,3 +1,4 @@
+[N. DE E. PARA CONSULTAR LAS CUOTAS O TARIFAS, APLICABLES DURANTE EL EJERCICIO FISCAL 2025, VÉASE LA INFORMACIÓN FISCAL EMITIDA POR LA SECRETARÍA DE FINANZAS DEL GOBIERNO DEL ESTADO, Y PUBLICADA EN LA SECCIÓN PRIMERA DE LA G.G. DE 17 DE ENERO DE 2025, PÁGINAS DE LA 3 A LA 4.]
 (REFORMADO [N. DE E. ESTE PÁRRAFO], G.G. 15 DE DICIEMBRE DE 2017)
 Artículo 56 Bis.- Quienes realicen pagos a trabajadores por concepto de edificación de obra, acabados, modificaciones y/o remodelaciones e incumplan con la obligación puntual del pago de este impuesto, deberán proporcionar a la autoridad fiscal competente, la base para determinar correctamente la cantidad a pagar y los accesorios legales generados.
 (REFORMADO, G.G. 31 DE ENERO DE 2022)
