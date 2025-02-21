@@ -20,5 +20,5 @@ El desempeño de los miembros del Consejo Interno será honorífico.
 La persona titular de la Dirección General será nombrada por la persona titular del Poder Ejecutivo del Estado y deberá ser preferentemente ciudadano mexiquense y con experiencia en materias de salud pública y administración de servicios de salud; médico cirujano; de reconocida calidad moral, buena conducta, y honorabilidad manifiesta.
 (REFORMADO, G.G. 5 DE ABRIL DE 2024)
 El nombramiento de titular de la Dirección General podrá recaer en la o el Titular de la Secretaría de Salud, sin que exista doble remuneración.
-(REFORMADO, G.G. 29 DE NOVIEMBRE DE 2017)
-La organización y funcionamiento del Instituto se regirá por el Reglamento Interno que expida el Consejo Interno.
+(REFORMADO, G.G. 21 DE FEBRERO DE 2025)
+La organización y funcionamiento del Instituto se regirá por el Reglamento Interno que apruebe el Consejo Interno y expida la persona titular del Poder Ejecutivo Estatal.
