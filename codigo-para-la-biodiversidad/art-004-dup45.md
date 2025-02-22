@@ -12,6 +12,12 @@ X la incineración de residuos en condiciones contrarias a las establecidas en l
 XI. La dilución o mezcla de residuos sólidos urbanos o de manejo especial con líquidos para su vertimiento al sistema de alcantarillado y a cualquier cuerpo de agua o sobre suelos con o sin cubierta vegetal;
 XII. La mezcla de residuos sólidos urbanos y de manejo especial con residuos peligrosos contraviniendo lo dispuesto en la Ley General, el presente Libro y demás ordenamientos que de ellos se deriven;
 XIII. El confinamiento o depósito final de residuos en estado líquido, con contenidos líquidos o de materia orgánica que excedan los máximos permitidos por las normas oficiales mexicanas, normas técnicas estatales y demás ordenamientos;
-XIV. Dejar por parte de los responsables de confinamientos o depósitos finales de residuos que los lixiviados contaminen los mantos freáticos o sean vertidos sin tratamiento al sistema municipal de drenaje sin el tratamiento correspondiente; y
-XV. Todo acto u omisión que contribuya a la contaminación de las vías públicas y áreas comunes o que interfiera con la prestación del servicio de limpia.
+(REFORMADA, G.G. 21 DE FEBRERO DE 2025)
+XIV. Dejar por parte de los responsables de confinamientos o depósitos finales de residuos que los lixiviados contaminen los mantos freáticos o sean vertidos sin tratamiento al sistema municipal de drenaje sin el tratamiento correspondiente;
+(REFORMADA, G.G. 21 DE FEBRERO DE 2025)
+XV. Todo acto u omisión que contribuya a la contaminación de las vías públicas y áreas comunes o que interfiera con la prestación del servicio de limpia;
+(ADICIONADA, G.G. 21 DE FEBRERO DE 2025)
+XVI. Otorgar de forma gratuita, productos plásticos de un solo uso en las unidades económicas del Estado de México, excepto bolsas o contenedores que constituyan un empaque primario, que prevenga el desperdicio de bienes o que por cuestiones de higiene o salud se requieran, así como bolsas de acarreo que cumplan con las disposiciones jurídicas aplicables; y
+(ADICIONADA, G.G. 21 DE FEBRERO DE 2025)
+XVII. El uso de plásticos de un solo uso que no sean biodegradables o reutilizables en las oficinas públicas, así como en instituciones educativas públicas y privadas.
 Las violaciones a lo establecido en este artículo serán objeto de sanción de conformidad con las disposiciones establecidas en el presente Libro sin perjuicio de lo dispuesto en los demás ordenamientos jurídicos aplicables.
