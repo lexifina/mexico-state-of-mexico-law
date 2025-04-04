@@ -11,4 +11,5 @@ VIII. El documento cumpla con los requisitos que deba llenar de acuerdo con el C
 IX. No haya operado el cierre de registro, por mandamiento judicial o administrativo.
 Verificado lo anterior, el Registrador deberá realizar la anotación o inscripción dentro del plazo mencionado en el artículo anterior.
 Los Registradores no podrán exigir otros datos, requisitos e información que la necesaria para el llenado del Formato Precodificado.
+(REFORMADO, G.G. 3 DE ABRIL DE 2025)
 Devolución de documento con datos de inscripción

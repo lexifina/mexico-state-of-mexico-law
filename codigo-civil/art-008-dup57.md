@@ -1,3 +1,2 @@
-(REFORMADO, G.G. 18 DE AGOSTO DE 2011)
-Artículo 8.57.- En el caso de anotación de fianzas producirá el efecto fijado por el capítulo respectivo, así como las fianzas a que se refieren los artículos 31 y 100 de la Ley Federal de Instituciones de Fianzas.
+Artículo 8.57.- En el caso de anotación de fianzas producirá el efecto fijado por el capítulo respectivo, así como las fianzas a que se refieren los artículos 189 y 286 de la Ley de Instituciones de Seguros y Fianzas.
 Efectos de la anotación respecto a los bienes
