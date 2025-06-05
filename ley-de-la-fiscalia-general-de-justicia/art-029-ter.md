@@ -1,0 +1,10 @@
+(ADICIONADO, G.G. 4 DE JUNIO DE 2025)
+Artículo 29 Ter. La Fiscalía Especializada en Atención de Delitos por Razón de Género cometidos contra Mujeres, Niñas, Niños y Adolescentes, tendrá a su cargo:
+I. Dirigir, integrar, coordinar y supervisar las investigaciones y en su caso, el ejercicio de la acción penal, por delitos cometidos contra las mujeres por razón de género, así como de los delitos de violencia familiar, delitos de incumplimiento de obligaciones alimentarias, homicidio de mujeres, feminicidio y demás delitos contemplados en el Código Penal del Estado, la Ley General de Acceso de las Mujeres a una Vida Libre de Violencia y los otros ordenamientos nacionales y locales aplicables.
+II. Canalizar a víctimas hacia las dependencias o instituciones que proporcionen servicios tutelares, asistenciales, preventivos, y demás que sean necesarias, así como la vigilancia de su debida atención.
+III. Investigar delitos de violencia contra las mujeres por razón de género, en coordinación o auxilio de otras fiscalías, procuradurías de justicia o sus homólogas, de las entidades federativas o de la Federación.
+IV. Conocer y recibir las denuncias, querellas o investigaciones que se hayan presentado en otras unidades de la Fiscalía General, por hechos que pudieran ser constitutivos de los delitos de su competencia.
+V. Diseñar e implementar proyectos, estudios, programas permanentes de información y fomento de la cultura de la denuncia y legalidad, en materia de delitos relacionados por violencia a la mujer.
+VI. Las demás que le confieran otras disposiciones jurídicas aplicables.
+La Fiscalía Especializada en Atención de Delitos por Razón de Género cometidos contra Mujeres, Niñas, Niños y Adolescentes contará con las unidades administrativas, elementos de la policía de investigación, así como de los recursos necesarios para el desempeño de sus funciones, conforme al Reglamento de esta Ley y la normatividad aplicable.
+El personal adscrito a esta Fiscalía Especializada, además de cumplir con las características establecidas en la presente Ley, deberá contar con un perfil que garantice la aplicación de la perspectiva de género en su desempeño.
