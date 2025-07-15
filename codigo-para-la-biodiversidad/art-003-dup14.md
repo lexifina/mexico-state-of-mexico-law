@@ -26,7 +26,11 @@ XX. Participar y coadyuvar en las acciones de prevención y combate de incendios
 (ADICIONADA, G.G. 9 DE DICIEMBRE DE 2022)
 XX Bis. Autorizar cualquier tipo de quema en terrenos agropecuarios colindantes con terrenos forestales y preferentemente forestales;
 XXI. Desarrollar viveros y apoyar programas de producción de plantas;
-XXII. Hacer del conocimiento a las autoridades competentes y denunciar las infracciones, faltas administrativas o delitos que se cometan en materia forestal; y
-XXIII. Regular y vigilar la disposición final de residuos provenientes de la extracción de materias primas forestales.
-(ADICIONADA, G.G. 19 DE DICIEMBRE DE 2013)
-XXIV. Coadyuvar con el Gobierno del Estado en la integración e implementación del Sistema Estatal de Monitoreo, Registro y Verificación de reducción de emisiones.
+(REFORMADA, G.G. 14 DE JULIO DE 2025)
+XXII. Hacer del conocimiento a las autoridades competentes y denunciar las infracciones, faltas administrativas o delitos que se cometan en materia forestal;
+(REFORMADA, G.G. 14 DE JULIO DE 2025)
+XXIII. Regular y vigilar la disposición final de residuos provenientes de la extracción de materias primas forestales;
+(REFORMADA, G.G. 14 DE JULIO DE 2025)
+XXIV. Coadyuvar con el Gobierno del Estado en la integración e implementación del Sistema Estatal de Monitoreo, Registro y Verificación de reducción de emisiones; y
+(ADICIONADA, G.G. 14 DE JULIO DE 2025)
+XXV. Reconocer el Patrimonio Natural y Biocultural de su municipio para integrar el Catálogo Estatal del Patrimonio Natural y Biocultural del Estado de México.

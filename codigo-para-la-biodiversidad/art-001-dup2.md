@@ -8,5 +8,9 @@ IV. Diseño, desarrollo e instrumentación de estímulos fiscales impulsando ins
 V. Fomentar la participación corresponsable de la sociedad en las acciones de preservación, remediación, rehabilitación y restauración del equilibrio ecológico y del medio ambiente y de todas las actividades en favor de la protección a la biodiversidad;
 VI. Regular y promover la educación y la cultura ambiental en todos los sectores de la sociedad del uso y aprovechamiento racional de la biodiversidad de sus elementos y recursos naturales y de la tecnología e investigación ambiental;
 VII. Propiciar el desarrollo sostenible mediante el aprovechamiento y uso racional de los elementos naturales, de los recursos naturales y de los bienes ambientales;
-VIII. Protección, conservación, preservación, rehabilitación, restauración, recuperación y remediación de la biodiversidad y sus componentes; y
-IX. Promover la aplicación racional y el manejo de los pagos de servicios ambientales o ecosistémicos derivados de las actividades humanas sostenibles.
+(REFORMADA, G.G. 14 DE JULIO DE 2025)
+VIII. Protección, conservación, preservación, rehabilitación, restauración, recuperación y remediación de la biodiversidad y sus componentes;
+(REFORMADA, G.G. 14 DE JULIO DE 2025)
+IX. Promover la aplicación racional y el manejo de los pagos de servicios ambientales o ecosistémicos derivados de las actividades humanas sostenibles; y
+(ADICIONADA, G.G. 14 DE JULIO DE 2025)
+X. El reconocimiento, conservación y uso sostenible del Patrimonio Natural y Biocultural del Estado de México como base para el desarrollo sostenible, la justicia ambiental y la equidad intergeneracional.

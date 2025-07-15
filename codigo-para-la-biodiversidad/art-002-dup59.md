@@ -5,7 +5,8 @@ I. La investigación, incorporación o utilización de mecanismos, equipos y tec
 II. La investigación e incorporación de sistemas de ahorro de energía, de utilización de fuentes de energía menos contaminantes y de energías renovables y tecnologías de bajas emisiones;
 III. El ahorro, uso, aprovechamiento sostenible y la prevención de la contaminación del agua;
 IV. La ubicación y reubicación de instalaciones agropecuarias, industriales, comerciales y de servicios en áreas ambientalmente adecuadas;
-V. El establecimiento, manejo y vigilancia de áreas naturales sometidas a las categorías especiales de protección a las que se refiere el presente Libro; y
+(REFORMADA, G.G. 14 DE JULIO DE 2025)
+V. El establecimiento, manejo y vigilancia del Patrimonio Natural y Biocultural, así como de las de áreas naturales sometidas a las categorías especiales de protección a las que se refiere el presente Libro; y
 (REFORMADA, G.G. 19 DE DICIEMBRE DE 2013)
 VI. En general aquellas actividades relacionadas con la preservación y restauración del equilibrio ecológico y la protección ambiental, y con la adaptación al cambio climático y la mitigación de emisiones de gases de efecto invernadero que lo provocan.
 SECCION SEGUNDA
