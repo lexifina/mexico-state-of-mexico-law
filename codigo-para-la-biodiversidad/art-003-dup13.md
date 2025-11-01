@@ -35,7 +35,8 @@ XXX. Coadyuvar y participar de conformidad con la Ley General de Desarrollo Fore
 XXXI. Regular el uso del fuego en relación con actividades agropecuarias o de otra índole que pudieran afectar los ecosistemas forestales; así como la capacitación y acreditación de personas para realizar quemas en terrenos agropecuarios colindantes con terrenos forestales y preferentemente forestales;
 XXXII. Promover y participar en la restauración de los ecosistemas forestales afectados por incendio o cualquier otro desastre natural;
 XXXIII. Realizar y supervisar las labores de conservación, protección y restauración de los terrenos estatales forestales;
-XXXIV. Elaborar y aplicar de forma coordinada con los Municipios programas de forestación y reforestación en zonas degradadas que no sean competencia de la Federación, así como llevar a cabo acciones de protección y mantenimiento de las zonas forestadas o reforestadas;
+(REFORMADA, G.G. 31 DE OCTUBRE DE 2025)
+XXXIV. Elaborar y aplicar de forma coordinada con los Municipios programas de Restauración Hidrológico Forestal en zonas degradadas que no sean competencia de la Federación, considerando preferentemente para ello especies forestales nativas, así como llevar a cabo acciones de protección y mantenimiento de las zonas con actividades de restauración;
 XXXV. Diseñar, desarrollar y aplicar instrumentos económicos para promover el desarrollo forestal de la Entidad de conformidad con el presente Código y la Política Nacional Forestal y en especial promover el desarrollo de proyectos alternativos para el aprovechamiento sostenible de los recursos asociados al sector forestal;
 XXXVI. Promover e invertir en el mejoramiento de la infraestructura en las áreas forestales de la Entidad;
 XXXVII. Promover el desarrollo de plantaciones forestales comerciales incentivando la reconversión de aquellos terrenos de vocación forestal que actualmente están abandonados o dedicados a actividades agropecuarias marginales;

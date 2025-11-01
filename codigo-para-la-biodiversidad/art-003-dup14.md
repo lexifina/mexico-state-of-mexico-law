@@ -8,6 +8,8 @@ IV. Celebrar acuerdos y convenios de coordinación, cooperación y concertación
 V. Diseñar, desarrollar y aplicar incentivos para promover el desarrollo forestal de conformidad con el presente Libro y lineamientos de la política forestal del país en coordinación con las organizaciones productivas de poseedores y propietarios forestales locales o regionales;
 (REFORMADA, G.G. 20 DE AGOSTO DE 2020)
 VI. Participar en la planeación y ejecución de la reforestación, forestación, restauración de suelos y conservación de los bienes y servicios ambientales forestales dentro de su ámbito territorial de competencia; así como realizar campañas destinadas a la concientización sobre la importancia de las acciones señaladas en la presente fracción;
+(ADICIONADO, G.G. 31 DE OCTUBRE DE 2025)
+Asimismo, en coordinación con las instituciones y autoridades competentes de la Federación y del Estado, así como con universidades, academias, centros de investigación, promoverán un catálogo de las especies arbóreas aptas para ello, considerando prioritariamente las especies nativas o propias de la región, de fácil adaptabilidad a los climas y condiciones edáficas del Municipio.
 VII. Llevar a cabo en coordinación con el Gobierno de la Entidad acciones de saneamiento en los ecosistemas forestales dentro de su ámbito de competencia;
 VIII. Promover la construcción y mantenimiento de la infraestructura en las áreas forestales del Municipio;
 IX. Promover la participación de organismos públicos, privados y no gubernamentales en proyectos de apoyo directo al desarrollo forestal sostenible y en proyectos alternativos para el aprovechamiento sostenible de los recursos asociados al sector forestal;
