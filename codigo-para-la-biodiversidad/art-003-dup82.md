@@ -1,1 +1,3 @@
-Artículo 3.81. Los pueblos hospital podrán ser beneficiarios de estímulos fiscales en los términos que se establezcan en el presente Libro y su reglamento, y de incentivos otorgados por los entes públicos mediante la atención preferente en lo que respecta a los programas sociales de los diferentes órdenes de gobierno.
+SECCION PRIMERA
+DE LOS PUEBLOS HOSPITAL
+Artículo 3.80. Se crea la figura jurídica cuyo nombre genérico es pueblos hospital en superficies con áreas forestales permanentes y bajo programa de manejo forestal sujeto de desarrollo sostenible social, económico y ambiental.

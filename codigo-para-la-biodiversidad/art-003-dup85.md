@@ -1,1 +1,2 @@
-Artículo 3.84. El régimen de beneficios otorgados a los pueblos hospital se prolongará por el término que señalen las disposiciones aplicables o bien hasta lograr los objetivos específicos fijados por cada uno de ellos y mientras se cumplan los planes de desarrollo sostenible aprobados por el Consejo Forestal Estatal.
+Artículo 3.83. Los pueblos hospital al momento de constituirse fijarán sus propios objetivos y planes de desarrollo para alcanzar la sostenibilidad social, económica y ambiental de sus comunidades.
+El Consejo Forestal Estatal emitirá su opinión respecto de dichos planes.

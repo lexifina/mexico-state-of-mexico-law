@@ -1,5 +1,1 @@
-TITULO SEXTO
-DE LA PARTICIPACION CIUDADANA EN MATERIA FORESTAL
-CAPITULO I
-DE LA PARTICIPACION CIUDADANA EN MATERIA FORESTAL
-Artículo 3.91. El Ejecutivo Estatal y los Municipios conforme a sus atribuciones legales y en el ámbito de su competencia promoverán la participación de la sociedad en general en la planeación, diseño, aplicación y evaluación de los programas e instrumentos de la política forestal estatal para que manifiesten su opinión y propuestas respecto de los programas e instrumentos de la política forestal estatal y municipal que conduzcan a una realidad autogestora y potenciadora de las zonas forestales.
+Artículo 3.90. El Consejo Forestal Estatal en el marco previsto por la legislación efectuará la coordinación con los diferentes órdenes de gobierno y será el encargado de promover los pueblos hospital y hacer llegar a las comunidades las políticas, acciones y programas que promuevan la generación de empleos, su fortalecimiento económico, el fomento a la conservación y el mejoramiento de la calidad de la biodiversidad y de los recursos naturales susceptibles de ser utilizados mediante su aprovechamiento sostenible.

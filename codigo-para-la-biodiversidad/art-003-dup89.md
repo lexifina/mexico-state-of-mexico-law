@@ -1,1 +1,1 @@
-Artículo 3.88. Al momento de calificar los proyectos que serán beneficiarios de este programa el Consejo Forestal Estatal tendrá especial atención y prioridad a las regiones y comunidades con mayor rezago social, económico y ambiental.
+Artículo 3.87. Los proyectos que sean opinados por el Consejo Forestal Estatal se integrarán en el programa de los pueblos hospital.

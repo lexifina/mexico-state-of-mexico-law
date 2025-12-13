@@ -1,1 +1,1 @@
-Artículo 3.94. Los pueblos, pueblos hospital y comunidades indígenas participarán en la elaboración de los distintos planes y programas de desarrollo forestal del Estado y los Municipios.
+Artículo 3.93. PROBOSQUE podrá celebrar convenios de colaboración con Municipios y agrupaciones sociales con la finalidad de promover, fomentar y difundir programas y acciones de forestación, reforestación, aprovechamiento, conservación, ordenación y vigilancia de recursos forestales.

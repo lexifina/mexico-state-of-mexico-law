@@ -1,3 +1,2 @@
-SECCION PRIMERA
-DE LOS PUEBLOS HOSPITAL
-Artículo 3.80. Se crea la figura jurídica cuyo nombre genérico es pueblos hospital en superficies con áreas forestales permanentes y bajo programa de manejo forestal sujeto de desarrollo sostenible social, económico y ambiental.
+(ADICIONADO, G.G. 12 DE DICIEMBRE DE 2025)
+Artículo 3.79 Bis. Los familiares podrán solicitar a PROBOSQUE o al área competente del Ayuntamiento, la entrega de forma gratuita de un árbol joven o retoño mostrando el acta de nacimiento de su hija o hijo presentado ante el Registro Civil, o el acta de defunción de su ascendiente o familiar, en un periodo no mayor a un año a partir de la fecha de registro, de conformidad con la disponibilidad y suficiencia presupuestal, así como las condiciones y recomendaciones técnicas que determine la autoridad competente.
