@@ -1,0 +1,5 @@
+G.G. 17 DE DICIEMBRE DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 249.- POR EL QUE SE REFORMAN LAS FRACCIONES XXII, XXIII Y XXIV DEL ARTÍCULO 102, Y SE ADICIONA LA FRACCIÓN XXV AL ARTÍCULO 102 DE LA LEY DE TURISMO SOSTENIBLE Y DESARROLLO ARTESANAL DEL ESTADO DE MÉXICO, Y SE REFORMAN LAS FRACCIONES I, II Y VIII DEL ARTÍCULO 50, Y SE ADICIONAN LAS FRACCIONES IX, X, XI, XII Y XIII AL ARTÍCULO 50 DE LA LEY DE COMPETITIVIDAD Y ORDENAMIENTO COMERCIAL DEL ESTADO DE MÉXICO".]
+PRIMERO. Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
+SEGUNDO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "Gaceta del Gobierno".
+TERCERO. El Protocolo a que hace referencia la fracción XII del artículo 50 de la Ley de Competitividad y Ordenamiento Comercial del Estado de México, deberá ser emitido por las instancias correspondientes en un periodo no mayor a 180 días hábiles contados a partir de la entrada en vigor del presente Decreto.
