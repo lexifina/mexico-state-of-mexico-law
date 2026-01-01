@@ -14,5 +14,5 @@ V. Informar trimestralmente a través de la Unidad de Información, Planeación,
 VI. Atender y dar seguimiento a las recomendaciones derivadas de las evaluaciones de desempeño que emitan la Secretaría y la Contraloría;
 VII. Elaborar e implementar proyectos de mejora para incorporarlos en el diseño, adecuación y operación de los programas presupuestarios a su cargo, y
 VIII. Acordar con la Secretaría y la Contraloría las adecuaciones a los programas presupuestarios en cumplimiento de las recomendaciones resultantes de los procesos de seguimiento y evaluación mediante la celebración de un Convenio para la mejora del Desempeño y Resultados Gubernamentales.
-(ADICIONADO, G.G. 2 DE DICIEMBRE DE 2013)
-Las Dependencias y Entidades Públicas deberán tomar las previsiones presupuestales necesarias para dar cumplimiento a las disposiciones de este Código, en materia del Sistema de Evaluación del Desempeño.
+(REFORMADO, G.G. 17 DE DICIEMBRE DE 2025)
+Las Dependencias y Entidades Públicas deberán tomar las previsiones presupuestales necesarias para dar cumplimiento a las disposiciones de este Código, en materia del Sistema Integral de Evaluación del Desempeño.

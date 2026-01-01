@@ -46,6 +46,9 @@ XXXVIII. Predio: A la superficie de terreno no lotificada que constituye una uni
 XXXIX. Polígono de Redensificación Urbana: Es una superficie de uso urbano subutilizada o deteriorada, que es seleccionada para un mejor aprovechamiento del suelo, permitiendo el desarrollo vertical de inmuebles, con usos mixtos.
 (ADICIONADA, G.G. 20 DE SEPTIEMBRE DE 2018)
 XXXIX Bis. Rehabilitación: A la transformación de espacios públicos urbanos, caracterizados por ser lugares inseguros, focos de contaminación, basureros, centros de comercio informal, en espacios públicos de convivencia social;
+(ADICIONADA, G.G. 17 DE DICIEMBRE DE 2025)
+XXXIX Ter. Programa de Vivienda Social Gubernamental: Al instrumento Público mediante el cual las instancias gubernamentales establecen acciones, actividades y asignan los recursos necesarios para garantizar el derecho humano a una vivienda adecuada para personas en condición de vulnerabilidad social, mediante el desarrollo de proyectos habitacionales.
+Los programas de vivienda social pueden ser de índole federal y estatal.
 XL. Relotificación: Al acto por el cual a dos o más lotes o áreas privativas, según corresponda, se le modifican las dimensiones o las ubicaciones originalmente establecidas en la autorización del conjunto urbano, subdivisión o condominio, sin que se incremente el área vendible ni el número de viviendas o lotes.
 XLI. Reservas: A las áreas urbanizables previstas en los planes de desarrollo urbano para el crecimiento de un centro de población.
 XLII. Resiliencia: A la capacidad de un sistema, comunidad o sociedad potencialmente expuesta a un peligro para resistir, asimilar, adaptarse y recuperarse de sus efectos en un corto plazo y de manera eficiente, a través de la preservación y restauración de sus estructuras básicas y funcionales, para lograr mejorar su protección futura y las medidas de reducción de riesgos.

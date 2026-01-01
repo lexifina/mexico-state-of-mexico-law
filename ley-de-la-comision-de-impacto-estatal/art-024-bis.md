@@ -1,0 +1,7 @@
+(ADICIONADO, G.G. 17 DE DICIEMBRE DE 2025)
+Artículo 24 Bis. Los desarrollos urbanos habitacionales nuevos que se inicien, o conjuntos urbanos o condominios que se incorporen de manera total o parcial a un Programa de Vivienda Social Gubernamental, estarán sujetos a las normas particulares siguientes:
+I. Los desarrollos habitacionales que se inicien al amparo del Programa de Vivienda Social Gubernamental se exceptuarán de la obtención de la Evaluación de Impacto Estatal, siempre que se encuentre previamente establecido en los convenios o instrumentos de coordinación en los que el Estado sea parte.
+II. Los conjuntos urbanos y condominios que tengan como antecedente una Evaluación de Impacto Estatal y que se incorporen al programa de manera parcial o total, estarán exentos del cumplimiento de las autorizaciones correspondientes y de las respectivas obligaciones administrativas, en la proporción correspondiente al área que se integre al Programa.
+III. En caso de no existir un convenio o instrumento de coordinación que determine las excepciones correspondientes, los proyectos estarán exentos de la Evaluación de Impacto Estatal y en su caso, de dar cumplimiento a las autorizaciones y sus respectivas obligaciones administrativas en la proporción correspondiente al área que se integre al Programa, siempre y cuando los mismos se localicen en la zona que defina la instancia gubernamental encargada de su desarrollo.
+Titulo Cuarto
+De las Responsabilidades

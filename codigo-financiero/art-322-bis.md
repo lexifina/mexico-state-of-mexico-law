@@ -1,6 +1,5 @@
-(REFORMADO [N. DE E. ESTE PÁRRAFO], G.G. 15 DE DICIEMBRE DE 2017)
-Artículo 322 Bis.- Los recursos estatales asignados a los entes públicos que no hayan sido ejercidos en los plazos legales correspondientes, así como los que resulten del superávit de las finanzas públicas estatales, serán reintegrados a la hacienda pública estatal, registrándose lo anterior a través de un apartado específico en la Ley de Ingresos del Estado y en la cuenta pública anual.
-(ADICIONADO, G.G. 21 DE DICIEMBRE DE 2010)
-En caso de recursos federales o de otras fuentes de financiamiento, se estará a lo dispuesto en las reglas de operación, manuales o convenios específicos respectivos, presentando un informe a la Secretaría, mismo que se incluirá en la cuenta pública anual, de las causas que generaron el subejercicio de recursos.
-(ADICIONADO, G.G. 18 DE DICIEMBRE DE 2008)
-Quedan exceptuados de esto los recursos que se hayan comprometidos para gasto de inversión u obra pública.
+(REFORMADO, G.G. 17 DE DICIEMBRE DE 2025)
+Artículo 322 Bis.- Los recursos estatales asignados a los Entes Públicos, de acuerdo con su naturaleza jurídica y según corresponda, que no hayan sido ejercidos en los plazos legales correspondientes, así como los que resulten del superávit de las finanzas públicas estatales, serán reintegrados a la hacienda pública estatal, registrándose lo anterior a través de un apartado específico en la Ley de Ingresos del Estado y en la Cuenta Pública anual.
+Para efectos de lo dispuesto en el párrafo que antecede, se entenderá por superávit, al importe presupuestario que se produce cuando, en un periodo determinado, los ingresos efectivamente recaudados superan el monto de los gastos ejercidos.
+Los recursos referidos en el primer párrafo de este artículo, podrán reasignarse por la persona titular de la Secretaría, de acuerdo con las prioridades del presupuesto estatal, previo análisis de los objetivos, condiciones económicas y a la situación de las finanzas públicas de la Entidad, en términos de la normativa aplicable.
+En el caso de los recursos federales, los Entes Públicos serán los responsables de atender lo dispuesto en el artículo 17 de la Ley de Disciplina Financiera, como de la demás normativa aplicable.
