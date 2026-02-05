@@ -12,7 +12,7 @@ IX. Utilización de imágenes y/o voz de personas menores de edad o personas que
 X. Discriminación, previsto en el artículo 211;
 XI. Delito contra el ambiente, previsto en los artículos 228, 228 Bis, 229, 230, 231, 232 y 233;
 XII. Delitos contra la Flora y la Fauna Silvestre, previsto en el artículo 235;
-XIII. Extorsión, previsto en el artículo 266;
+XIII. (DEROGADA, G.G. 4 DE FEBRERO DE 2026)
 XIV. Abuso de confianza, previsto en los artículos 302 y 303;
 XV. Fraude, previsto en los artículos 305, 306 y 307;
 XVI. Despojo, previsto en el artículo 308;
