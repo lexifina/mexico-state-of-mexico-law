@@ -1,0 +1,4 @@
+G.G. 17 DE MARZO DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 282.- POR EL QUE SE REFORMAN LAS FRACCIONES I, II, III, IV, V, VI, VII, VIII, IX Y X, Y EL SEGUNDO PÁRRAFO DEL ARTÍCULO 228, LOS ARTÍCULOS 228 BIS, 229, 230, 231, 233 Y EL PRIMER PÁRRAFO DEL ARTÍCULO 234; Y SE ADICIONAN LOS PÁRRAFOS TERCERO Y CUARTO AL ARTÍCULO 228 Y EL ARTÍCULO 229 BIS DEL CÓDIGO PENAL DEL ESTADO DE MÉXICO".]
+PRIMERO. Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
+SEGUNDO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "Gaceta del Gobierno".

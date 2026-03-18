@@ -14,6 +14,9 @@ VIII. Prevenir y controlar la contaminación generada por el aprovechamiento de 
 IX. Evaluar y dictaminar en la competencia estatal el impacto ambiental de los proyectos, obras, acciones y servicios que se ejecuten o pretendan ejecutar en el Estado de conformidad con las normas oficiales mexicanas y las demás disposiciones aplicables;
 (REFORMADA, G.G. 22 DE ENERO DE 2014)
 X. Expedir los lineamientos necesarios para la regulación, administración y vigilancia de las áreas naturales protegidas del Estado;
+(ADICIONADA, G.G. 17 DE MARZO DE 2026)
+X Bis. Promover, en coordinación con las autoridades de salud estatales y municipales, el establecimiento de zonas de preservación ecológica de los centros de población, con categoría de Panteones Ecológicos, así como la práctica de actividades legales de inhumación ecológicas y ambientalmente responsables.
+Estos espacios se regirán por la legislación aplicable en materia de panteones, cementerios, servicios funerarios, crematorios, fosas comunes y los relativos a cualquier espacio destinado a la inhumación, en concordancia con la Ley General de Salud y demás disposiciones jurídicas aplicables;
 XI. Atender coordinadamente con la Federación los asuntos que afecten a la biodiversidad, el equilibrio ecológico del Estado y otra u otras Entidades Federativas en la prevención y control de emergencias o contingencias ambientales;
 XII. Celebrar convenios de coordinación, concertación y ejecución con la Federación, Entidades Federativas, Municipios, organizaciones sociales y particulares para la realización de acciones ambientales conforme a lo establecido en el presente Libro;
 XIII. Celebrar convenios con los Municipios del Estado para transmitir a éstos las facultades de administración y vigilancia de las áreas naturales protegidas de competencia estatal, así como para transferir los recursos asignados para esos efectos;

@@ -1,0 +1,5 @@
+(ADICIONADO, G.G. 17 DE MARZO DE 2026)
+Artículo 229 Bis.- No serán punibles las siguientes actividades, siempre que se realicen sin fines de lucro, con fines culturales, domésticos o comunitarios, y en volúmenes no mayores a medio metro cúbico mensual por hogar o unidad comunitaria:
+a) El uso de leña o material leñoso de origen forestal no industrializado para consumo doméstico, elaboración de artesanías, realización de rituales tradicionales o actividades culturales propias de comunidades indígenas o rurales;
+b) La recolección de ramas secas, restos de poda o madera caída de forma natural para su aprovechamiento familiar o comunal, de conformidad con los usos y costumbres locales y con respeto al marco ecológico;
+c) La comercialización, distribución o transporte de árboles de Navidad provenientes de plantaciones forestales autorizadas legalmente o registradas ante la autoridad correspondiente, siempre que en los operativos que se lleven a cabo se acredite su legal procedencia mediante la documentación correspondiente.
