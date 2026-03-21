@@ -1,2 +1,0 @@
-Artículo 5.42.- Para que el poseedor tenga derecho al interdicto de recuperar la posesión se necesita que no haya pasado un año desde que se verificó el despojo.
-Posesión que sigue siendo continua

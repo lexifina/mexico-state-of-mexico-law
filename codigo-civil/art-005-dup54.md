@@ -1,2 +1,0 @@
-Artículo 5.54.- Se entienden percibidos los frutos naturales o industriales desde que se alzan o separan. Los frutos civiles se producen día por día, y pertenecen al poseedor en esta proporción, luego que son debidos, aunque no los haya recibido.
-Gastos necesarios

@@ -1,2 +1,0 @@
-Artículo 6.2.- La herencia se defiere por la voluntad del testador o por disposición de la ley, La primera se llama testamentaria y la segunda legítima.
-Disposición testamentaria total o parcial de los bienes

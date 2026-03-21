@@ -1,2 +1,0 @@
-(REFORMADO, G.G. 18 DE AGOSTO DE 2011)
-Artículo 8.75.- En el desempeño de sus funciones y cumplimiento de sus responsabilidades, los servidores públicos del Instituto de la Función Registral del Estado de México deberán cumplir con las disposiciones de este Código, la Ley Registral, su Reglamento, la Ley que Crea el Organismo Público Descentralizado Denominado Instituto de la Función Registral del Estado de México, su reglamento interior, los manuales administrativos y demás disposiciones legales, reglamentarias y administrativas aplicables.

@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 20 DE MARZO DE 2026)
+Artículo 218 Ter.- En los casos de violencia familiar y/o violencia vicaria el Ministerio Público exhortará a la persona imputada para que se abstenga de cualquier conducta que pudiere resultar ofensiva para la víctima, acordará las medidas preventivas y solicitará las medidas precautorias que considere pertinentes para salvaguardar la integridad física o psíquica de la misma y, solicitará las órdenes de protección que establece la Ley de Acceso de las Mujeres a una Vida Libre de Violencia del Estado de México.

@@ -1,2 +1,0 @@
-Artículo 6.28.- Por presunción de influencia a la voluntad del testador son incapaces de adquirir por testamento el médico que haya asistido a aquel durante su última enfermedad si entonces hizo su disposición testamentaria; así como su cónyuge, concubina o concubinario, ascendientes, descendientes y hermanos, a no ser que sea pariente por consanguinidad o afinidad del autor de la sucesión.
-Incapacidad de heredar por presunción de influencia a la verdad
