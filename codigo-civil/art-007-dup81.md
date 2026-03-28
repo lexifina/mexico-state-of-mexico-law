@@ -1,0 +1,2 @@
+Artículo 7.80.- Los contratantes pueden establecer las cláusulas que crean convenientes; pero las que se refieren a requisitos esenciales del contrato o sean consecuencia de su naturaleza ordinaria, se tendrán por puestas aunque no se expresen, a no ser que las segundas sean renunciadas en los casos y términos permitidos por la ley.
+Cláusula penal

@@ -1,0 +1,1 @@
+Artículo 4.92.- (DEROGADO, G.G. 3 DE MAYO DE 2012)

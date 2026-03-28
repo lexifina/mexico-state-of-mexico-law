@@ -1,0 +1,2 @@
+(ADICIONADO, G.G. 18 DE AGOSTO DE 2011)
+Artículo 8.76.- El Instituto de la Función Registral del Estado de México, proveerá lo necesario para capacitar, actualizar y profesionalizar al personal del mismo, de conformidad con lo que se establezca en la Ley Registral, su Reglamento, la Ley que crea el Organismo Publico Descentralizado denominado Instituto de la Función Registral del Estado México y su Reglamento Interior.
