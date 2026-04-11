@@ -1,0 +1,13 @@
+(ADICIONADO, P.O. 22 DE OCTUBRE DE 2010)
+ARTÍCULO 106 BIS.- Para la preservación y aprovechamiento sustentable de la vida silvestre y su hábitat, la Secretaria tendrá las siguientes:
+I.- La formulación y conducción de la política estatal sobre la conservación y aprovechamiento sustentable de la vida silvestre la que, en todo caso, deberá ser congruente con los lineamientos de la política nacional en la materia;
+II.- La regulación para el manejo, control y remediación de los problemas asociados a ejemplares y poblaciones ferales, así como la aplicación de las disposiciones en la materia, dentro de su ámbito territorial;
+III.- La compilación de la información sobre los usos y formas de aprovechamiento de ejemplares, partes y derivados de la vida silvestre con fines de subsistencia por parte de las comunidades rurales y la promoción de la organización de los distintos grupos y su integración a los procesos de desarrollo sustentable en los términos de esta Ley;
+IV.- El apoyo, asesoría técnica y capacitación a las comunidades rurales para el desarrollo de actividades de conservación y aprovechamiento sustentable de la vida silvestre, la elaboración de planes de manejo, el desarrollo de estudios de poblaciones y la solicitud de autorizaciones;
+V.- La conducción de la política estatal de información y difusión en materia de vida silvestre; la integración, seguimiento y actualización del Sistema Estatal de Información sobre la Vida Silvestre en compatibilidad e interrelación con el Subsistema Nacional de Información sobre la Vida Silvestre, en el ámbito de su jurisdicción territorial;
+VI.- La creación y administración del registro estatal de las organizaciones relacionadas con la conservación y aprovechamiento sustentable de la vida silvestre;
+VII.- La creación y administración del registro estatal de los prestadores de servicios vinculados a la transformación, tratamiento, preparación, aprovechamiento y comercialización de ejemplares, partes y derivados de la vida silvestre, así como la supervisión de sus actividades;
+VIII.- La creación y administración del padrón estatal de mascotas de especies silvestres y aves de presa;
+IX.- La coordinación de la participación social en las actividades que incumben a las autoridades estatales;
+X.- La emisión de recomendaciones previo a los estudios correspondientes a las autoridades competentes en materia de vida silvestre, con el propósito de promover el cumplimiento de la legislación en materia de conservación y aprovechamiento sustentable.
+Para el ejercicio de estas atribuciones, se estará a lo dispuesto en las disposiciones reglamentarias.

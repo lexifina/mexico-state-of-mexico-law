@@ -1,2 +1,0 @@
-Artículo 7.25.- El acto jurídico viciado de nulidad en parte, no es totalmente nulo, si las partes que lo forman pueden legalmente subsistir separadas, a menos que se demuestre que al celebrarse el acto se quiso que sólo íntegramente subsistiera.
-Consecuencias de nulidad

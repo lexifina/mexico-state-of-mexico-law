@@ -1,1 +1,0 @@
-Artículo 4.63.- (DEROGADO, G.G. 14 DE MARZO DE 2016)

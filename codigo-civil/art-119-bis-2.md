@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 5 DE ENERO DE 2010)
+ARTÍCULO 119 BIS 2.- Los centros de verificación deberán obtener y mantener vigente fianza por el equivalente a once mil quinientos días de salario mínimo general vigente en el Estado, para garantizar el cumplimiento de las obligaciones y condiciones establecidas en esta Ley, su reglamento, el Programa de Verificación Vehicular, la concesión y circulares correspondientes.

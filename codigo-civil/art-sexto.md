@@ -1,0 +1,1 @@
+ARTÍCULO SEXTO: Hasta en tanto se expidan sus reformas, seguirán aplicándose los Planes vigentes en el Estado de Baja California, publicados en el Periódico Oficial del Gobierno del Estado de fecha 8 de septiembre de 1995.

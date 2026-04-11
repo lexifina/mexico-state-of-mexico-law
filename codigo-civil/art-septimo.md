@@ -1,0 +1,1 @@
+ARTÍCULO SÉPTIMO.- Las bases de estos planes y programas a que se refiere el artículo 25 de la presente Ley, se establecerán en el programa de ordenamiento ecológico de acuerdo con los plazos y formas que se establezcan en el reglamento respectivo, pero su elaboración y puesta en vigor no podrá exceder de 360 días naturales.

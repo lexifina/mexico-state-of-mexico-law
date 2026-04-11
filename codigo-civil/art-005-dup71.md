@@ -1,3 +1,0 @@
-Artículo 5.71.- Nadie puede construir cerca de una pared ajena o de copropiedad, fosos, cloacas, acueductos, hornos, fraguas, chimeneas, establos; ni instalar depósitos de materias corrosivas, máquinas de vapor o fábricas destinadas a usos que puedan ser peligrosos o nocivos sin guardar las distancias prescritas por las disposiciones legales, sus reglamentos y las administrativas, o sin construir las obras de resguardo necesarias con sujeción a estas últimas; a falta de éstas, lo que se determine por dictamen pericial.
-Los perjudicados con las construcciones efectuadas en contravención a lo dispuesto en el párrafo anterior tendrán acción para pedir su destrucción o para que se efectúen las obras de resguardo necesarias.
-Distancia para el plantado de árboles

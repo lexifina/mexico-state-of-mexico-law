@@ -1,0 +1,1 @@
+ARTÍCULO OCTAVO: En lo relativo a la regulación, vigilancia y sanciones de descargas de aguas residuales a los sistemas de alcantarillado sanitario pasarán a formar parte de las funciones del área ecológica municipal, una vez que forme parte de la administración pública municipal, el organismo operador de dichos sistemas.

@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO: Hasta en tanto se expidan las disposiciones reglamentarias de esta ley, seguirán en vigor las que han regido hasta ahora, en lo que no la contravenga. Las referencias legales o reglamentarias a la Ley del Equilibrio Ecológico y Protección al Ambiente del Estado de Baja California se entienden hechas en lo aplicable, a la presenta (sic) ley.

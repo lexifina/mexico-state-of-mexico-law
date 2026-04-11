@@ -1,1 +1,0 @@
-Artículo 4.89 Bis.- Los cónyuges podrán acordar su separación de mutuo acuerdo ante Notaría Pública, para que a través de convenio de divorcio asentado en escritura pública disuelvan el vínculo matrimonial, siempre y cuando no tengan hijas o hijos menores de edad o mayores sujetos a tutela y hubieren liquidado la sociedad conyugal, si la hubiere.
