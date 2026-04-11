@@ -1,2 +1,2 @@
-Artículo 1.15.- Cuando haya conflicto de derechos, a falta de ley que sea aplicable, la controversia se decidirá en favor del que trate de evitarse perjuicios y no del que pretenda obtener lucro. Si el conflicto fuere entre derechos iguales sobre la misma especie, se decidirá observando la mayor equidad.
-Ignorancia de la ley
+Artículo 1.11.- Los bienes inmuebles ubicados en el Estado y los muebles que en él se encuentren, se regirán por las disposiciones de este Código.
+Ley aplicada a la forma de los actos jurídicos

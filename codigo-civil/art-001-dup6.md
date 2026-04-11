@@ -1,2 +1,3 @@
-Artículo 1.6.- La ley sólo queda abrogada o derogada por otra posterior que así lo declare expresamente, o que contenga disposiciones total o parcialmente incompatibles con la ley anterior.
-Observancia de la ley
+Artículo 1.5 Bis.- La nulidad de juicio concluido es de naturaleza excepcional y procede en aquellos asuntos en los que se haya dictado sentencia o auto definitivo que haya causado ejecutoria.
+(ADICIONADO, G.G. 10 DE ABRIL DE 2026)
+Legitimación

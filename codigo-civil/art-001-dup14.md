@@ -1,2 +1,2 @@
-Artículo 1.14.- Los Jueces o Tribunales no podrán dejar de resolver una controversia, ni aún invocando el silencio, la obscuridad o insuficiencia de la ley.
-Solución de conflictos a falta de ley
+Artículo 1.10.- Los efectos de los actos jurídicos celebrados fuera del Estado, pero que deban cumplirse dentro de su territorio, se regirán por las disposiciones de este Código.
+Bienes sujetos a este Código

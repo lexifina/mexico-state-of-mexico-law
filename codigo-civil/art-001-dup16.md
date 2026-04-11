@@ -1,3 +1,2 @@
-Artículo 1.16.- El desconocimiento de las leyes a nadie aprovecha ni excusa su cumplimiento.
-Los jueces interpretarán las normas según su texto y en relación con el contexto, los antecedentes de las partes, la realidad social al tiempo en que deben aplicarlas y atenderán fundamentalmente al espíritu y fines de la norma.
-La equidad
+Artículo 1.12.- Los actos jurídicos, en todo lo relativo a su forma, se regirán por las leyes del lugar donde se celebren. Sin embargo, los interesados en la celebración de esos actos quedan en libertad para sujetarse a las formas prescritas por este Código, cuando el acto haya de ejecutarse dentro del territorio del Estado.
+Límite a los derechos

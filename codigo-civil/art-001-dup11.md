@@ -1,2 +1,2 @@
-Artículo 1.11.- Los bienes inmuebles ubicados en el Estado y los muebles que en él se encuentren, se regirán por las disposiciones de este Código.
-Ley aplicada a la forma de los actos jurídicos
+Artículo 1.7.- Contra la observancia de la ley no puede alegarse desuso, costumbre o práctica en contrario.
+Leyes que establecen excepciones

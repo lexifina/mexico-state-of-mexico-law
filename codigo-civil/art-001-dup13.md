@@ -1,2 +1,2 @@
-Artículo 1.13.- Los habitantes del Estado tienen obligación de ejercer sus actos, de usar y disponer de sus bienes, en forma que no perjudique al interés de la sociedad.
-Obligatoriedad judicial de resolver controversias
+Artículo 1.9.- Las leyes vigentes en el Estado se aplican a todos sus habitantes, cualquiera que sea su nacionalidad, vecinos o transeúntes.
+Actos y contratos celebrados fuera del Estado
