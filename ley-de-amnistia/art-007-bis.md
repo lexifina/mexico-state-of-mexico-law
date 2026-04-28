@@ -1,0 +1,3 @@
+(ADICIONADO, G.G. 28 DE ABRIL DE 2026)
+Artículo 7 Bis. El Instituto de la Defensoría Pública del Estado de México deberá proporcionar asesoría y defensa jurídica a las personas solicitantes de amnistía que así lo requieran, conforme a la legislación aplicable, así como ejercer su representación legal, cuando así corresponda, ante las autoridades competentes.
+La Comisión de Derechos Humanos del Estado de México deberá proporcionar orientación jurídica especializada a las personas solicitantes de amnistía, respecto de la identificación de posibles violaciones a derechos humanos o al debido proceso.
