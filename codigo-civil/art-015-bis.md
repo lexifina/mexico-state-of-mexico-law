@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 9 DE OCTUBRE DE 2015)
-ARTÍCULO 15 BIS.- Los Poderes Legislativo, Judicial y Ejecutivo, así como los Municipios del Estado de Baja California, expedirán sus manuales de sistemas de manejo ambiental, que tendrán por objeto ser una herramienta que guíe a la optimización de los recursos materiales y energéticos que se utilizan en sus actividades administrativas y operativas diarias, con el fin de reducir costos ambientales y financieros.

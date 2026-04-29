@@ -1,3 +1,0 @@
-(ADICIONADO, P.O. 22 DE OCTUBRE DE 2010)
-ARTÍCULO 106 BIS 2.- El aprovechamiento de los recursos naturales en áreas que sean el hábitat de especies de flora o fauna silvestres, especialmente de las endémicas, amenazadas sujetas a protección especial, en peligro de extinción o probablemente extinta en el medio silvestre, deberá hacerse de manera que no se alteren las condiciones necesarias para la subsistencia, desarrollo y evolución de dichas especies.
-La Secretaria deberá promover y apoyar el manejo de la flora y fauna silvestre, con base en el conocimiento biológico tradicional, información técnica, científica y económica, con el propósito de hacer un aprovechamiento sustentable de las especies.

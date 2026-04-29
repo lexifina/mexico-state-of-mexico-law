@@ -1,0 +1,2 @@
+Artículo 6.71.- El error en el nombre, apellido o cualidades del heredero, no vicia la institución, si de otro modo se supiere ciertamente cuál es la persona nombrada.
+Designación confusa de heredero

@@ -1,0 +1,2 @@
+Artículo 1.6.- La ley sólo queda abrogada o derogada por otra posterior que así lo declare expresamente, o que contenga disposiciones total o parcialmente incompatibles con la ley anterior.
+Observancia de la ley

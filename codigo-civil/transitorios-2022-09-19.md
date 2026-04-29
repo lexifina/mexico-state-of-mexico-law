@@ -1,6 +1,0 @@
-P.O. 19 DE SEPTIEMBRE DE 2022.
-[N. DE E. TRANSITORIOS DEL "DECRETO NO. 129 MEDIANTE EL CUAL SE APRUEBA LA REFORMA A LOS ARTÍCULOS 2, 9, 38, 39, 106 TER, 106 TER 1, 106 TER 2 Y 159 DE LA LEY DE PROTECCIÓN AL AMBIENTE DEL ESTADO DE BAJA CALIFORNIA, ASÍ COMO DIVERSAS REFORMAS A LA LEY DE DESARROLLO URBANO DEL ESTADO DE BAJA CALIFORNIA".]
-PRIMERO.- La presente reforma entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Baja California.
-SEGUNDO.- El Ejecutivo del Estado y los Ayuntamientos emitirán la reglamentación de su competencia dentro de los tres meses siguientes al inicio de la vigencia de esta Reforma.
-TERCERO.- El Consejo Estatal de Protección al Ambiente ajustará la reglamentación para la integración, administración y gasto de los fondos ambientales a que se refiere el artículo 39 de la Ley de la materia dentro de los tres meses siguientes al inicio de la vigencia de esta Reforma.
-El Consejo procurará que por lo menos durante tres años, el cincuenta por ciento de los recursos que integran los fondos ambientales se destine a los fines previstos en la fracción VIII del artículo 39 de la Ley de Protección al Ambiente para el Estado de Baja California.

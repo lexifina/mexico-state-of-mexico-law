@@ -1,1 +1,0 @@
-ARTÍCULO SEGUNDO: Se abroga la Ley del Equilibrio Ecológico y Protección al Ambiente del Estado de Baja California, publicada en el Periódico Oficial del Estado de Baja California el día 29 de febrero de 1992 y se abrogan las demás disposiciones legales en lo que se opongan a la presente Ley.

@@ -1,0 +1,16 @@
+Artículo 3.42.- Toda persona con capacidad legal, que así lo requiera, puede solicitar al Oficial del Registro Civil en donde está asentada su acta de nacimiento la rectificación de esta, para el reconocimiento de identidad de género, previa anotación correspondiente. La persona solicitante deberá cumplir con los requisitos siguientes:
+I. Ser de nacionalidad mexicana;
+II. Originaria del Estado de México;
+(NOTA: EL 15 DE JUNIO DE 2023, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN LOS APARTADOS V Y VI, ASÍ COMO EN LOS RESOLUTIVOS SEGUNDO Y TERCERO DE LA SENTENCIA DICTADA AL RESOLVER LA ACCIÓN DE INCONSTITUCIONALIDAD 124/2021, DECLARÓ LA INVALIDEZ DE LA FRACCIÓN III DE ESTE ARTÍCULO INDICADA CON MAYÚSCULAS, LA CUAL SURTIRÁ EFECTOS A LOS DOCE MESES SIGUIENTES A LA NOTIFICACIÓN DE ESTOS PUNTOS RESOLUTIVOS AL CONGRESO DEL ESTADO DE MÉXICO, DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www.scjn.gob.mx/).
+III. SER MAYOR DE EDAD;
+IV. Comparecer personal y voluntariamente en términos de lo establecido en el reglamento y (sic) manual de Procedimientos del Registro Civil;
+V. Presentar su solicitud ante el Oficial del Registro Civil, y
+(NOTA: EL 15 DE JUNIO DE 2023, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN LOS APARTADOS V Y VI, ASÍ COMO EN LOS RESOLUTIVOS SEGUNDO Y CUARTO DE LA SENTENCIA DICTADA AL RESOLVER LA ACCIÓN DE INCONSTITUCIONALIDAD 124/2021, DECLARÓ LA INVALIDEZ DE LA FRACCIÓN VI DE ESTE ARTÍCULO INDICADA CON MAYÚSCULAS, LA CUAL SURTIÓ EFECTOS EL 20 DE JUNIO DE 2023, DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www.scjn.gob.mx/).
+VI. NO ESTAR SUJETO O SUJETA A PROCESO JUDICIAL QUE AFECTÉ DERECHOS DE TERCEROS.
+El reconocimiento respectivo se llevará a cabo ante las instancias y las autoridades correspondientes del Registro Civil del Estado de México, cumpliendo con todas las formalidades que exige el Reglamento del Registro Civil del Estado de México.
+(REFORMADO, G.G. 28 DE ABRIL DE 2026)
+Para los efectos de este código se entiende por identidad de género, la convicción personal e interna, tal como cada persona se percibe a sí misma, la cual puede corresponder o no, al sexo asignado en el acta primigenia, incluyendo la identidad no binaria. En ningún caso será requisito acreditar intervención quirúrgica alguna, terapias u otro diagnóstico y/o procedimiento para el reconocimiento de la identidad de género.
+Los efectos de la nueva acta de nacimiento para identidad de género realizados serán oponibles a terceros desde de (sic) su rectificación.
+Los derechos y obligaciones de la persona que realice la rectificación de su acta de nacimiento, no se modificarán ni se extinguirán con la nueva identidad jurídica; incluidos los provenientes de las relaciones propias del derecho de familia en todos sus órdenes y grados, los que se mantienen inmodificables.
+(ADICIONADO, G.G. 22 DE JULIO DE 2021)
+Legitimación para pedir la rectificación de acta

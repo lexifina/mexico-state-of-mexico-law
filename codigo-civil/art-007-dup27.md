@@ -1,0 +1,2 @@
+Artículo 7.27.- Si el acto fuere bilateral y las obligaciones correlativas consisten ambas en sumas de dinero o en bienes productivos de frutos, no se hará la restitución respectiva de intereses o de frutos, sino desde el día de la demanda de nulidad. Los intereses y los frutos percibidos hasta esa fecha podrán compensarse.
+Cumplimiento recíproco de la declaración de nulidad

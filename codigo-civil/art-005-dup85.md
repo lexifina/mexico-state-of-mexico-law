@@ -1,0 +1,2 @@
+Artículo 5.85.- Los animales sin marca que se encuentren en tierras de propiedad particular, que exploten en común varias personas, se presumen del dueño de la cría de la misma especie y raza en ellos establecidos, mientras no se pruebe lo contrario. Si dos o más fueren dueños de la misma especie o raza, mientras no haya pruebas de que los animales pertenecen a alguno de ellos, se reputarán de propiedad común.
+Concepto de tesoro

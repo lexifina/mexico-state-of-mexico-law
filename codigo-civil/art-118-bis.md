@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 1 DE FEBRERO DE 2013)
-ARTÍCULO 118 BIS.- Los vehículos con una antigüedad mínima de 40 años, contados a partir de la fecha de su fabricación y que sus partes y componentes mecánicos y de carrocería conserven sus características de originalidad y de operación hasta en un 95%, podrán solicitar cumplir con la verificación de acuerdo a los requisitos y al calendario establecidos en el Programa que emita la Secretaría.

@@ -1,0 +1,2 @@
+Artículo 6.66.- Los herederos instituidos sin designación de la parte que a cada uno corresponda, heredarán por partes iguales.
+Heredero que se considera legatario

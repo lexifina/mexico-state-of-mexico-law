@@ -8,3 +8,4 @@ Lo tendrá entendido la Gobernadora del Estado, haciendo que se publique y se cu
 Dado en el Palacio del Poder Legislativo, en la ciudad de Toluca de Lerdo, Capital del Estado de México, a los diecisiete días del mes de octubre del año dos mil veintitrés.- Presidenta.- Dip. Azucena Cisneros Coss.- Rúbrica.- Secretarias.- Dip. María Elida Castelán Mondragón.- Rúbrica.- Dip. María del Rosario Aguirre Flores.- Rúbrica.- Dip. Claudia Desiree Morales Robledo.- Rúbrica.
 Por tanto, mando se publique, circule, observe y se le dé el debido cumplimiento.
 Toluca de Lerdo, México, a 22 de noviembre de 2023.- LA GOBERNADORA CONSTITUCIONAL DEL ESTADO DE MÉXICO, MTRA. DELFINA GÓMEZ ÁLVAREZ.- RÚBRICA.- EL SECRETARIO GENERAL DE GOBIERNO, HORACIO DUARTE OLIVARES.- RÚBRICA.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]

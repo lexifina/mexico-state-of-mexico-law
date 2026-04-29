@@ -1,0 +1,6 @@
+G.G. 28 DE ABRIL DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 310.- POR EL QUE SE REFORMAN LOS ARTÍCULOS 23 Y 68, EL PÁRRAFO SEGUNDO DEL ARTÍCULO 94, LAS FRACCIONES II, III, IV Y V DEL ARTÍCULO 242, LAS FRACCIONES I Y IV DEL ARTÍCULO 274, EL PÁRRAFO SEGUNDO DEL ARTÍCULO 281 Y LA FRACCIÓN IV DEL ARTÍCULO 290 DEL CÓDIGO PENAL DEL ESTADO DE MÉXICO".]
+PRIMERO. Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
+SEGUNDO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "Gaceta del Gobierno".
+TERCERO. En los procesos penales en los que se hubiera impuesto la pena de prisión vitalicia, por la vía incidental, la autoridad jurisdiccional deberá revisar y adecuar la pena de prisión impuesta conforme al grado de culpabilidad establecido en cada caso concreto y de acuerdo con el parámetro de punibilidad contemplado en el delito de que se trate.
+CUARTO. Las erogaciones que se generen con motivo de la entrada en vigor del presente Decreto se sujetarán a la disponibilidad de recursos y se cubrirán con cargo al presupuesto aprobado a las dependencias o entidades competentes para el ejercicio fiscal en curso y subsecuentes.

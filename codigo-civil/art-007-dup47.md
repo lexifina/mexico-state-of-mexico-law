@@ -1,0 +1,2 @@
+Artículo 7.46.- Cuando la oferta se haga sin fijación de plazo a una persona no presente, por correo, fax o cualquier otro medio electrónico, el autor de la oferta quedará ligado durante tres días, y en el primer caso, además del tiempo necesario para la ida y vuelta regular del correo público, o del que se juzgue bastante, no habiendo correo público, según las distancias y la facilidad o dificultad de las comunicaciones.
+Formación del contrato con la recepción de la aceptación

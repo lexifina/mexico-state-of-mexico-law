@@ -1,3 +1,0 @@
-(REFORMADO PRIMER PÁRRAFO, P.O. 5 DE JULIO DE 2002)
-ARTÍCULO QUINTO: Los municipios deberán adecuar sus reglamentos, ordenanzas, bandos de policía y gobierno, y demás disposiciones derivadas de la presente Ley, debiéndolos expedir dentro de los trescientos sesenta y cinco días naturales siguientes a la entrada en vigor de este ordenamiento.
-En el caso de los municipios que no cuenten con disposiciones reglamentarias a que se refiere el párrafo anterior ni con la unidad de gestión ambiental a través de la cual presten los servicios administrativos y técnicos ambientales, la Secretaría aplicará temporalmente las disposiciones que en la materia les correspondan.

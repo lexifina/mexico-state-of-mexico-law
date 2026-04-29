@@ -1,0 +1,1 @@
+Artículo 4.5.- (DEROGADO, G.G. 14 DE MARZO DE 2016)

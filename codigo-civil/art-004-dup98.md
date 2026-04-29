@@ -1,0 +1,2 @@
+Artículo 4.96.- En la resolución que decrete el divorcio voluntario, se determinarán los derechos y obligaciones derivados de la patria potestad, respecto a la persona y bienes de los hijos, teniendo en cuenta el interés superior de los menores, su salud, costumbres, educación y conservación de su patrimonio.
+El Juez acordará de oficio cualquier providencia que considere benéfica para los hijos o los sujetos a tutela.

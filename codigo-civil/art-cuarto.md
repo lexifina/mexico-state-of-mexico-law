@@ -1,1 +1,0 @@
-ARTÍCULO CUARTO: Los procedimientos y recursos administrativos relacionados con la materia de esta Ley, que se hubieren iniciado bajo la vigencia de la Ley del Equilibrio Ecológico y Protección al Ambiente del Estado de Baja California, se tramitarán y resolverán conforme a las disposiciones de dicha Ley que se abroga.
