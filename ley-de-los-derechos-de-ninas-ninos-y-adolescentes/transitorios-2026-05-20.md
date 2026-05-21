@@ -1,0 +1,4 @@
+G.G. 20 DE MAYO DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 327.- POR EL QUE SE REFORMA EL SEGUNDO PÁRRAFO DEL ARTÍCULO 58 Y SE ADICIONA EL ARTÍCULO 61 BIS A LA LEY DE EDUCACIÓN DEL ESTADO DE MÉXICO; Y SE ADICIONA UN SEGUNDO PÁRRAFO A LA FRACCIÓN I DEL ARTÍCULO 28 DE LA LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE MÉXICO".]
+PRIMERO. Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
+SEGUNDO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "Gaceta del Gobierno".

@@ -1,1 +1,3 @@
-Artículo 4.89 Bis.- Los cónyuges podrán acordar su separación de mutuo acuerdo ante Notaría Pública, para que a través de convenio de divorcio asentado en escritura pública disuelvan el vínculo matrimonial, siempre y cuando no tengan hijas o hijos menores de edad o mayores sujetos a tutela y hubieren liquidado la sociedad conyugal, si la hubiere.
+Artículo 4.89.- El divorcio se clasifica en incausado, voluntario, administrativo y notarial. Es incausado cuando cualquiera de los cónyuges lo solicita sin que exista necesidad de señalar la razón que lo motiva y es voluntario cuando se solicita de común acuerdo.
+(ADICIONADO, G.G. 1 DE SEPTIEMBRE DE 2017)
+Divorcio ante Notaría Pública

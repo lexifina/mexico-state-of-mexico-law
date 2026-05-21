@@ -1,4 +1,6 @@
-(REFORMADO PRIMER PÁRRAFO, G.G. 27 DE MARZO DE 2026)
-Artículo 4.19.- Los cónyuges de común acuerdo decidirán lo relativo a la educación y formación de los hijos, basados en la crianza positiva, el amor, el diálogo, el respeto y la igualdad, quedando prohibido el castigo corporal, el castigo humillante y el ejercicio de cualquier tipo de violencia en este proceso, así como a la administración de los bienes que sean comunes a los cónyuges o que pertenezcan a los hijos sujetos a su patria potestad.
-En caso de desacuerdo el Juez de Primera Instancia resolverá lo conducente, sin necesidad de juicio.
-Libertad entre los cónyuges para elegir su actividad
+Artículo 4.18 Bis.- Para valorar económicamente el trabajo del hogar no remunerado, se considerarán, entre otros aspectos:
+I. El tiempo dedicado a las labores domésticas y de cuidado;
+II. El costo de servicios domésticos y de cuidado equivalentes en el mercado;
+III. La renuncia, limitación o afectación en el desarrollo de oportunidades laborales, profesionales o académicas derivada de la realización de estas actividades; y
+IV. Las responsabilidades asumidas en el cuidado y desarrollo integral de los miembros de la familia, particularmente hijos, hijas y personas dependientes.
+Educación de los hijos y administración de bienes

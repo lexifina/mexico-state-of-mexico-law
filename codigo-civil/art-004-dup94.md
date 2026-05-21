@@ -1,1 +1,2 @@
-Artículo 4.92.- (DEROGADO, G.G. 3 DE MAYO DE 2012)
+(REFORMADO, G.G. 14 DE MARZO DE 2016)
+Artículo 4.91.- El divorcio podrá pedirse por uno de los cónyuges, con la sola manifestación de la voluntad de no querer continuar con el matrimonio.

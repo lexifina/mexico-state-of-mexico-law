@@ -1,2 +1,2 @@
-Artículo 4.40.- Si la disolución de la sociedad procede de la nulidad del matrimonio, el cónyuge que hubiere actuado de mala fe no tendrá parte en las utilidades. Estas se aplicarán a los hijos, y si no los hubiere, al cónyuge inocente.
-Utilidades respecto a los cónyuges de mala fe
+Artículo 4.39.- Si los dos cónyuges procedieron de mala fe, la sociedad se considera nula desde su creación; quedando a salvo los derechos de terceros.
+Utilidades respecto al cónyuge de mala fe

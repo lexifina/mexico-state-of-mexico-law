@@ -1,2 +1,4 @@
-Artículo 4.52.- Son donaciones antenupciales las que antes del matrimonio hace un pretendiente al otro, así como las que un tercero hace a alguno de los pretendientes, o a ambos en consideración al matrimonio, las que podrán ser inoficiosas en los términos en que lo fueren las comunes.
-Determinación de donación antenupcial inoficiosa
+Artículo 4.51.- Cada uno de los cónyuges debe contribuir (sic) la educación y alimentación de los hijos y a las demás cargas del matrimonio.
+CAPITULO IV
+De las Donaciones Antenupciales
+Concepto de la donación antenupcial

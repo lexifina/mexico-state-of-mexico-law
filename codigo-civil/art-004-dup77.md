@@ -1,2 +1,2 @@
-Artículo 4.76.- No procederá la nulidad por falta de solemnidades en el acta de matrimonio celebrado ante el oficial del Registro Civil, cuando a la existencia del acta se una la posesión de estado matrimonial.
-Continuación de la demanda de nulidad
+Artículo 4.75.- La nulidad que se funde en la falta de formalidades para la validez del matrimonio, puede alegarse por los cónyuges y por cualquiera que tenga interés en probar que no hay matrimonio o por el Ministerio Público.
+Improcedencia de nulidad por falta de solemnidades

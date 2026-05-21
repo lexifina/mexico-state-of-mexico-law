@@ -1,2 +1,2 @@
-(REFORMADO, G.G. 14 DE MARZO DE 2016)
-Artículo 4.91.- El divorcio podrá pedirse por uno de los cónyuges, con la sola manifestación de la voluntad de no querer continuar con el matrimonio.
+Artículo 4.90.- (DEROGADO, G.G. 3 DE MAYO DE 2012)
+Legitimación y plazo para solicitar el divorcio incausado

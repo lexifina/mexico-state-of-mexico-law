@@ -1,2 +1,2 @@
-Artículo 4.50.- Los ingresos que cada cónyuge obtenga serán propios, salvo pacto contrario.
-Contribución de los cónyuges a la educación y alimentación de los hijos
+Artículo 4.49.- Las capitulaciones que establezcan separación de bienes contendrán un inventario de los que sea propietario cada contrayente o cónyuge y la relación de sus deudas.
+Ingresos de cada cónyuge

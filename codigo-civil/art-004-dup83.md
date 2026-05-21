@@ -1,2 +1,2 @@
-Artículo 4.82.- Si la demanda de nulidad fuere entablada por uno de los cónyuges, se dictarán las mismas medidas provisionales que para el caso de divorcio.
-Cuidado y custodia de los hijos de matrimonio nulo
+Artículo 4.81.- La buena fe se presume, salvo prueba en contrario.
+Medidas provisionales si sólo uno de los cónyuges solicita la nulidad

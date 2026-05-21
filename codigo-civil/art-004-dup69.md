@@ -1,2 +1,1 @@
-Artículo 4.68.- (DEROGADO, G.G. 14 DE MARZO DE 2016)
-Legitimación y plazo para deducir contra la vida
+Artículo 4.67.- La nulidad por parentesco puede demandarse por cualquiera de los cónyuges, por sus ascendientes o por el Ministerio Público.

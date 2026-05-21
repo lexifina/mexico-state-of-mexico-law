@@ -1,2 +1,2 @@
-Artículo 4.83.- Cuando la sentencia sobre nulidad cause ejecutoria, los padres propondrán la forma y términos del cuidado y custodia de los hijos, el Juez resolverá, atendiendo siempre al interés preponderante de éstos.
-División de los bienes comunes
+Artículo 4.82.- Si la demanda de nulidad fuere entablada por uno de los cónyuges, se dictarán las mismas medidas provisionales que para el caso de divorcio.
+Cuidado y custodia de los hijos de matrimonio nulo

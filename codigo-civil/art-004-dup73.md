@@ -1,2 +1,4 @@
-Artículo 4.72.- La nulidad por embriaguez, uso de estupefacientes, psicotrópicos o de cualquier otra sustancia que altere la conducta y produzca dependencia, sólo puede ser pedida por el cónyuge agraviado, dentro del plazo de seis meses contados desde que se celebró el matrimonio.
-Legitimación para pedir la nulidad por trastornos mentales
+Artículo 4.71.- La acción de nulidad del matrimonio por violencia podrá deducirse sólo por parte del cónyuge agraviado dentro de un periodo de un año, desde que cesó la misma.
+Cuando la violencia subsista al momento de demandar la nulidad, el juez dictará de forma oficiosa las medidas de protección contra la violencia familiar.
+(REFORMADO, G.G. 1 DE NOVIEMBRE DE 2022)
+Legitimación y plazo para pedir la nulidad por embriaguez y uso de drogas

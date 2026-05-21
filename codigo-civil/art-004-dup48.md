@@ -1,2 +1,4 @@
-Artículo 4.47.- La separación de bienes puede ser absoluta o parcial. En el segundo caso, los bienes que no estén comprendidos en las capitulaciones, serán objeto de la sociedad conyugal.
-Conclusión de la separación de bienes
+Artículo 4.46.- La separación de bienes se rige por las capitulaciones matrimoniales o por sentencia judicial. La separación puede comprender no sólo los bienes de que sean propietarios los cónyuges al celebrar el matrimonio, sino también los que adquieran después.
+(REFORMADO, G.G. 20 DE MAYO DE 2026)
+Para efectos de divorcio, cuando alguno de los cónyuges haya realizado preponderantemente trabajo del hogar no remunerado, consistente en tareas de administración, dirección, atención del mismo o cuidado de la familia, de manera cotidiana o tenga desproporcionalmente menos bienes que el otro cónyuge, tendrá derecho a la repartición de los bienes adquiridos durante el matrimonio de por lo menos el cuarenta y hasta por el cincuenta por ciento, con base en los principios de equidad y proporcionalidad, independientemente del porcentaje de dedicación a actividades económicas externas.
+Régimen de separación de bienes absoluto o parcial

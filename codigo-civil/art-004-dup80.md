@@ -1,2 +1,2 @@
-Artículo 4.79.- Si ha habido buena fe de parte de uno solo de los cónyuges, el matrimonio produce efectos civiles únicamente respecto de él y de los hijos.
-Carencia de efectos a favor de los cónyuges de mala fe
+Artículo 4.78.- El matrimonio contraído de buena fe, aunque sea declarado nulo, produce sus efectos civiles en favor de los cónyuges mientras dure; y en todo tiempo en favor de los hijos de ambos nacidos antes y durante el matrimonio y trescientos días después de la declaración de nulidad, o desde la separación de los cónyuges, en su caso.
+Efectos a favor del cónyuge de buena fe

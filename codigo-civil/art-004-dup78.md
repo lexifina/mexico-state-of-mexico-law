@@ -1,2 +1,2 @@
-Artículo 4.77.- La acción de nulidad no es transmisible; sin embargo, los herederos podrán continuar la demanda de nulidad entablada por aquél a quien heredan.
-Efectos del matrimonio de buena fe declarado nulo
+Artículo 4.76.- No procederá la nulidad por falta de solemnidades en el acta de matrimonio celebrado ante el oficial del Registro Civil, cuando a la existencia del acta se una la posesión de estado matrimonial.
+Continuación de la demanda de nulidad

@@ -1,2 +1,2 @@
-Artículo 4.35.- No pueden renunciarse anticipadamente las ganancias que resulten de la sociedad conyugal.
-Cesación de efectos de la sociedad conyugal
+Artículo 4.34.- Todo convenio que importe cesión de una parte de los bienes propios de cada cónyuge, será considerado como donación.
+Irrenunciabilidad anticipada a las ganancias

@@ -1,2 +1,2 @@
-Artículo 4.26.- Las capitulaciones matrimoniales pueden otorgarse antes de la celebración del matrimonio o durante él, y pueden comprender no solamente los bienes de que sean dueños los esposos en el momento de hacer el pacto, sino también los que adquieran después.
-Bienes que comprende la sociedad conyugal
+Artículo 4.25.- Las capitulaciones matrimoniales son los convenios que los contrayentes o cónyuges celebran para constituir la sociedad conyugal o la separación de bienes y reglamentar su administración.
+Tiempo de otorgarse las capitulaciones matrimoniales

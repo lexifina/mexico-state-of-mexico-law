@@ -1,4 +1,2 @@
-Artículo 4.60.- Las donaciones entre cónyuges pueden ser revocadas libremente y en todo tiempo por los donantes.
-CAPITULO VI
-De los Matrimonios nulos
-Causas de nulidad de matrimonio
+Artículo 4.59.- Los cónyuges pueden hacerse donaciones siempre que no perjudiquen el derecho de los acreedores alimentarios; pero sólo se confirman con la muerte del donante.
+Posibilidad de revocar donaciones entre cónyuges
