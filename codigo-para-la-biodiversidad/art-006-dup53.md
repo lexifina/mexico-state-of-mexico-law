@@ -1,1 +1,1 @@
-Artículo 6.53. Las disposiciones contenidas en el presente Capítulo se aplicarán en lo conducente a los animales de silla.
+Artículo 6.53. (DEROGADO, G.G. 16 DE JUNIO DE 2026)

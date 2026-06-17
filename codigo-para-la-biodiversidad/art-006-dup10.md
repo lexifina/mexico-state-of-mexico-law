@@ -1,5 +1,1 @@
-Artículo 6.10. Son facultades de la Procuraduría de Protección al Ambiente del Estado de México:
-I. Vigilar el cumplimiento de las disposiciones del presente Libro y demás ordenamientos que de éste emanen derivadas de la presentación de denuncia ciudadana cuando el acto u omisión involucre a dos o más Municipios o cuando los hechos ameriten su participación tratándose de alguna emergencia, aún sin mediar denuncia interpuesta y poner a disposición de las autoridades competentes a quién infrinja las disposiciones de este Libro;
-II. Dar aviso a las autoridades municipales competentes cuando la tenencia de alguna especie de fauna doméstica no cuenten con el registro y la autorización necesaria de acuerdo a la legislación aplicable en la materia, así como a quienes comercialicen con animales domésticos sus productos o subproductos sin contar con las autorizaciones correspondientes;
-III. Emitir recomendaciones a las autoridades competentes en las materias derivadas del presente Libro con el propósito de promover el cumplimiento de sus disposiciones y sancionar cuando corresponda; y
-IV. Las demás que este Libro, su Reglamento y demás disposiciones jurídicas aplicables le confieran.
+Artículo 6.10. (DEROGADO, G.G. 16 DE JUNIO DE 2026)

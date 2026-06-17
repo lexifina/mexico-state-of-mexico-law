@@ -1,3 +1,4 @@
+(DEROGADO CON LOS ARTÍCULOS QUE LO INTEGRAN, G.G. 16 DE JUNIO DE 2026)
 CAPITULO IX
 DE LAS MASCOTAS
-Artículo 6.28. Toda persona que sea propietaria, esté encargada o posea una mascota está obligado a procurarle alimentación y cuidados apropiados a su modo de vida.
+Artículo 6.28. (DEROGADO, G.G. 16 DE JUNIO DE 2026)

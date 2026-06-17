@@ -1,1 +1,1 @@
-Artículo 6.27. La posesión de un animal doméstico manifiestamente feroz o peligroso por su naturaleza requiere de autorización de las autoridades estatales o municipales que correspondan. Si su propietario, poseedor o encargado permite que deambule libremente en la vía pública sin bozal y correa adecuada será sancionado en los términos de este Libro.
+Artículo 6.27. (DEROGADO, G.G. 16 DE JUNIO DE 2026)

@@ -1,1 +1,1 @@
-Artículo 6.81. El personal que intervenga en el sacrificio de animales deberá estar plenamente autorizado y capacitado en la aplicación de las diversas técnicas, manejo de sustancias y conocimiento de sus efectos, vías de administración y dosis requeridas, así como en métodos alternativos para el sacrificio siempre bajo la supervisión de un médico veterinario zootecnista con cédula profesional en estricto cumplimiento de las normas oficiales mexicanas y las normas técnicas estatales.
+Artículo 6.81. (DEROGADO, G.G. 16 DE JUNIO DE 2026)

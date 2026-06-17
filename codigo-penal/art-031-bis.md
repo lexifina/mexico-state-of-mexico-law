@@ -1,0 +1,3 @@
+(ADICIONADO, G.G. 16 DE JUNIO DE 2026)
+Artículo 31 Bis.- En caso de delitos contra maltrato y crueldad de los seres sintientes, la reparación del daño será integral deberá incluir los gastos generados para el resguardo, manutención, mantenimiento, atención médica veterinaria, medicamentos, tratamientos, intervenciones, rehabilitación conductual o la reparación por la muerte del ser sintiente.
+En el caso de animales de compañía en situación de calle, domiciliados, semi domiciliados, abandonados o ferales, cuando se haya cometido el delito de maltrato animal, la reparación del daño se instituye en beneficio de la comunidad y a favor del fondo a que refiere la ley de la materia.

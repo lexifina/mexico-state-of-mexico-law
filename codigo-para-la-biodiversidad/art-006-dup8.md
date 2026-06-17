@@ -1,10 +1,1 @@
-(REFORMADO PRIMER PÁRRAFO, G.G. 5 DE ABRIL DE 2024)
-Artículo 6.8. Corresponde a la Secretaría del Medio Ambiente y Desarrollo Sostenible del Estado de México, en el ámbito de su competencia el ejercicio de las siguientes facultades:
-I. La promoción de información y difusión que genere una cultura cívica de protección, responsabilidad, respeto y trato digno a los animales:
-II. El desarrollo de programas de educación y capacitación en materia de trato digno y respetuoso a los animales en coordinación con las autoridades competentes relacionadas con las instituciones de educación básica, media y superior de jurisdicción del Estado, así como con las organizaciones no gubernamentales legalmente constituidas y el desarrollo de programas de educación formal e informal con el sector social, privado y académico;
-III. La regulación para el manejo, control y remediación de los problemas asociados a los animales abandonados y callejeros;
-IV. La celebración de convenios de concertación con los sectores social y privado;
-V. La expedición de certificados de venta de animales a los establecimientos comerciales, ferias, exposiciones y bazares que se dediquen a la venta de mascotas y llevar el padrón de animales con la información que se recabe de la expedición de estos certificados, asimismo los establecimientos deberán expedir un certificado de salud de las mascotas y animales de compañía que vendan donde se manifieste el estado de salud, la raza, el nombre común o científico y la edad del animal que comercializan expedidos únicamente por médicos veterinarios con cédula profesional;
-VI. Proponer al Ejecutivo Estatal en coordinación con la Secretaría de Salud el Reglamento del presente Libro y las normas técnicas estatales relativas a la materia de este Ordenamiento;
-VII. Crear y operar el padrón de las asociaciones protectoras de animales, asociaciones y colegios de médicos veterinarios zootecnistas, federaciones relativas y de organizaciones sociales dedicadas al mismo objeto, así como el Padrón de Animales del Estado de México; y
-VIII. Las demás que este Libro y aquellos ordenamientos jurídicos aplicables le confieran.
+Artículo 6.8. (DEROGADO, G.G. 16 DE JUNIO DE 2026)

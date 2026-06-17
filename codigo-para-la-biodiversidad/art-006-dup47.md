@@ -1,1 +1,1 @@
-Artículo 6. 47. Si la carga consiste en haces de madera, sacos, cajas u otra clase de bultos de naturaleza análoga las unidades se distribuirán proporcionalmente sobre el cuerpo del animal.
+Artículo 6.47. (DEROGADO, G.G. 16 DE JUNIO DE 2026)

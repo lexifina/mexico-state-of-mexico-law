@@ -1,1 +1,1 @@
-Artículo 6.21. La Secretaría promoverá ante las instancias correspondientes y participará en la capacitación y actualización del personal en el trato, sociabilización, interacción y manejo de animales domésticos y en actividades de inspección y vigilancia a través de cursos, talleres, reuniones, publicaciones y demás proyectos, programas y acciones que contribuyan a los objetivos del presente Capítulo.
+Artículo 6.21. (DEROGADO, G.G. 16 DE JUNIO DE 2026)

@@ -1,1 +1,1 @@
-Artículo 6.62. Para transportar cuadrúpedos es necesario que el vehículo que se emplee sea amplio de tal manera que les permita echarse.
+Artículo 6.62. (DEROGADO, G.G. 16 DE JUNIO DE 2026)

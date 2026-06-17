@@ -1,1 +1,1 @@
-Artículo 6.52. Ningún animal destinado al tiro o a la carga podrá ser golpeado, fustigado o espoleado con exceso durante el desempeño de su trabajo ni fuera de él y si cae al suelo deberá ser descargado y no golpeado para que se levante.
+Artículo 6.52. (DEROGADO, G.G. 16 DE JUNIO DE 2026)

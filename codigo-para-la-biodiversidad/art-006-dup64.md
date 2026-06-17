@@ -1,1 +1,1 @@
-Artículo 6.64. Las cajas, huacales o jaulas a que alude el artículo anterior serán (sic) de ser de construcción sólida y tendrán en la parte inferior o superior un dispositivo que permita un espacio de cinco centímetros al colocarse una sobre otra que evite su deformación con el peso de las que se coloquen arriba a fin de que no se ponga en peligro la vida de los animales transportados, por ningún motivo serán arrojados de cualquier altura y la descarga o traslado deberá hacerse evitando los movimientos bruscos.
+Artículo 6.64. (DEROGADO, G.G. 16 DE JUNIO DE 2026)

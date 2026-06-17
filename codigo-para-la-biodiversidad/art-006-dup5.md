@@ -1,2 +1,1 @@
-(REFORMADO, G.G. 5 DE ABRIL DE 2024)
-Artículo 6.5. Toda persona tiene derecho a que las autoridades competentes pongan a su disposición la información que le soliciten en materia de trato digno y respetuoso a los animales por lo que el procedimiento se sujetará a lo previsto en este Código y en lo que dispone la Ley de Transparencia y Acceso a la Información Pública del Estado de México y Municipios relativo al derecho a la información. Asimismo, toda persona física o jurídica colectiva que tenga trato o maneje animales tiene la obligación de proporcionar la información que le sea requerida por las autoridades.
+Artículo 6.5. (DEROGADO, G.G. 16 DE JUNIO DE 2026)

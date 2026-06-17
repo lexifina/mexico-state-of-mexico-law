@@ -1,1 +1,1 @@
-Artículo 6.29. Toda persona deberá recoger las heces fecales en la vía pública y en el lugar dormitorio del animal y aplicar las vacunas preventivas e inmunizaciones de enfermedades transmisibles conforme a la disposición reglamentaria correspondiente.
+Artículo 6.29. (DEROGADO, G.G. 16 DE JUNIO DE 2026)

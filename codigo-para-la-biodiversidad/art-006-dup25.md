@@ -1,1 +1,1 @@
-Artículo 6.25. Cualquier persona que tenga conocimiento de un acto, hecho u omisión en perjuicio de los animales objeto de tutela del presente Libro tiene la obligación de informar a la autoridad competente de la existencia del mismo.
+Artículo 6.25. (DEROGADO, G.G. 16 DE JUNIO DE 2026)

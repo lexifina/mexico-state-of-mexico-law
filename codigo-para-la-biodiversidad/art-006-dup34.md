@@ -1,2 +1,1 @@
-Artículo 6.34. Todo propietario, poseedor o encargado de una mascota está obligado a colocarle una correa al transitar con ella en la vía pública y tienen la responsabilidad de los daños y perjuicios o lesiones que le ocasione a terceros si permite que transite libremente en la vía pública o que lo abandone, de acuerdo a las disposiciones del presente Libro y de los demás ordenamientos jurídicos aplicables.
-Las indemnizaciones correspondientes serán exigidas mediante el procedimiento que señalen los ordenamientos aplicables y el responsable podrá ser sancionado administrativamente en los términos de este Libro.
+Artículo 6.34. (DEROGADO, G.G. 16 DE JUNIO DE 2026)

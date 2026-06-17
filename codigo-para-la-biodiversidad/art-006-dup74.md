@@ -1,1 +1,1 @@
-Artículo 6.74. Los animales mamíferos destinados al sacrificio deberán tener un período de descanso en los corrales del rastro de un mínimo de doce horas antes de éste durante el cual deberán recibir agua suficiente salvo los animales lactantes que deban sacrificarse inmediatamente, en lo que respecta a las aves deberán serlo (sic) inmediatamente después de su arribo al rastro.
+Artículo 6.74. (DEROGADO, G.G. 16 DE JUNIO DE 2026)

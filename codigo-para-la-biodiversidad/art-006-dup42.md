@@ -1,1 +1,1 @@
-Artículo 6.42. Los particulares que obtengan las autorizaciones de funcionamiento a que se refiere el artículo anterior deberán cumplir estrictamente con las disposiciones del presente Libro y demás disposiciones aplicables a fin de mantener su autorización de funcionamiento la cual deberá ser refrendada anualmente y expresamente por la autoridad competente.
+Artículo 6.42. (DEROGADO, G.G. 16 DE JUNIO DE 2026)

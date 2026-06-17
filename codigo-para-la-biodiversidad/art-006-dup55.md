@@ -1,1 +1,1 @@
-Artículo 6.55. Para el otorgamiento de autorizaciones para el funcionamiento de establecimientos comerciales, ferias y exposiciones en la realización de espectáculos públicos o en el empleo de animales domésticos en el trabajo, además de los requisitos establecidos en las leyes correspondientes, deberán contar con un programa de bienestar animal de conformidad con lo establecido en el Reglamento del presente Libro.
+Artículo 6.55. (DEROGADO, G.G. 16 DE JUNIO DE 2026)

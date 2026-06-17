@@ -1,1 +1,1 @@
-Artículo 6.15. Los Municipios y la Secretaría de Salud según corresponda autorizarán la presencia como observadores de hasta dos representantes de las asociaciones protectoras de animales que así lo soliciten cuando se realicen actos de sacrificio humanitario de animales en las instalaciones públicas destinadas para dicho fin y como cuando se realicen visitas de verificación a establecimientos que manejen animales.
+Artículo 6.15. (DEROGADO, G.G. 16 DE JUNIO DE 2026)

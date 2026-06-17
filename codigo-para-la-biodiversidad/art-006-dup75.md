@@ -1,1 +1,1 @@
-Artículo 6.75. Las reses y demás cuadrúpedos destinados al sacrificio no podrán ser inmovilizados sino en el momento en que esta operación se realice y en ningún caso con anterioridad al mismo. Queda estrictamente prohibido quebrar las patas de los animales antes de sacrificarlos y no serán introducidos vivos o agonizantes en los refrigeradores ni podrán ser arrojados al agua hirviendo.
+Artículo 6.75. (DEROGADO, G.G. 16 DE JUNIO DE 2026)

@@ -1,3 +1,4 @@
+(DEROGADO CON LOS ARTÍCULOS QUE LO INTEGRAN, G.G. 16 DE JUNIO DE 2026)
 CAPITULO XIII
 DE LOS ANIMALES DE EXHIBICION O DE ESPECTACULO
-Artículo 6.54. La exhibición de animales será realizada atendiendo a las normas oficiales mexicanas o a las normas técnicas estatales.
+Artículo 6.54. (DEROGADO, G.G. 16 DE JUNIO DE 2026)

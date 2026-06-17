@@ -1,1 +1,1 @@
-Artículo 6.98. De lo recaudado por concepto de multas derivadas de violaciones a este Ordenamiento el Gobierno del Estado destinará el cincuenta por ciento de los montos recaudados a los Municipios para atender las acciones relacionadas con las atribuciones que este Libro les confiere.
+Artículo 6.98. (DEROGADO, G.G. 16 DE JUNIO DE 2026)

@@ -1,1 +1,1 @@
-Artículo 6.41 Las autoridades estatales podrán autorizar la operación de parques de exposición animal que operen en el Estado a cargo de particulares, cuando éstos cubran los requisitos sanitarios y los reglamentos de funcionamiento y seguridad pública que emitan las autoridades competentes.
+Artículo 6.41. (DEROGADO, G.G. 16 DE JUNIO DE 2026)

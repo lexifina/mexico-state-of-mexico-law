@@ -1,1 +1,1 @@
-Artículo 6.96. La violación a las disposiciones de este Libro por parte de laboratorios científicos o quien ejerza la profesión de médico veterinario zootecnista independientemente de la responsabilidad civil, penal o administrativa en la que incurra ameritará aumento de la multa hasta en un treinta por ciento más.
+Artículo 6.96. (DEROGADO, G.G. 16 DE JUNIO DE 2026)

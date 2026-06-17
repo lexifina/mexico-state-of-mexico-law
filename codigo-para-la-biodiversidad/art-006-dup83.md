@@ -1,1 +1,1 @@
-Artículo 6.83. Nadie puede sacrificar a un animal en la vía pública salvo por motivos de peligro inminente y para evitar el sufrimiento innecesario en el animal cuando no sea posible su traslado inmediato a un lugar más adecuado. Dicho sacrificio se hará bajo la responsabilidad de un médico veterinario zootecnista con cédula profesional o por protectores de animales con demostrada capacidad y amplio juicio.
+Artículo 6.83. (DEROGADO, G.G. 16 DE JUNIO DE 2026)

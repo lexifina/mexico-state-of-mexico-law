@@ -1,1 +1,1 @@
-Artículo 6.40 Los parques de exposición de animales domésticos que operen en el Estado deberán mantener a los animales en instalaciones amplias de manera que se les permita la libertad de movimiento y la satisfacción de sus necesidades vitales y asegurar las condiciones de seguridad pública e higiene. Iguales medidas deberán adoptar los circos y ferias que exhiban o utilicen animales.
+Artículo 6.40. (DEROGADO, G.G. 16 DE JUNIO DE 2026)
