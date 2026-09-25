@@ -3,8 +3,8 @@ Artículo 17.4.- Para efectos del presente Libro se entenderá por:
 (REFORMADA, G.G. 29 DE SEPTIEMBRE DE 2020)
 I. Derecho de Vía.- A la franja de terreno de anchura variable, determinada en las normas técnicas que emita la Secretaría de Movilidad, que se requiere para la construcción, conservación, rehabilitación, ampliación, protección y, en general, para el uso adecuado de la infraestructura vial primaria;
 II. Carril Confinado.- Es el carril en la infraestructura vial destinado para uso exclusivo de los vehículos que operan en los sistemas de transporte masivo o de alta capacidad;
-(REFORMADA, G.G. 5 DE ENERO DE 2021)
-III. Evaluación Técnica de Impacto en materia Vial. A la resolución técnica de la Secretaría de Movilidad, que determina la factibilidad de incorporar a la infraestructura vial o de cuota, el flujo vehicular y peatonal previsto, como consecuencia de la construcción, ampliación, modernización u operación de edificaciones o instalaciones de impacto urbano, así como las obras y acciones que, en su caso, deben llevarse a cabo para mitigar su efecto;
+(REFORMADA, G.G. 25 DE SEPTIEMBRE DE 2026)
+III. Evaluación Técnica de Impacto en materia de Movilidad. A la resolución técnica de la Secretaría de Movilidad, que determina la factibilidad de incorporar a la infraestructura vial o de cuota, el flujo vehicular y peatonal previsto, como consecuencia de la construcción, ampliación, modernización u operación de edificaciones o instalaciones de impacto urbano, así como las obras y acciones que, en su caso, deben llevarse a cabo para mitigar su efecto;
 IV. Estación de Transferencia Modal.- Instalaciones con equipo tecnológico donde converge el transporte de alta capacidad con otro u otros medios de transporte;
 (REFORMADA, G.G. 20 DE SEPTIEMBRE DE 2018)
 IV. Bis. Espacio público en desuso. Parte de un bien inmueble público que no está siendo aprovechado;
