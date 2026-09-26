@@ -1,0 +1,4 @@
+G.G. 25 DE SEPTIEMBRE DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 362.- POR EL QUE SE REFORMA LA FRACCIÓN II DEL ARTÍCULO 50 DE LA LEY DE ACCESO DE LAS MUJERES A UNA VIDA LIBRE DE VIOLENCIA DEL ESTADO DE MÉXICO, Y SE REFORMA EL PÁRRAFO QUINTO DEL ARTÍCULO 353 Y SE ADICIONA LA FRACCIÓN XXXIV AL ARTÍCULO 353 DEL CÓDIGO PENAL DEL ESTADO DE MÉXICO".]
+PRIMERO. Publíquese el presente Decreto en el Periódico Oficial "Gaceta del Gobierno".
+SEGUNDO. El presente Decreto entrará en vigor al día siguiente al de su publicación en el Periódico Oficial "Gaceta del Gobierno".

@@ -23,5 +23,7 @@ XII. La preservación y restauración del equilibrio ecológico y la protección
 XIII. La delimitación de zonas de riesgo y el establecimiento de polígonos de protección, amortiguamiento y salvaguarda para garantizar la seguridad de las personas y de las instalaciones estratégicas.
 (REFORMADA [N. DE E. ADICIONADA], G.G. 20 DE SEPTIEMBRE DE 2018)
 XIV. La rehabilitación de espacios públicos en desuso, a fin de transformarlos en áreas que generen un beneficio social;
-(ADICIONADA [N. DE E. REUBICADA], G.G. 20 DE SEPTIEMBRE DE 2018)
-XV. Aquellas otras que así reconociera la legislación estatal o federal aplicable a la materia.
+(REFORMADA [N. DE E. ADICIONADA], G.G. 25 DE SEPTIEMBRE DE 2026)
+XV. La creación de áreas verdes urbanas, así como también la ampliación y mejoramiento de las ya existentes; y
+(ADICIONADA [N. DE E. REFORMADA], G.G. 25 DE SEPTIEMBRE DE 2026)
+XVI. Aquellas otras que así reconociera la legislación Estatal o Federal aplicable en la materia.
