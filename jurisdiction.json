@@ -1,0 +1,11 @@
+{
+  "path": "mx-mex",
+  "code": "MX-MEX",
+  "name": "State of Mexico",
+  "level": "state",
+  "parent": "mx",
+  "repo": "https://github.com/lexifina/mexico-state-of-mexico-law",
+  "build": "built: constitution, codes and laws (133 ordenamientos, 1643 versions) from SCJN Legislación",
+  "language": "es",
+  "sources": 1
+}
